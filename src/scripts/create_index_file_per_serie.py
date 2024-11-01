@@ -1,5 +1,6 @@
 import os
 import sys
+import json
 
 def create_index(main_folder):
     # Iterate through each subfolder inside the main folder
@@ -7,10 +8,20 @@ def create_index(main_folder):
         if 'out' in dirs:
             out_folder = os.path.join(root, 'out')
             index_file_path = os.path.join(root, 'index.md')
+            data_file_path = os.path.join(root, 'data.json')
             
             try:
+                # Read the series name from data.json
+                series_name = ""
+                if os.path.exists(data_file_path):
+                    with open(data_file_path, 'r', encoding='utf-8') as data_file:
+                        data = json.load(data_file)
+                        series_name = data.get("name", "")
+                
                 with open(index_file_path, 'w', encoding='utf-8') as index_file:
-                    index_file.write("# Chapters:\n\n")
+                    if series_name:
+                        index_file.write(f"# {series_name}\n\n")
+                    index_file.write("### Chapters:\n\n")
 
                     # Iterate through each file inside the "out" subfolder
                     for file_name in os.listdir(out_folder):
