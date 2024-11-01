@@ -1,388 +1,388 @@
-# 163話　レディクリムゾン
+# 163 Episode Lady Crimson
 
 ## 163話　レディクリムゾン
 
-「オイ！聞いてんのかよ？！」
+Oi! Are you listening to me?
 
 *「オイ！聞いてんのかよ？！」*
 
 &nbsp;
 
-痺れを切らしたように、先ほど声をかけてきた男がわたしに向けて、大声を上げて来た。
+As if numbed, the man who had just called out to me came screaming at me.
 
 *痺れを切らしたように、先ほど声をかけてきた男がわたしに向けて、大声を上げて来た。*
 
-おっと、ついつい回想に思いを馳せて、コイツの存在を忘れていたよ。
+Oops, I got caught up in reminiscing and forgot about this guy.
 
 *おっと、ついつい回想に思いを馳せて、コイツの存在を忘れていたよ。*
 
-ここはやはり、多少は相手をして差し上げないと礼儀に反するか？
+I guess it's not polite if I don't give him some company.
 
 *ここはやはり、多少は相手をして差し上げないと礼儀に反するか？*
 
 &nbsp;
 
-「スカしてんじゃねェぞメスガキが！俺が呼んでんだ！無視してんじゃ無え！」
+"Don't be a bitch, you little bitch! I'm calling you! Don't ignore me!
 
 *「スカしてんじゃねェぞメスガキが！俺が呼んでんだ！無視してんじゃ無え！」*
 
 &nbsp;
 
-ソイツがテーブルに拳を叩き付けて声を荒げる。
+This guy slams his fist on the table and raises his voice.
 
 *ソイツがテーブルに拳を叩き付けて声を荒げる。*
 
-顔を真っ赤にしちゃって、随分沸点低いな。
+You've turned red in the face, your boiling point is so low.
 
 *顔を真っ赤にしちゃって、随分沸点低いな。*
 
-それにしても、初対面の女の子を「メス」呼ばわりとは随分じゃないか？
+But still, calling a girl you just met a "female" is quite a thing, don't you think?
 
 *それにしても、初対面の女の子を「メス」呼ばわりとは随分じゃないか？*
 
 &nbsp;
 
-ガタイは良いよね。
+You have a good girth, don't you?
 
 *ガタイは良いよね。*
 
-身長はロンバートより少し低いくらい？
+Is he a little shorter than Lombardo in height?
 
 *身長はロンバートより少し低いくらい？*
 
-伸ばし放題の無精髭が何かキチャない。
+There's something not quite right about unlimited growth of stubble.
 
 *伸ばし放題の無精髭が何かキチャない。*
 
-見るからに臭いそう。あんま近付いてほしく無いタイプだ。
+He looks like he smells. I don't want him to get too close to me.
 
 *見るからに臭いそう。あんま近付いてほしく無いタイプだ。*
 
 &nbsp;
 
-ふと、視界の端に居るビビとミアの表情を窺えば……。
+Suddenly, I looked at the expressions on Bibi and Mia's faces at the edge of my vision and saw .......
 
 *ふと、視界の端に居るビビとミアの表情を窺えば……。*
 
-イカンな、2人の表情に温度が無い。
+No, there is no temperature in their expressions.
 
 *イカンな、2人の表情に温度が無い。*
 
 &nbsp;
 
-「イイから来やがれ！！」
+Come on, come on, come on, come on!
 
 *「イイから来やがれ！！」*
 
 &nbsp;
 
-ンで、ソイツが喚きながらコチラに手を伸ばして来た。
+Then, he reached out his hand to me, screaming.
 
 *ンで、ソイツが喚きながらコチラに手を伸ばして来た。*
 
-わたしの腕を掴もうってつもりなのかも知れないが……。案の定、その手は虚しくスカッと空を掴む。
+Maybe he was trying to grab my arm. ...... Sure enough, the hand grabs the sky with an empty hand.
 
 *わたしの腕を掴もうってつもりなのかも知れないが……。案の定、その手は虚しくスカッと空を掴む。*
 
-一瞬ソイツは、何故自分の手が空振ったか理解できず、呆けた様な顔になる。
+For a moment, this guy looks dumbfounded, unable to understand why his hand was flailing.
 
 *一瞬ソイツは、何故自分の手が空振ったか理解できず、呆けた様な顔になる。*
 
-更にはその場で前のめりに倒れ、受け身も取れずに床に顔面を打ち付けていた。
+Furthermore, he fell forward on the spot and hit his face on the floor without being able to catch himself.
 
 *更にはその場で前のめりに倒れ、受け身も取れずに床に顔面を打ち付けていた。*
 
 &nbsp;
 
-あ、なんか「ぶぎゅる！」とか酷い声が漏れたな。鼻でも潰れちゃったか？
+Oh, what a "buggy!" or some terrible voice leaked out. Did you crush your nose?
 
 *あ、なんか「ぶぎゅる！」とか酷い声が漏れたな。鼻でも潰れちゃったか？*
 
 &nbsp;
 
-まあ、大した事はしてないんだけどね。やったのは、コイツの行動意識をちょこっとずらしてやった程度。
+Well, I didn't do much. All I did was shift this guy's behavioral awareness a little bit.
 
 *まあ、大した事はしてないんだけどね。やったのは、コイツの行動意識をちょこっとずらしてやった程度。*
 
-自分では足を前へ踏み出したつもりだったんだろうけど、実際に足は動いていなかったから、そのまま重心を前へ動かせば転がってしまうのは必然だ。
+He probably thought he was stepping forward, but his feet were not actually moving, so it was inevitable that he would roll if he moved his center of gravity forward as he did.
 
 *自分では足を前へ踏み出したつもりだったんだろうけど、実際に足は動いていなかったから、そのまま重心を前へ動かせば転がってしまうのは必然だ。*
 
 &nbsp;
 
-アムカムの立ち合いの時、初っ端の牽制でよくやるんだけど、ウチの子たちならこの程度のずらしではビクともしないんだけどな。
+I often do this as a first check when I'm standing in amcam, but my kids wouldn't be scared off by this level of shifting.
 
 *アムカムの立ち合いの時、初っ端の牽制でよくやるんだけど、ウチの子たちならこの程度のずらしではビクともしないんだけどな。*
 
-ちょいとばかりコイツは鍛え方が足りないんじゃなかろか。
+I think this guy is a bit short on training.
 
 *ちょいとばかりコイツは鍛え方が足りないんじゃなかろか。*
 
 &nbsp;
 
-しかし、顔から床に突っ込むのはちょっと悲惨？
+But is it a little tragic to plunge face-first into the floor?
 
 *しかし、顔から床に突っ込むのはちょっと悲惨？*
 
 &nbsp;
 
-「クソ！誰だっ？！足引っ掛けやがったのは？！」
+Shit! Who was that? Who tripped me up?
 
 *「クソ！誰だっ？！足引っ掛けやがったのは？！」*
 
 &nbsp;
 
-いやアンタ自分で転がったんだって。
+No, Anta, he said he rolled on his own.
 
 *いやアンタ自分で転がったんだって。*
 
-だけど、厳つい男が涙目で鼻血ダラダラ零しながら喚いてる様は、申し訳ないけどチョッと笑えてしまうかな。
+However, I'm sorry to say that I find it a little funny to see a stern man with tears in his eyes and a nosebleed dripping down his nose.
 
 *だけど、厳つい男が涙目で鼻血ダラダラ零しながら喚いてる様は、申し訳ないけどチョッと笑えてしまうかな。*
 
 &nbsp;
 
-「て、てめ！今笑いやがったな？！このメスガキがぁ！！」
+Hey, you! Did you just laugh at me? You little bitch!
 
 *「て、てめ！今笑いやがったな？！このメスガキがぁ！！」*
 
 &nbsp;
 
-だから初対面の女子をメス呼ばわりするのは止めなさいって。
+So stop calling girls you've never met a female a female.
 
 *だから初対面の女子をメス呼ばわりするのは止めなさいって。*
 
-そうやって更に立ち上がろうとするソイツに、唐突に床から伸びてきた蔦が絡みつく。
+As he tries to stand up further, ivy suddenly grows from the floor and tangles around him.
 
 *そうやって更に立ち上がろうとするソイツに、唐突に床から伸びてきた蔦が絡みつく。*
 
 &nbsp;
 
-うん、ミアの仕業だね。
+Yeah, it was Mia.
 
 *うん、ミアの仕業だね。*
 
-ミアが今、指をパチリと鳴らして魔法を発動させたのだ。
+Mia now snapped her fingers and activated the magic.
 
 *ミアが今、指をパチリと鳴らして魔法を発動させたのだ。*
 
 &nbsp;
 
-忽ちのうちに男は、全身蔦でグルグルの簀巻き状態にされてしまう。
+Suddenly, the man is wrapped in ivy all over his body.
 
 *忽ちのうちに男は、全身蔦でグルグルの簀巻き状態にされてしまう。*
 
-男は簀巻きにされても何やらモガモガと言葉を発しようとしているが、蔦は顔面にも隈なく巻き付いているので、くぐもった音しか漏れてこない。
+The man is still trying to mumble some words even though he is wrapped in a bamboo screen, but the ivy is wrapped all over his face as well, so only muffled sounds are coming out.
 
 *男は簀巻きにされても何やらモガモガと言葉を発しようとしているが、蔦は顔面にも隈なく巻き付いているので、くぐもった音しか漏れてこない。*
 
 &nbsp;
 
-「しゃべらないで欲しいかな？」
+Do you want me to stop talking?"
 
 *「しゃべらないで欲しいかな？」*
 
 &nbsp;
 
-ミアが冷ややかな……、絶対零度に冷え込んだ声を上から落とす。
+Mia drops a chilling ......, voice chilled to absolute zero from above.
 
 *ミアが冷ややかな……、絶対零度に冷え込んだ声を上から落とす。*
 
-うん、これはゾクリとする。
+Yes, this is chilling.
 
 *うん、これはゾクリとする。*
 
-見下ろす目も、実に冷え冷えとした物だ。見えていなくて良かったね。
+The eyes looking down at you are really chilling. I'm glad you didn't see it.
 
 *見下ろす目も、実に冷え冷えとした物だ。見えていなくて良かったね。*
 
 &nbsp;
 
-見えなくとも男は、そのミアの気配を察したのか、一度ビクリと体を動かした後は静かになってしまった。
+Even though he could not see, the man, perhaps sensing the mia's presence, moved his body once with a jerk and then went quiet.
 
 *見えなくとも男は、そのミアの気配を察したのか、一度ビクリと体を動かした後は静かになってしまった。*
 
 &nbsp;
 
-「その辺にしておいて貰えるかい？」
+Can you leave it at that?"
 
 *「その辺にしておいて貰えるかい？」*
 
 &nbsp;
 
-そこへ店の奥の方から声がかかった。ハスキーだけど多分女性の声。
+Then a voice came from the back of the store. A husky but probably female voice.
 
 *そこへ店の奥の方から声がかかった。ハスキーだけど多分女性の声。*
 
-直ぐに声の主が立ち上がった。
+Immediately the owner of the voice stood up.
 
 *直ぐに声の主が立ち上がった。*
 
-随分大きな人だと分かる。
+You can tell he is a very big man.
 
 *随分大きな人だと分かる。*
 
 &nbsp;
 
-「そっちのお嬢さんも、こんな狭い所でそんな物騒な魔法は止めておくれよ？」
+And you, young lady over there, would you please stop doing that kind of dangerous magic in such a small place?"
 
 *「そっちのお嬢さんも、こんな狭い所でそんな物騒な魔法は止めておくれよ？」*
 
 &nbsp;
 
-ビビがいつの間にか転がっている男の上に、幾つもの礫を展開させていた。
+Bibi had deployed several gravels on top of the man who had been lying down for some time.
 
 *ビビがいつの間にか転がっている男の上に、幾つもの礫を展開させていた。*
 
-直径5センチ程の小石が全部で十数個、キュルキュルと高速で自転しながら男の周りで今にも撃ち出さんと待機をしている。
+A dozen or so pebbles, each about five centimeters in diameter, are spinning at high speed, waiting to shoot out around the man at any moment.
 
 *直径5センチ程の小石が全部で十数個、キュルキュルと高速で自転しながら男の周りで今にも撃ち出さんと待機をしている。*
 
-これは『礫弾』いう地属性小級位の魔法だ。
+This is a "gravel bullet," a magic with a small earth attribute.
 
 *これは『礫弾』いう地属性小級位の魔法だ。*
 
-確かにココでこんな魔法を撃ち出したら、この床板なんてボコボコになるよね。
+It's true that if I shot out this kind of magic here, these floorboards would be battered and bruised.
 
 *確かにココでこんな魔法を撃ち出したら、この床板なんてボコボコになるよね。*
 
 &nbsp;
 
-苦笑しながら近付くその方に敵意は皆無だ。
+There is no hostility on his part as he approaches with a wry smile.
 
 *苦笑しながら近付くその方に敵意は皆無だ。*
 
-それが分るとビビは小さく肩をすくめ、そのまま魔法を散らして消した。
+When Bibi realized this, he gave a small shrug and then dispersed the magic and disappeared.
 
 *それが分るとビビは小さく肩をすくめ、そのまま魔法を散らして消した。*
 
 &nbsp;
 
-「ありがとよ。コイツは最近この街に来た田舎者でね。物を知らない自分を勘違いしたバカなんだが、ちったぁ良い薬になったろうよ」
+Thanks. He's a newcomer to town. He's a self-deluded, ignorant, self-deluded idiot, but it's good medicine.
 
 *「ありがとよ。コイツは最近この街に来た田舎者でね。物を知らない自分を勘違いしたバカなんだが、ちったぁ良い薬になったろうよ」*
 
 &nbsp;
 
-近付いて来たその女性は、やはりかなり大きい。
+The woman who approached me was still quite large.
 
 *近付いて来たその女性は、やはりかなり大きい。*
 
-ハワードパパより身長あるんじゃないかな？
+I think he's taller than Howard Papa.
 
 *ハワードパパより身長あるんじゃないかな？*
 
-その身体はとても筋肉質で、肌は薄らと緑がかっていた。
+His body was very muscular and his skin had a light green tinge.
 
 *その身体はとても筋肉質で、肌は薄らと緑がかっていた。*
 
-ニヤリと笑う口元には、八重歯と言うには少し長い牙が白く光る。
+The grinning mouth has white fangs that are a little long to be called double-toothed.
 
 *ニヤリと笑う口元には、八重歯と言うには少し長い牙が白く光る。*
 
-その見た目は間違いなくシーハ〇ク！
+Its appearance is definitely a sea ha0k!
 
 *その見た目は間違いなくシーハ〇ク！*
 
 &nbsp;
 
-この方はあれだ、『ハーフジャイアント』と呼ばれる種族の方だ。
+This person is that one, the one of the species called "Half Giant".
 
 *この方はあれだ、『ハーフジャイアント』と呼ばれる種族の方だ。*
 
-街中では時たま見かけてたけど、直接お話しするのはこれが初めてだな。
+I've seen you around town from time to time, but this is the first time we've spoken in person.
 
 *街中では時たま見かけてたけど、直接お話しするのはこれが初めてだな。*
 
 &nbsp;
 
-「悪いね。バウンサーと言ってもピンキリだ。今アンタらに絡んだ様な奴は、精々田舎町のゴロツキの用心棒が関の山だ。要人警護には到底付けられやしない」
+That's bad. Bouncers come in all shapes and sizes. The kind of bouncers you have just met are at best bouncers for small-town thugs. They can't be attached to protect VIPs at all.
 
 *「悪いね。バウンサーと言ってもピンキリだ。今アンタらに絡んだ様な奴は、精々田舎町のゴロツキの用心棒が関の山だ。要人警護には到底付けられやしない」*
 
 &nbsp;
 
-その方は「情報収集もまともに出来ない奴は尚更な……」と呟きながら、床に転がっている男を運ぶ様、周りに指示を出した。
+The person muttered, "Even more so for those who can't even gather information properly ......," and instructed others to carry the man lying on the floor.
 
 *その方は「情報収集もまともに出来ない奴は尚更な……」と呟きながら、床に転がっている男を運ぶ様、周りに指示を出した。*
 
-この男共に対して、影響力を持たれている人物だと分る。
+We know that he is someone who has influence over these men.
 
 *この男共に対して、影響力を持たれている人物だと分る。*
 
 &nbsp;
 
-「アンタら協会に用があるんだろ？受け付けはこっちだ。案内してやるよ」
+You guys are here for the association, right? The reception desk is this way. I'll show you around."
 
 *「アンタら協会に用があるんだろ？受け付けはこっちだ。案内してやるよ」*
 
 &nbsp;
 
-その方は肩越しに此方を見てそう仰った。
+The person looked over his shoulder and said so.
 
 *その方は肩越しに此方を見てそう仰った。*
 
 &nbsp;
 
-「おっと、申し遅れたね。あたしゃルドリってんだ。よろしくな！」
+Oops, I'm late. My name is Rudri. Nice to meet you!
 
 *「おっと、申し遅れたね。あたしゃルドリってんだ。よろしくな！」*
 
-「あ、わたし達、は……」
+Oh, we're at .......
 
 *「あ、わたし達、は……」*
 
-「って言うかさ、何でアンタら態々裏口のパブから入って来たんだい？」
+I mean, why did you guys come in through the back door of the pub?"
 
 *「って言うかさ、何でアンタら態々裏口のパブから入って来たんだい？」*
 
 &nbsp;
 
-ん？
+Hmm?
 
 *ん？*
 
 &nbsp;
 
-「正面の入口から入りゃ、そのまま階段昇って直ぐ受付だったろうに」
+If you'd come in through the front entrance, you'd have walked straight up the stairs to the reception desk."
 
 *「正面の入口から入りゃ、そのまま階段昇って直ぐ受付だったろうに」*
 
 &nbsp;
 
-はい？
+Yes?
 
 *はい？*
 
 &nbsp;
 
-なんでもこの酒場は、仕事終わりの慰労や、打ち合わせなどで協会員が使い易いようにと併設しているパブだとの事。「まさか酒の匂いに釣られたとかじゃないよね？」と言ってカラカラと笑い声を上げる。
+The pub was set up to make it easy for MISHOP members to use it for after-work relaxation, meetings, etc. "You didn't get caught by the smell of alcohol, did you? I'm sure you weren't lured by the smell of alcohol, were you?" I said, laughing.
 
 *なんでもこの酒場は、仕事終わりの慰労や、打ち合わせなどで協会員が使い易いようにと併設しているパブだとの事。「まさか酒の匂いに釣られたとかじゃないよね？」と言ってカラカラと笑い声を上げる。*
 
 &nbsp;
 
-そ、そうなん？とビビとミアに目を向ければ……。
+Oh, yeah? And if you look at Bibi and Mia, you'll see .......
 
 *そ、そうなん？とビビとミアに目を向ければ……。*
 
 &nbsp;
 
-「だってスーちゃん自信満々に進んで行くんだもん。コッチから入りたいのかな？って」
+Because, Sue, you are going forward so confidently. I wondered if she wanted to enter from this side. I wondered.
 
 *「だってスーちゃん自信満々に進んで行くんだもん。コッチから入りたいのかな？って」*
 
-「まあ！狙ってた訳じゃ無いのは分かってだけどね！」
+I know it's not what you're after! I know you weren't aiming for that!"
 
 *「まあ！狙ってた訳じゃ無いのは分かってだけどね！」*
 
 &nbsp;
 
-そういえばクゥ・エメルさん、地図で場所を教えてくれた時、二か所くらい指して……いた……ような？
+By the way, Cu Emel, when you showed me the location on the map, you pointed to about two places ...... like ......?
 
 *そういえばクゥ・エメルさん、地図で場所を教えてくれた時、二か所くらい指して……いた……ような？*
 
-くぁあぁ！又しても弄ばれていた？！
+Kuh-oh! Was I being toyed with again?
 
 *くぁあぁ！又しても弄ばれていた？！*
 
@@ -392,37 +392,37 @@
 
 &nbsp;
 
-「…………あれが『深紅の淑女』」
+............ that's the "Lady in Crimson."
 
 *「…………あれが『深紅の淑女』」*
 
 &nbsp;
 
-ン？何だって？誰か何か言ったか？
+Huh? What? Did someone say something?
 
 *ン？何だって？誰か何か言ったか？*
 
 &nbsp;
 
-「ほら！スー行くわよ！」
+Here we go! Sue, let's go!"
 
 *「ほら！スー行くわよ！」*
 
-「……あ、うん」
+"...... Uh-huh."
 
 *「……あ、うん」*
 
 &nbsp;
 
-後ろを振り向いたけど誰もこちらを見ていない。
+I turned around but no one was looking at me.
 
 *後ろを振り向いたけど誰もこちらを見ていない。*
 
-まあいいか。
+Oh well.
 
 *まあいいか。*
 
-取りあえず案内してくれるルドリさんの後に付き、わたし達はパブの奥にある分厚い扉を抜けたのだ。
+We followed Rudri's lead and went through the thick door at the back of the pub.
 
 *取りあえず案内してくれるルドリさんの後に付き、わたし達はパブの奥にある分厚い扉を抜けたのだ。*
 
@@ -440,41 +440,41 @@
 
 &nbsp;
 
-「アレが……そうか？」
+"Is that thing ...... so?"
 
 *「アレが……そうか？」*
 
-「ああ、間違いない。あの髪は見間違いようが無い。俺は彼女が一瞬で魔獣を屠るのを確かに見た」
+Oh, there's no mistaking it. There is no mistaking that hair. I definitely saw her slaughter a hexenbiest in an instant."
 
 *「ああ、間違いない。あの髪は見間違いようが無い。俺は彼女が一瞬で魔獣を屠るのを確かに見た」*
 
 &nbsp;
 
-「旧市民街にあった、アナトリスの組織を壊滅させたとも聞いたが」
+I also heard that you destroyed the Anatolian organization in the old civic district.
 
 *「旧市民街にあった、アナトリスの組織を壊滅させたとも聞いたが」*
 
-「そうだ彼女だ。それはオレも見た。今思い出してもゾッとする。何が恐ろしいって、周りを血の海にしているって言うのに、本人は返り血ひとつ浴びちゃいない。それでいて、冷ややかに辺りを見回すあの眼が……！」
+Yes, that's her. I saw that too. I am horrified even now when I remember it. What's terrifying is that she's causing a pool of blood around her, and yet she doesn't get a single drop of blood back. And yet, her eyes looking around coldly... ......!
 
 *「そうだ彼女だ。それはオレも見た。今思い出してもゾッとする。何が恐ろしいって、周りを血の海にしているって言うのに、本人は返り血ひとつ浴びちゃいない。それでいて、冷ややかに辺りを見回すあの眼が……！」*
 
 &nbsp;
 
-「去年伝わって来た、グロールスカの1000人規模の盗賊団を討伐したとか、オセアノス沖で海賊船団を壊滅させたとか言う話、眉唾だと誰もが思っていたがな……」
+Everyone thought the stories that came out last year about taking down a thousand bandits in Grolska and destroying a pirate fleet off the coast of Oceanoos were eyebrow-raising. ......
 
 *「去年伝わって来た、グロールスカの1000人規模の盗賊団を討伐したとか、オセアノス沖で海賊船団を壊滅させたとか言う話、眉唾だと誰もが思っていたがな……」*
 
-「見たろうが、一瞬だけ放たれたあの濃厚な殺気。アイツ、瞬間的に自分が萎縮した事すら気付いちゃいない」
+You saw that thick killing spirit that was released just for a moment. He didn't even realize that he had momentarily atrophied."
 
 *「見たろうが、一瞬だけ放たれたあの濃厚な殺気。アイツ、瞬間的に自分が萎縮した事すら気付いちゃいない」*
 
 &nbsp;
 
-「アレが、アムカムの……」
+That's the thing, Amcam's ......."
 
 *「アレが、アムカムの……」*
 
-「そうだ間違いない。あれがレディクリムゾン『血塗れの淑女』。アムカムの姫だ」
+Yes, no doubt about it. That's Lady Crimson, the Bloody Lady. The Princess of Amkam.
 
 *「そうだ間違いない。あれがレディクリムゾン『血塗れの淑女』。アムカムの姫だ」*
 
@@ -484,13 +484,13 @@
 
 ----------------
 
-お読み頂き、ありがとうございます。
+Thank you for reading.
 
 *お読み頂き、ありがとうございます。*
 
 &nbsp;
 
-ブクマ、ご評価もありがとうございます！いつも励みになっております！！
+Thank you for your buzz and your rating! We are always encouraged!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
 

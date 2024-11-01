@@ -1,64 +1,64 @@
-# 98話　廊下戦線
+# 98 The Corridor Front
 
 ## 98話　廊下戦線
 
-「いい加減、節度をわきまえて行動されては如何でしょうか？」
+How about a little moderation in your behavior?
 
 *「いい加減、節度をわきまえて行動されては如何でしょうか？」*
 
-「はぁっ？！ナニ言ってんの？ウチラは廊下を進みたいだけなんですけど？！」
+What are you talking about? What are you talking about? We just want to go down the hallway.
 
 *「はぁっ？！ナニ言ってんの？ウチラは廊下を進みたいだけなんですけど？！」*
 
-「淑女としての、自覚の話をしておりますのよ？お分かりになりませんか？」
+"We are talking about being a lady, you know? Don't you understand?"
 
 *「淑女としての、自覚の話をしておりますのよ？お分かりになりませんか？」*
 
-「益々意味が分かんないんですけど？！自覚とか関係無くない？！」
+I don't understand what you mean by "more and more"? Doesn't it matter if I'm aware of it or not?
 
 *「益々意味が分かんないんですけど？！自覚とか関係無くない？！」*
 
-「ですから、そうやって廊下の中央で広がってお歩きになるのは、見目にも宜しくは無いと言っていますのよ？大体にしてわたくし達、教室に入りたいだけなのですが……」
+The first thing you need to do is to make sure that you have a good idea of what you're looking for. We just want to get into the classroom, anyway. ......
 
 *「ですから、そうやって廊下の中央で広がってお歩きになるのは、見目にも宜しくは無いと言っていますのよ？大体にしてわたくし達、教室に入りたいだけなのですが……」*
 
-「あら？どうぞ、入ってくれていいわよ？ホラ、ココ！この横から通って行けば？」
+Oh?" Come on in, you can come in, okay? Here, here! Why don't you come through the side here?"
 
 *「あら？どうぞ、入ってくれていいわよ？ホラ、ココ！この横から通って行けば？」*
 
-「ふぅ、ホントに理解力と云う物が乏しい方ですわね。それでは、わたくしが道を譲った事になってしまうではありませんか。それでは貴女の為にはなりませんでしょ？」
+I am sure you have a very limited comprehension of what I am talking about. I've given way to you. How can that be good for you?"
 
 *「ふぅ、ホントに理解力と云う物が乏しい方ですわね。それでは、わたくしが道を譲った事になってしまうではありませんか。それでは貴女の為にはなりませんでしょ？」*
 
-「はあぁ？ナニ言ってんの？！退けばいいじゃない！いい加減譲りなさいよ！道開けなさいよ！！」
+What? What are you talking about? Why don't you just back away? Give way! Get out of the way!
 
 *「はあぁ？ナニ言ってんの？！退けばいいじゃない！いい加減譲りなさいよ！道開けなさいよ！！」*
 
-「ですから、貴女の為にと思い言っています。道を譲るのは、立ち位置の低い者からと言うのが道理で御座いましょう？」
+I am saying this for your sake. It is only logical to give way to those who are lower on the ladder, isn't it?"
 
 *「ですから、貴女の為にと思い言っています。道を譲るのは、立ち位置の低い者からと言うのが道理で御座いましょう？」*
 
-「なっ？！ウチラに退けって言ってんの？！ウチラがソッチより下だと？！！」
+What? Are you telling us to retreat? You think we're lower than you?
 
 *「なっ？！ウチラに退けって言ってんの？！ウチラがソッチより下だと？！！」*
 
-「先程から、節度をわきまえます様にと、言っています」
+I've already told you to mind your manners.
 
 *「先程から、節度をわきまえます様にと、言っています」*
 
-「もう存在してない貴族制度の事言ってるワケ？！化石に縋ってるなんて滑稽よね！」
+You're talking about an aristocracy that doesn't exist anymore? It's ridiculous that you're clinging to a fossil!"
 
 *「もう存在してない貴族制度の事言ってるワケ？！化石に縋ってるなんて滑稽よね！」*
 
-「良識をご存じなければ、恥をかくのはご自分ですよ？」
+If you don't know decency, you will be the one to be humiliated?"
 
 *「良識をご存じなければ、恥をかくのはご自分ですよ？」*
 
-「貧乏貴族が何を偉そうに！」
+What a bunch of poor aristocrats you are!"
 
 *「貧乏貴族が何を偉そうに！」*
 
-「……成り上がりは何処までも浅ましい等と、誹りを受けても厭いませんの？」
+"Are you willing to be slandered as shallow, etc., as ...... upstarts are?"
 
 *「……成り上がりは何処までも浅ましい等と、誹りを受けても厭いませんの？」*
 
@@ -68,11 +68,11 @@
 
 &nbsp;
 
-ガチじゃん！まぢでガチファイトじゃん！！怖ぇぇ～～、怖ぇよ、女の闘い怖ぇぇ～～～。
+It's a real fight! It's a real fight! I'm scared~~, I'm scared, I'm scared of women's fights~~.
 
 *ガチじゃん！まぢでガチファイトじゃん！！怖ぇぇ～～、怖ぇよ、女の闘い怖ぇぇ～～～。*
 
-うわぁ、あんな中入りたくないわぁ。皆が遠巻きに見てるのも合点が行っちゃうよ。絶対あんな中に入って、巻き込まれたいとか思わないものね！わたしも思わない！絶対ヤッ！！
+Wow, I don't want to go in there. I can see why everyone is looking at me from a distance. I definitely don't want to go in there and get involved! I don't either! Absolutely not!
 
 *うわぁ、あんな中入りたくないわぁ。皆が遠巻きに見てるのも合点が行っちゃうよ。絶対あんな中に入って、巻き込まれたいとか思わないものね！わたしも思わない！絶対ヤッ！！*
 
@@ -80,81 +80,81 @@
 
 &nbsp;
 
-「学園内での行動に於いて、必要な良識は持つべきだと言っているのです。普段から、随分と傍若無人な行動が目立っている様ですが、貴女の言動は、間違いなくそこから外れています」
+I am saying that you should have the necessary decency in your behavior in the school. Your behavior is definitely out of line.
 
 *「学園内での行動に於いて、必要な良識は持つべきだと言っているのです。普段から、随分と傍若無人な行動が目立っている様ですが、貴女の言動は、間違いなくそこから外れています」*
 
-「……だからって、ソッチには関係無いんじないの？！」
+"Just because it's ...... doesn't mean it's any of Soc.'s business!"
 
 *「……だからって、ソッチには関係無いんじないの？！」*
 
-「見ているのは、わたくし共だけでは無いと言っているのです！」
+I'm telling you we're not the only ones watching!"
 
 *「見ているのは、わたくし共だけでは無いと言っているのです！」*
 
-「チッ！！」
+Tsk!"
 
 *「チッ！！」*
 
 &nbsp;
 
-うわっ、この子舌打ちしたよ？！
+Wow, this girl got tongue-tied, didn't she?
 
 *うわっ、この子舌打ちしたよ？！*
 
-ルゥリィ・ディートって子は、見た目だけで無く性格もキツそうだよね。ビキビキッて音が聞こえて来そうなほど顔が引き攣ってるよ？
+This girl Ruly Deet looks like she has a hard personality as well as looks. I can almost hear her face twitching, can't you?
 
 *ルゥリィ・ディートって子は、見た目だけで無く性格もキツそうだよね。ビキビキッて音が聞こえて来そうなほど顔が引き攣ってるよ？*
 
-コーディリア嬢大丈夫なのか？そんな子にケンカ売っちゃって？
+Miss Cordelia, are you all right? Selling a fight to a girl like that?
 
 *コーディリア嬢大丈夫なのか？そんな子にケンカ売っちゃって？*
 
-まぁ、コーディリア嬢も結構気が強そうだモンね。こういう人でないと、ああいう子とガチでやろうとは思わないよなー。
+Well, Miss Cordelia seems to be quite feisty, too. I don't think I'd want to be stiff with a girl like that unless she was someone like that.
 
 *まぁ、コーディリア嬢も結構気が強そうだモンね。こういう人でないと、ああいう子とガチでやろうとは思わないよなー。*
 
-わたしは思いっきり遠慮したい！
+I would like to refrain from doing so to the best of my ability!
 
 *わたしは思いっきり遠慮したい！*
 
 &nbsp;
 
-「……ねぇアレって、アムカムの……」
+"...... Hey, that thing is the ...... of AMCAM."
 
 *「……ねぇアレって、アムカムの……」*
 
-「あ、最大派閥の…………」
+Ah, ............ of the largest faction."
 
 *「あ、最大派閥の…………」*
 
-「すげぇな、この空気の中、堂々と入って行くぜ……」
+'Awesome, I'm going in with a bang in the air here ......'
 
 *「すげぇな、この空気の中、堂々と入って行くぜ……」*
 
-「うぉ！三強揃い踏みかよ」
+"Wow! Three in a Row!"
 
 *「うぉ！三強揃い踏みかよ」*
 
 &nbsp;
 
-待て待て待て待て、ちょっと待て！何だソレ？！誰さ？どいつだ？！好き勝手言ってンのはっ？！！
+Wait, wait, wait, wait, wait, wait, wait! What is that? Who is it? Who is it? Who are you to say what you want?
 
 *待て待て待て待て、ちょっと待て！何だソレ？！誰さ？どいつだ？！好き勝手言ってンのはっ？！！*
 
-最大派閥とか言うなし！
+Don't say the largest faction!
 
 *最大派閥とか言うなし！*
 
-大体！こんな空気耐えてませんけど？！堂々としてませんけどっ？！入って行ってませんけどぉぉっ！！
+Roughly! I don't endure this kind of air? I didn't go in there! I didn't go in there!
 
 *大体！こんな空気耐えてませんけど？！堂々としてませんけどっ？！入って行ってませんけどぉぉっ！！*
 
-ンでわたしを巻き込もうとするな！揃えるなっっ！！
+Don't try to drag me into this! Don't align with me!
 
 *ンでわたしを巻き込もうとするな！揃えるなっっ！！*
 
-ほらぁ！2人がこっちをジロリと睨んだじゃんよぉぉ！！
+Look at the two of them staring at us!
 
 *ほらぁ！2人がこっちをジロリと睨んだじゃんよぉぉ！！*
 
@@ -162,359 +162,359 @@
 
 &nbsp;
 
-もう！2人して沈黙しちゃって、チラチラとコチラに視線を送って来るしぃ！そういうのは止めて欲しいんですけどぉ。
+They were both silent and glanced at me! Please stop that kind of thing.
 
 *もう！2人して沈黙しちゃって、チラチラとコチラに視線を送って来るしぃ！そういうのは止めて欲しいんですけどぉ。*
 
-ルゥリィ嬢は、誰コイツ？的な胡散臭い物でも見る様な感じ。
+Miss Lurie was like looking at a stinker. She looks like she is looking at a stinky thing.
 
 *ルゥリィ嬢は、誰コイツ？的な胡散臭い物でも見る様な感じ。*
 
-で、コーディリア嬢は……ん？これは何か期待してる目？
+So, Miss Cordelia is ...... hmm? Are these the eyes you're expecting to see?
 
 *で、コーディリア嬢は……ん？これは何か期待してる目？*
 
-ンでコレが2人からだけで無く、周りに居る全員から『どう動く？』的な、探る様な目線が刺さってくるんですけど！これも止めて欲しいのよっ？！！
+And this is not only from the two of them, but from everyone around me, who are looking at me like "How do you want to play this? I'm getting probing looks from not only the two of them, but also from everyone around me, asking me how to move! I want you to stop this too!
 
 *ンでコレが2人からだけで無く、周りに居る全員から『どう動く？』的な、探る様な目線が刺さってくるんですけど！これも止めて欲しいのよっ？！！*
 
-わたしにどーしろって言うのさっ？！
+What do you want me to do?
 
 *わたしにどーしろって言うのさっ？！*
 
-あーーーーーーーっもうっっ！！
+Aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaah!
 
 *あーーーーーーーっもうっっ！！*
 
 &nbsp;
 
-「……皆さん、どうかされました、か？」
+"...... how can I help you all?"
 
 *「……皆さん、どうかされました、か？」*
 
 &nbsp;
 
-ニッコリ笑いながら、空気も読まない体で聞いてやったわさ！！
+I smiled and listened with a body that didn't even read the air!
 
 *ニッコリ笑いながら、空気も読まない体で聞いてやったわさ！！*
 
-どうとでもなれだわよっ！！
+I don't care what you do!
 
 *どうとでもなれだわよっ！！*
 
 &nbsp;
 
-「……これは、ごきげんようクラウド様」
+"...... this is, Good day, Mr. Cloud."
 
 *「……これは、ごきげんようクラウド様」*
 
 &nbsp;
 
-お、コーディリア嬢がスッとこちらに身体を向けて、良い笑顔で朝の挨拶をしてくれたゾ。
+Miss Cordelia turned her body to me and greeted me in the morning with a nice smile.
 
 *お、コーディリア嬢がスッとこちらに身体を向けて、良い笑顔で朝の挨拶をしてくれたゾ。*
 
-今の今迄、醸し出していた剣呑な雰囲気など、どこ吹く風の変わり身の早さだ！
+The swarthy atmosphere he had been exuding up to this point was a breath of fresh air!
 
 *今の今迄、醸し出していた剣呑な雰囲気など、どこ吹く風の変わり身の早さだ！*
 
 &nbsp;
 
-「ごきげんようキャスパー様」
+Good day, Mr. Casper.
 
 *「ごきげんようキャスパー様」*
 
 &nbsp;
 
-わたしも負けずに、取って置きの笑顔でご挨拶をお返ししてみたりする。
+Not to be outdone, I try to return the greeting with a ready-made smile.
 
 *わたしも負けずに、取って置きの笑顔でご挨拶をお返ししてみたりする。*
 
 &nbsp;
 
-「まあ！わたくしの名前を憶えていて下さったのですね？！クラウド様！」
+Oh, my! You remember my name? Mr. Cloud!
 
 *「まあ！わたくしの名前を憶えていて下さったのですね？！クラウド様！」*
 
-「当然ですわキャスパー様。それで……、どうかされたのです、か？」
+Of course, Mr. Casper. So, ......, how can I help you?"
 
 *「当然ですわキャスパー様。それで……、どうかされたのです、か？」*
 
-「いえ、クラウド様がお気になさるほどの事ではございませんのよ？ほんの些末な事でございます」
+No, it's nothing to be concerned about, Mr. Cloud. It's just a trivial matter.
 
 *「いえ、クラウド様がお気になさるほどの事ではございませんのよ？ほんの些末な事でございます」*
 
-「そうなのですか？教室へ向かう廊下が埋まっておりましたので、わたくし、何事かあったのかと心配になってしまいました」
+I was worried that something had happened to me. The corridor leading to the classrooms was filled with people, and I was worried that something had happened to them.
 
 *「そうなのですか？教室へ向かう廊下が埋まっておりましたので、わたくし、何事かあったのかと心配になってしまいました」*
 
-「まあ！それでしたらクラウド様、どうぞこちらからお通り下さいませ」
+Well! In that case, Mr. Cloud, please come through here."
 
 *「まあ！それでしたらクラウド様、どうぞこちらからお通り下さいませ」*
 
 &nbsp;
 
-そう言ってコーディリア嬢とお付きの二人は、道を開ける様に一歩下がってくれた。
+With that, Miss Cordilia and her two attendants stepped back to clear the way.
 
 *そう言ってコーディリア嬢とお付きの二人は、道を開ける様に一歩下がってくれた。*
 
 &nbsp;
 
-なんじゃコリャ……。
+What the heck is that? .......
 
 *なんじゃコリャ……。*
 
 &nbsp;
 
-お嬢様同士の会話が、こんなにも流暢に出来ている事に、自分でも思わずドン引きだ。
+I can't help but be amazed at how fluent the young ladies are in conversation with each other.
 
 *お嬢様同士の会話が、こんなにも流暢に出来ている事に、自分でも思わずドン引きだ。*
 
-この、わたしの、すっかりハイソなお嬢的な言動は、如何なモンなんでしょか？
+How am I behaving like a totally sophisticated young lady?
 
 *この、わたしの、すっかりハイソなお嬢的な言動は、如何なモンなんでしょか？*
 
-咄嗟に被ったこの皮は、剝がれりゃしないないだろうか？と、実は内面では大汗ダラダラなワケでして……。
+I wondered if the skin I had put on on the spur of the moment would ever come off. I'm actually sweating profusely on the inside. ......
 
 *咄嗟に被ったこの皮は、剝がれりゃしないないだろうか？と、実は内面では大汗ダラダラなワケでして……。*
 
 &nbsp;
 
-とりあえず、まだ皮は剥がれていない様だ。
+At any rate, the skin doesn't seem to have peeled off yet.
 
 *とりあえず、まだ皮は剥がれていない様だ。*
 
-まあ、この辺の事を厳しく仕込んでくれたのはビビとアンナメリーなんだけど、そんな簡単に剥がれてたら、二人に顔向けが出来ないよね。
+Well, Bibi and AnnaMarie were the ones who strictly trained me in this area, but if I peeled off that easily, I wouldn't be able to face them.
 
 *まあ、この辺の事を厳しく仕込んでくれたのはビビとアンナメリーなんだけど、そんな簡単に剥がれてたら、二人に顔向けが出来ないよね。*
 
-っていうか、剥がれでもしたら、その後の二人の顔を想像すると、とてもじゃないけど怖くて簡単に剝がす訳にはイカンのですよっ！
+I mean, I'm afraid to imagine the faces of the two of them afterwards if it comes off, but I'm too scared to easily peel it off!
 
 *っていうか、剥がれでもしたら、その後の二人の顔を想像すると、とてもじゃないけど怖くて簡単に剝がす訳にはイカンのですよっ！*
 
 &nbsp;
 
-そんな葛藤を抱えての、覚悟の参戦だったのだけど……、コーディリア嬢は、思った以上にコチラに好意的に対応してくれた？
+With such conflicts in mind, I was prepared to participate in the event. ......, but Miss Cordelia responded more favorably to me than I thought she would.
 
 *そんな葛藤を抱えての、覚悟の参戦だったのだけど……、コーディリア嬢は、思った以上にコチラに好意的に対応してくれた？*
 
 &nbsp;
 
-「ちょっと！どう言う事よ？！ウチラには全然譲らなかったクセに！なんでソイツにはすんなり譲ってんのよ？！！」
+Hey, what's going on? What do you mean? You didn't give it to us at all! Why did you give it to him so easily?
 
 *「ちょっと！どう言う事よ？！ウチラには全然譲らなかったクセに！なんでソイツにはすんなり譲ってんのよ？！！」*
 
-「先程からわたくし、『道理』と言う物を教えて差し上げておりました。それはつまりこう云う事を言っておりますの」
+I have been teaching you the word 'reason' for a while now. I have been telling you about 'reason' for a while now, and what I mean by that is this.
 
 *「先程からわたくし、『道理』と言う物を教えて差し上げておりました。それはつまりこう云う事を言っておりますの」*
 
-「なに言ってんだか分んないんですけどっっ？！！」
+I don't know what you're talking about!
 
 *「なに言ってんだか分んないんですけどっっ？！！」*
 
 &nbsp;
 
-食ってかかって来たルゥリィ嬢に、更に燃料投下してるよこの人！
+This guy is throwing more fuel on Miss Lurie who came to bite him!
 
 *食ってかかって来たルゥリィ嬢に、更に燃料投下してるよこの人！*
 
-で、その燃料ってのがわたしです！！ぃいやぁーー！
+And that fuel is me! Yeeeeeaaaahhh!
 
 *で、その燃料ってのがわたしです！！ぃいやぁーー！*
 
-ルゥリィ嬢、メッチャ切れてるやん！
+Miss Lurie, you're all cut up!
 
 *ルゥリィ嬢、メッチャ切れてるやん！*
 
-そりゃ今迄の自分への態度に対して、わたしへの対応が180度真逆だもんね！気持ちは分からんでも無いけどね！
+Of course, his attitude toward me is 180 degrees opposite to the way he has treated himself up to now! I don't know how you feel, though!
 
 *そりゃ今迄の自分への態度に対して、わたしへの対応が180度真逆だもんね！気持ちは分からんでも無いけどね！*
 
-だからってそうやって、わたしまで睨むのは止めて欲しいンですけどー！！
+But I don't want you to stare at me like that!
 
 *だからってそうやって、わたしまで睨むのは止めて欲しいンですけどー！！*
 
 &nbsp;
 
-何なのコイツわーっ！とか言いながら、シャーーーっとばかりに、わたしに向かって睨みつけて来るルゥリィ嬢の耳に、取り巻きの一人が、ボソボソっと一言二言なにやら呟いた様だ。
+What is this guy? One of her cronies seemed to mutter a few words or two into Miss Ruly's ear as she glared at me, as if to say, "What the hell is this guy?
 
 *何なのコイツわーっ！とか言いながら、シャーーーっとばかりに、わたしに向かって睨みつけて来るルゥリィ嬢の耳に、取り巻きの一人が、ボソボソっと一言二言なにやら呟いた様だ。*
 
 &nbsp;
 
-「は？アムカム？……最大派閥？」
+What's the word? Amcam? ...... largest faction?"
 
 *「は？アムカム？……最大派閥？」*
 
-「……クラウド？コイツが？」
+I'm thinking, "...... cloud? This guy?"
 
 *「……クラウド？コイツが？」*
 
 &nbsp;
 
-ルゥリィ嬢が、取り巻きの子に耳打ちされながら、わたしを見てブツブツと何かを確かめる様に、その子に聞き返していた。
+Miss Lurie was listening to her cronies, looking at me and mumbling back and forth as if to confirm something.
 
 *ルゥリィ嬢が、取り巻きの子に耳打ちされながら、わたしを見てブツブツと何かを確かめる様に、その子に聞き返していた。*
 
-だから、そういう胡乱な目付きで人を見るのは、出来ればやめて欲しい。
+So, please don't look at people with that kind of stern look in your eyes if you can help it.
 
 *だから、そういう胡乱な目付きで人を見るのは、出来ればやめて欲しい。*
 
-わたしは確かにアムカムのクラウドですけど、最大派閥でも何でもないですからね！
+I am certainly a cloud of Amcam, but I am not the largest faction or anything!
 
 *わたしは確かにアムカムのクラウドですけど、最大派閥でも何でもないですからね！*
 
 &nbsp;
 
-それにしてもこの子、よく見るとちょっと派手？だよね……。薄くお化粧してる？襟元もちょっと緩めてるよね？スカートも幾分短くないか？！
+But still, is this girl a bit gaudy when you look at her closely? It's ....... Is she wearing light makeup? Is her collar a little loose too? Is her skirt a little short too?
 
 *それにしてもこの子、よく見るとちょっと派手？だよね……。薄くお化粧してる？襟元もちょっと緩めてるよね？スカートも幾分短くないか？！*
 
-確かに、コーディリア嬢に何か言われちゃうのもしょうがないな？この学校の子としては、ちょいと尖がってますものね……。
+Surely, I can't help but wonder what Miss Cordelia would have to say about that? She's a bit sharp for a kid from this school. ......
 
 *確かに、コーディリア嬢に何か言われちゃうのもしょうがないな？この学校の子としては、ちょいと尖がってますものね……。*
 
-でも、こんなの寮監様に見つかったら、確実にアウトだと思うんだけどな？寮を出てからやってるのかな？
+But if the dorm supervisor finds out I'm doing this, I'm sure I'm out, right? Do they do this after they leave the dorm?
 
 *でも、こんなの寮監様に見つかったら、確実にアウトだと思うんだけどな？寮を出てからやってるのかな？*
 
-だとしたら、隠れて頑張ってるのかなー、と思わなくも無いけれど、でも……ねぇ？
+If so, I can't help but wonder if they're doing a good job of hiding, but I'm not sure... but ...... hey?
 
 *だとしたら、隠れて頑張ってるのかなー、と思わなくも無いけれど、でも……ねぇ？*
 
 &nbsp;
 
-まぁ、なんて言うか、この子はギャルっぽい？って事なんだろか？この世界に『ギャル』ってのが居るかは知らんけど！
+Well, what can I say, this girl is kind of gal-ish? I don't know if there is such a thing as a "gal" in this world! I don't know if there is such a thing as a "gyaru" in this world!
 
 *まぁ、なんて言うか、この子はギャルっぽい？って事なんだろか？この世界に『ギャル』ってのが居るかは知らんけど！*
 
 &nbsp;
 
-「……カレン？」
+"...... Karen?"
 
 *「……カレン？」*
 
-「！！」
+!!!"
 
 *「！！」*
 
 &nbsp;
 
-わたしを睨みつけていたルゥリィ嬢が、わたしの後ろにいるカレンを見つけ、驚いた様に声を上げた。
+Miss Lurie, who had been staring at me, spotted Karen behind me and shouted in surprise.
 
 *わたしを睨みつけていたルゥリィ嬢が、わたしの後ろにいるカレンを見つけ、驚いた様に声を上げた。*
 
-カレンもその声を聴いて、ビクリと身体が小さく跳ねたのが分かった。
+Karen also heard the voice and felt a small jump in her body.
 
 *カレンもその声を聴いて、ビクリと身体が小さく跳ねたのが分かった。*
 
-うん？やっぱりこのルゥリィ嬢と、カレンは面識がありそうだな。
+Hm? I knew that this Miss Lurie and Karen seem to know each other.
 
 *うん？やっぱりこのルゥリィ嬢と、カレンは面識がありそうだな。*
 
 &nbsp;
 
-「ちょっと！アンタ、なんでそんなトコに居るのさ？！ねぇ？！！」
+"Hey! Why are you in there? Hey!
 
 *「ちょっと！アンタ、なんでそんなトコに居るのさ？！ねぇ？！！」*
 
-「……」
+"......"
 
 *「……」*
 
 &nbsp;
 
-ン？
+Hmm?
 
 *ン？*
 
 &nbsp;
 
-「何で、そんなトコに隠れてんのかって聞いてんだけど？！」
+Why are you hiding in there?
 
 *「何で、そんなトコに隠れてんのかって聞いてんだけど？！」*
 
-「！……」
+"! ......"
 
 *「！……」*
 
 &nbsp;
 
-ンン？
+Hmm?
 
 *ンン？*
 
 &nbsp;
 
-「ちょっと！聞こえてんでしょうが？！答えなさいよ！カレン！！」
+Hey! I know you can hear me! Answer me! Karen!
 
 *「ちょっと！聞こえてんでしょうが？！答えなさいよ！カレン！！」*
 
 &nbsp;
 
-おいヲい……。
+Hey woi. .......
 
 *おいヲい……。*
 
 &nbsp;
 
-どういう訳かこの子は、ウチのカレンに威圧なんざをかけて来おる。
+For some reason, this girl is trying to intimidate my Karen.
 
 *どういう訳かこの子は、ウチのカレンに威圧なんざをかけて来おる。*
 
-ちょっとこうなって来ると、わたしとしては見過ごす訳には行かないな。
+I can't just overlook it.
 
 *ちょっとこうなって来ると、わたしとしては見過ごす訳には行かないな。*
 
 &nbsp;
 
-わたしはスッと、カレンとルゥリィ嬢の間に自分の身体を差し込んで、彼女の目からカレンを隠した。
+I quickly inserted myself between Karen and Miss Lurie, hiding Karen from her eyes.
 
 *わたしはスッと、カレンとルゥリィ嬢の間に自分の身体を差し込んで、彼女の目からカレンを隠した。*
 
-ルゥリィ嬢は、驚いた様なわたしを見るが、わたしはとにかく笑顔を崩さない様に努め、ルゥリィ嬢を静かに見つめる。
+Miss Lurie looks at me surprised, but I try not to lose my smile and look at her quietly.
 
 *ルゥリィ嬢は、驚いた様なわたしを見るが、わたしはとにかく笑顔を崩さない様に努め、ルゥリィ嬢を静かに見つめる。*
 
 &nbsp;
 
-「な、なによ？」
+What?
 
 *「な、なによ？」*
 
 &nbsp;
 
-カレンに向かい、足を踏み出そうとしたタイミングでわたしが動いたので、ルゥリィ嬢は出鼻をくじかれ、たたらを踏んだ様になった。
+I moved just as she was about to step out to face Karen, and Miss Lurie was caught off guard and looked like she was playing a trick.
 
 *カレンに向かい、足を踏み出そうとしたタイミングでわたしが動いたので、ルゥリィ嬢は出鼻をくじかれ、たたらを踏んだ様になった。*
 
-ルゥリィ嬢は、そのままわたしを睨みつけて来たけど、幸いな事に、それ以上前へ進み出ようとはしなかった。
+Miss Lurie glared at me, but fortunately, she did not try to move forward any further.
 
 *ルゥリィ嬢は、そのままわたしを睨みつけて来たけど、幸いな事に、それ以上前へ進み出ようとはしなかった。*
 
 &nbsp;
 
-さてさて、このまま引いてくれれば嬉しいんだけど、そうも行かないんだろうなぁ……。まだコッチ睨んでるし。
+Now, I'd be happy if it would just pull back, but I guess that's not going to happen. ...... I'm still staring at Koch.
 
 *さてさて、このまま引いてくれれば嬉しいんだけど、そうも行かないんだろうなぁ……。まだコッチ睨んでるし。*
 
-あんまり事を荒げたくないんだけど……、どうしたもんかね。
+I don't want to make things too much worse, but ......, I don't know what's going on.
 
 *あんまり事を荒げたくないんだけど……、どうしたもんかね。*
 
 &nbsp;
 
-「ちょっとカレン！アンタこんなコソコソしてて、タダで済むと思ってんの？！！」
+I'll tell you what, Karen! You think you can get away with this sneaking around for free?
 
 *「ちょっとカレン！アンタこんなコソコソしてて、タダで済むと思ってんの？！！」*
 
 &nbsp;
 
-お゛お゛？何だコイツ？
+"Oh-oh-oh-oh-oh? What's this guy?
 
 *お゛お゛？何だコイツ？*
 
-この期に及んで、まだ更にカレンを威嚇するような物言いするのか？コノヤロぉ…………。
+At this stage of the game, are you still trying to intimidate Karen even more? You are a liar. ............
 
 *この期に及んで、まだ更にカレンを威嚇するような物言いするのか？コノヤロぉ…………。*
 
@@ -528,75 +528,75 @@
 
 &nbsp;
 
-「これはスージィ様、こんな所で何かございましたか？」
+This is Mr. Suzy, what's going on here?"
 
 *「これはスージィ様、こんな所で何かございましたか？」*
 
 &nbsp;
 
-と、そこに唐突に後ろから声をかけて来る者がいた。
+And then, suddenly, someone called out to me from behind.
 
 *と、そこに唐突に後ろから声をかけて来る者がいた。*
 
-ビビこと、ベアトリスさんである。
+This is Beatrice, aka Bibi.
 
 *ビビこと、ベアトリスさんである。*
 
-そんで、お待たせしましたって感じの、おすました顔でわたしの左脇に立って来る。
+Then, he comes to stand by my left side with a composed look on his face, as if to say, "Sorry to keep you waiting.
 
 *そんで、お待たせしましたって感じの、おすました顔でわたしの左脇に立って来る。*
 
-ミアも一緒にやって来て、私の右側に立った。
+Mia came with me and stood to my right.
 
 *ミアも一緒にやって来て、私の右側に立った。*
 
 &nbsp;
 
-さっきから二人が近くで様子を見てたのは、気配があったから分かってたんだけど、出て来るならもう少し早く来て欲しいよね！
+I knew the two of them had been watching me nearby earlier because I had a feeling they were there, but if they were going to come out, they should have come a little sooner!
 
 *さっきから二人が近くで様子を見てたのは、気配があったから分かってたんだけど、出て来るならもう少し早く来て欲しいよね！*
 
-なんでこんな狙いすましたタイミングで出て来るかな！もう！
+Why do they come out at such a targeted time? Already!
 
 *なんでこんな狙いすましたタイミングで出て来るかな！もう！*
 
 &nbsp;
 
-でもこれで、ルゥリィ嬢からはカレンはもう見えないだろう。鉄壁なアムカムガードの展開だね！
+But now Miss Lurie will no longer see Karen. That's an ironclad amcam guard development!
 
 *でもこれで、ルゥリィ嬢からはカレンはもう見えないだろう。鉄壁なアムカムガードの展開だね！*
 
 &nbsp;
 
-それにしても、やっぱりビビに『スージィ様』とか言われると、くすぐったくてしょうがない！
+Still, I was still tickled when Bibi called me "Suzy-sama!
 
 *それにしても、やっぱりビビに『スージィ様』とか言われると、くすぐったくてしょうがない！*
 
-この、外面展開への切り替えの良さは流石だと思う。
+I think this switch to external development is quintessential.
 
 *この、外面展開への切り替えの良さは流石だと思う。*
 
 &nbsp;
 
-この辺は、コリンから前もって「身内だけで話している分には構わないけど、他の生徒の目がある場所では、言葉遣いはちゃんとなさい」と、指導されていたからね。
+Colin had instructed me in advance that it was fine to talk with other students in private, but I had to use proper language when other students were watching.
 
 *この辺は、コリンから前もって「身内だけで話している分には構わないけど、他の生徒の目がある場所では、言葉遣いはちゃんとなさい」と、指導されていたからね。*
 
-なので、ビビもミアも、教室や、ラウンジとか身内しかいない場所以外では、基本わたしの事を『様付け』で呼んでいたりする。これが実にくすぐったい！
+Therefore, both Bibi and Mia call me by "sir" when we are not in the classroom, lounge, or other places where only their relatives are present. This really tickles me!
 
 *なので、ビビもミアも、教室や、ラウンジとか身内しかいない場所以外では、基本わたしの事を『様付け』で呼んでいたりする。これが実にくすぐったい！*
 
-逆にわたしも、先輩であるコリンやダーナを呼ぶときは、『様』を付けて呼んでいるのだけどね。
+On the other hand, when I call Colin and Dana, who are my seniors, I call them with a "sama" (like "sir").
 
 *逆にわたしも、先輩であるコリンやダーナを呼ぶときは、『様』を付けて呼んでいるのだけどね。*
 
 &nbsp;
 
-コリン相手に様を付ける分にはまだ良いんだけど、これがダーナやカーラ相手だと、『様』を付ける事に、違和感が半端なく仕事をしてくる。
+It's still fine to add "Sama" to Colin, but when it comes to Dana and Kara, it's a very uncomfortable feeling to add "Sama" to their work.
 
 *コリン相手に様を付ける分にはまだ良いんだけど、これがダーナやカーラ相手だと、『様』を付ける事に、違和感が半端なく仕事をしてくる。*
 
-それを横から聞いてて、堪え切れずに噴き出すアーヴィンの事を、この時ばかりは責められなかった。その後、ダーナとカーラにタコ殴られてたけどね！
+I couldn't blame Irving for this one time, as he was listening to it from the side and gushing unbearably. Afterwards, though, Dana and Carla taco-knocked him over the head!
 
 *それを横から聞いてて、堪え切れずに噴き出すアーヴィンの事を、この時ばかりは責められなかった。その後、ダーナとカーラにタコ殴られてたけどね！*
 
@@ -604,173 +604,173 @@
 
 &nbsp;
 
-2人がわたしの両サイドへ立った事で、息を巻いていたルゥリィ嬢も、いくらかは怯んだのか口を噤んでしまった。
+The two of them stood on either side of me, and even Miss Lurie, who was breathing hard, was somewhat intimidated and kept her mouth shut.
 
 *2人がわたしの両サイドへ立った事で、息を巻いていたルゥリィ嬢も、いくらかは怯んだのか口を噤んでしまった。*
 
-隣にいた取り巻きの子が、そこへ何かを耳打ちをしている。
+The crony kid next to me is overhearing something there.
 
 *隣にいた取り巻きの子が、そこへ何かを耳打ちをしている。*
 
 &nbsp;
 
-「まずいよルゥリィ、こいつ主席入学者だ」
+"Oh, no, Lurie, he's the head of the class."
 
 *「まずいよルゥリィ、こいつ主席入学者だ」*
 
-「もうひとりのデカいのは、魔力量が学年一だって言ってた」
+The other big one said he had the most magic power in his grade.
 
 *「もうひとりのデカいのは、魔力量が学年一だって言ってた」*
 
-「……チッ」
+"...... tch."
 
 *「……チッ」*
 
 &nbsp;
 
-うわ、また盛大に舌打ちしたよ、この子！だから人前ではそういうの止めなさいって、女の子なんだからさ！
+Ugh, I got a big tongue lashing again, this girl! I told her to stop that kind of thing in public, she's a girl!
 
 *うわ、また盛大に舌打ちしたよ、この子！だから人前ではそういうの止めなさいって、女の子なんだからさ！*
 
-ンでどうやら取り巻きの子達は、ビビとミアの事を知っていた様だ。結構情報通なのかな？
+So, it seems that the kids around me knew about Bibi and Mia. Are they pretty well-informed?
 
 *ンでどうやら取り巻きの子達は、ビビとミアの事を知っていた様だ。結構情報通なのかな？*
 
-それにしても『デカい』とは何に対しての事なのか？ちょっと問い詰めてみたい所ではあるね！
+But what do you mean by "big"? I'd like to ask him!
 
 *それにしても『デカい』とは何に対しての事なのか？ちょっと問い詰めてみたい所ではあるね！*
 
 &nbsp;
 
-「いいわ、別に無理にそこを通りたい訳じゃないし！……教室に戻るわよ！」
+'Fine, I don't really want to force my way through there! I'm going back to ...... classroom!"
 
 *「いいわ、別に無理にそこを通りたい訳じゃないし！……教室に戻るわよ！」*
 
 &nbsp;
 
-そう言って、取り巻きの二人を連れて、その場で後ろを向いて歩き去ってしまった。
+With that, he turned around and walked away with his two cronies.
 
 *そう言って、取り巻きの二人を連れて、その場で後ろを向いて歩き去ってしまった。*
 
-そういえば、彼女たちの教室もこの先なんだけど、どこかに向かおうとしてたのかな？まあ今となってはどうでも良い事だけど。
+Come to think of it, their classroom is just down the road, too, and I wonder where they were headed? Well, it doesn't really matter now.
 
 *そういえば、彼女たちの教室もこの先なんだけど、どこかに向かおうとしてたのかな？まあ今となってはどうでも良い事だけど。*
 
-……でも、去り際にカレンに向け、鋭くひと睨み送っていたのは頂けない。ウン、頂けないねあれは。
+I don't like the way he glanced sharply at Karen as he was leaving, even if it was ....... Yeah, that was not good.
 
 *……でも、去り際にカレンに向け、鋭くひと睨み送っていたのは頂けない。ウン、頂けないねあれは。*
 
-それまでシンと静まり返って、周りで傍観していた生徒達からも、ざわめきが広がり始めていた。
+The room had been quiet and still, and a murmur began to spread from the students who had been watching from the sidelines around them.
 
 *それまでシンと静まり返って、周りで傍観していた生徒達からも、ざわめきが広がり始めていた。*
 
-なんか、口々にわたしの事を話している様な気がするが、気にしたら負けだと思うのでスルーしておこう！ウン、スルーだスルー！
+I feel like they are talking about me, but I think I'm losing if I pay attention to them, so I'll just let them pass! I'll just let it pass!
 
 *なんか、口々にわたしの事を話している様な気がするが、気にしたら負けだと思うのでスルーしておこう！ウン、スルーだスルー！*
 
 &nbsp;
 
-今はそんな事よりも、カレンのメンタルの方が心配だ。カレンは随分動揺していたはずだ。
+I'm more worried about Karen's mental health than about that right now. Karen must have been very upset.
 
 *今はそんな事よりも、カレンのメンタルの方が心配だ。カレンは随分動揺していたはずだ。*
 
 &nbsp;
 
-「カレン様……、大事はございませんか？」
+Dear Karen ......, is everything alright?"
 
 *「カレン様……、大事はございませんか？」*
 
-「……あ、は、はい、ご心配おかけして申し訳ございません」
+"......, ha, yes, I'm sorry for your concern."
 
 *「……あ、は、はい、ご心配おかけして申し訳ございません」*
 
 &nbsp;
 
-ほかの生徒達の目もあるので、今は二人とも余所行きの言葉使いだ。
+They are both using their own language now because of the eyes of the other students.
 
 *ほかの生徒達の目もあるので、今は二人とも余所行きの言葉使いだ。*
 
 &nbsp;
 
-わたしはカレンに手を伸ばし、大丈夫か聞いているのだけれど、カレンは目を伏せ、さっきからわたしの方を見ようとしてくれない。
+I reached out to her and asked her if she was okay, but she kept her eyes down and wouldn't look at me.
 
 *わたしはカレンに手を伸ばし、大丈夫か聞いているのだけれど、カレンは目を伏せ、さっきからわたしの方を見ようとしてくれない。*
 
-伸ばしたわたしの手も、何故か避けてしまう。
+I reached out my hand, but for some reason, he avoided my hand.
 
 *伸ばしたわたしの手も、何故か避けてしまう。*
 
-もう少し言葉をかけようとしたところで、横から声が飛んで来た。
+I was about to say a few more words when a voice came flying in from the side.
 
 *もう少し言葉をかけようとしたところで、横から声が飛んで来た。*
 
 &nbsp;
 
-「カレン・マーリン！いつまで呆けていらっしゃるの？！早く教室へお入りなさい！」
+Karen Marlin! How long are you going to stand there like a fool? Get in the classroom!
 
 *「カレン・マーリン！いつまで呆けていらっしゃるの？！早く教室へお入りなさい！」*
 
-「コ、……は、はい、キャスパー様」
+"Co, ......, yes, Mr. Casper."
 
 *「コ、……は、はい、キャスパー様」*
 
-「カレン様、また放課後に。お待ちしておりますね」
+Dear Karen, see you after school. I will be waiting for you."
 
 *「カレン様、また放課後に。お待ちしておりますね」*
 
-「は、はい、スージィ様。……失礼いたします」
+I'm sorry. Please excuse us at ......."
 
 *「は、はい、スージィ様。……失礼いたします」*
 
 &nbsp;
 
-コーディリア嬢の言葉にカレンは動き出し、わたし達に一礼すると、そのまま教室の中へ入って行った。
+At Miss Cordelia's words, Karen moved, bowed to us, and went straight into the classroom.
 
 *コーディリア嬢の言葉にカレンは動き出し、わたし達に一礼すると、そのまま教室の中へ入って行った。*
 
-教室に入るカレンを目で追っていると、ふと、こちらに向けられている視線を感じた。
+As I followed Karen into the classroom with my eyes, I suddenly felt a gaze directed toward me.
 
 *教室に入るカレンを目で追っていると、ふと、こちらに向けられている視線を感じた。*
 
-そちらに目を向ければ、そこにはコーディリア嬢がわたしを見つめ、姿勢を正して立っていた。
+I looked in that direction and saw Miss Cordilia standing there, staring at me, her posture straightened.
 
 *そちらに目を向ければ、そこにはコーディリア嬢がわたしを見つめ、姿勢を正して立っていた。*
 
-彼女はそのまま、わたしに向けて頭を下げて来た。
+She bowed her head toward me.
 
 *彼女はそのまま、わたしに向けて頭を下げて来た。*
 
 &nbsp;
 
-「わたくし共のクラスメイトを庇って頂き、ありがとうございました」
+Thank you for defending our classmates.
 
 *「わたくし共のクラスメイトを庇って頂き、ありがとうございました」*
 
-「いえ、カレン様はわたくしのルームメイトでもあります。当然の事です」
+No, Miss Cullen is my roommate, too. It's only natural."
 
 *「いえ、カレン様はわたくしのルームメイトでもあります。当然の事です」*
 
-「それでも、ありがとうございましたクラウド様」
+Still, thank you very much, Mr. Cloud."
 
 *「それでも、ありがとうございましたクラウド様」*
 
 &nbsp;
 
-そう言って、再び綺麗な姿勢で頭を下げると、彼女もまた、自分達の教室へと入って行った。
+With that, she bowed her head in a beautiful posture again and went into their classroom as well.
 
 *そう言って、再び綺麗な姿勢で頭を下げると、彼女もまた、自分達の教室へと入って行った。*
 
 &nbsp;
 
-今朝のこの短い時間で、コーディリア嬢に対する印象が、ずいぶん変わってしまったな。最初に会った時は、気が強い、プライドの高そうな子だと思っていたのだけれど、この子は正直で、ただ不器用なだけなのかもしれない……。
+In this short time this morning, my impression of Miss Cordelia has changed a lot. When I first met her, I thought she was a strong-willed, prideful girl, but this girl is honest and maybe just clumsy. ......
 
 *今朝のこの短い時間で、コーディリア嬢に対する印象が、ずいぶん変わってしまったな。最初に会った時は、気が強い、プライドの高そうな子だと思っていたのだけれど、この子は正直で、ただ不器用なだけなのかもしれない……。*
 
-カレンの事が気になるけど、コーディリア嬢なら悪い様にはしない気がする。
+I am concerned about Karen, but I have a feeling that Miss Cordilia would not make it look bad.
 
 *カレンの事が気になるけど、コーディリア嬢なら悪い様にはしない気がする。*
 
-放課後に会うまでに、少しでも落ち着いていてくれると嬉しいのだけれど……。
+I hope things have calmed down a bit by the time I see you after school. ......
 
 *放課後に会うまでに、少しでも落ち着いていてくれると嬉しいのだけれど……。*
 
@@ -788,247 +788,247 @@
 
 &nbsp;
 
-「全く！どうなる事かと思ったわよ！！」
+I thought, "Oh my God! I was afraid of what was going to happen!
 
 *「全く！どうなる事かと思ったわよ！！」*
 
 &nbsp;
 
-教室に入るなり、ビビが目を剝いてそんな風に言って来た。
+As soon as I entered the classroom, Bibi peeled her eyes and came to me like that.
 
 *教室に入るなり、ビビが目を剝いてそんな風に言って来た。*
 
-あれ？叱られた？え？結構上手く立ち回れてなかったかな？ちゃんと何事も無く終わったよね？
+Huh? Did he scold you? Huh? Didn't I behave pretty well? Everything ended without incident, right?
 
 *あれ？叱られた？え？結構上手く立ち回れてなかったかな？ちゃんと何事も無く終わったよね？*
 
-こんな勢いで叱られる程の事だった？
+Was it worth being scolded with such vigor?
 
 *こんな勢いで叱られる程の事だった？*
 
 &nbsp;
 
-「え？ぇ？ちゃ、ちゃんとお嬢様っぽく出来てたよね？よね？！」
+What? What? I was doing it like a lady, wasn't I? Right?
 
 *「え？ぇ？ちゃ、ちゃんとお嬢様っぽく出来てたよね？よね？！」*
 
-「そうじゃなくて！！あんな濃厚な殺気、冗談でも漏らすとかあり得ないでしょ！！」
+'That's not what I meant! There's no way you could have leaked that thick kill, even in jest!"
 
 *「そうじゃなくて！！あんな濃厚な殺気、冗談でも漏らすとかあり得ないでしょ！！」*
 
 &nbsp;
 
-はぁ？殺気って何？お嬢様的立ち回りの事じゃないの？
+Huh? What do you mean by "kill"? Don't you mean "ladylike stand-up"?
 
 *はぁ？殺気って何？お嬢様的立ち回りの事じゃないの？*
 
-大体何さ殺気って？いくら何でもそんなモン放つワケ無いじゃん！
+What do you mean, "deadly"? There's no way they would release such a thing!
 
 *大体何さ殺気って？いくら何でもそんなモン放つワケ無いじゃん！*
 
 &nbsp;
 
-「……その顔、無自覚って顔ね？！」
+"......, that's the face of unawareness, isn't it?"
 
 *「……その顔、無自覚って顔ね？！」*
 
-「無自覚も何も、出してないし！」
+I didn't even put it out there!"
 
 *「無自覚も何も、出してないし！」*
 
-「はぁ……、まあ僅かに滲み出てた程度だけど、ね！」
+Hah ......, well it was only a slight ooze, but hey!"
 
 *「はぁ……、まあ僅かに滲み出てた程度だけど、ね！」*
 
-「そうだよ、なんて言うか『あ、鍵開けた』って分かった感じ？」
+'Yeah, how do you say, like, "Oh, I know I've unlocked the door?"'
 
 *「そうだよ、なんて言うか『あ、鍵開けた』って分かった感じ？」*
 
 &nbsp;
 
-ミアまでが、ウンウンと頷きながらビビの言う事を肯定している。
+Even Mia nodded her head and affirmed what Bibi said.
 
 *ミアまでが、ウンウンと頷きながらビビの言う事を肯定している。*
 
-えぇ～？そうかぁ？ナニかが滲み出てたの？
+Oh, yeah? Really? Did something ooze out of you?
 
 *えぇ～？そうかぁ？ナニかが滲み出てたの？*
 
-確かに、ちょいとばかりムッとしたのは確かだけど…………出てた？
+Sure, I was a little peeved, but did you see ............?
 
 *確かに、ちょいとばかりムッとしたのは確かだけど…………出てた？*
 
 &nbsp;
 
-「まあ！あの位だったら、普通の子は気付かないでしょうけどね！でも！感度の良い人間なら、それなりに察知は出来ると思うわ！」
+Well! If it was that big, normal kids wouldn't even notice! But! I'm sure a sensitive person would be able to detect it!"
 
 *「まあ！あの位だったら、普通の子は気付かないでしょうけどね！でも！感度の良い人間なら、それなりに察知は出来ると思うわ！」*
 
-「スージィの威圧は、シャレにならないからな」
+Because Suzy's intimidation is no joke."
 
 *「スージィの威圧は、シャレにならないからな」*
 
 &nbsp;
 
-立ち合いの時は、それに克つのが最初の一歩だもんな！とか、傍で聞いていたアーヴィンまでが口を挟んで来た。
+When you're in a stand-up fight, conquering it is the first step, right? And even Irving, who was listening by my side, interrupted me.
 
 *立ち合いの時は、それに克つのが最初の一歩だもんな！とか、傍で聞いていたアーヴィンまでが口を挟んで来た。*
 
-えぇー？わたし立ち合いで、そんなハードル出してないし！
+What? I didn't put up such a hurdle in my presence!
 
 *えぇー？わたし立ち合いで、そんなハードル出してないし！*
 
 &nbsp;
 
-「いあ！でも大体にして立ち合いじゃ無いんだから、廊下で威圧なんかしない、よ？」
+I'm not intimidated in the hallway! But I'm not going to intimidate you in the hallway, because we're not in a standoff, okay?"
 
 *「いあ！でも大体にして立ち合いじゃ無いんだから、廊下で威圧なんかしない、よ？」*
 
-「アンタが本気で威圧したら、只じゃ済まないじゃない！だから気を付けなさいって言ってるの！」
+If you really intimidate me, you'll get away with a lot! That's why I told you to be careful!
 
 *「アンタが本気で威圧したら、只じゃ済まないじゃない！だから気を付けなさいって言ってるの！」*
 
-「そうだぞ、ビビの言うとおりだ！スージィが普通に威圧なんかしたら、その辺の人間なんて簡単に心臓麻痺起こすぞ？」
+Yes, Bibi is right! If Suzy were to intimidate a normal person, she could easily give that person a heart attack, right?"
 
 *「そうだぞ、ビビの言うとおりだ！スージィが普通に威圧なんかしたら、その辺の人間なんて簡単に心臓麻痺起こすぞ？」*
 
 &nbsp;
 
-うっわ！失礼！
+Oops! Excuse me!
 
 *うっわ！失礼！*
 
-アーヴィンってば、スッゴイ失礼な事言って来やがったわ！！
+Irving was so rude to me!
 
 *アーヴィンってば、スッゴイ失礼な事言って来やがったわ！！*
 
-いくらなんでもそこ迄じゃ無いでしょ？！ねぇ？！！
+It's not that far, is it? Right?
 
 *いくらなんでもそこ迄じゃ無いでしょ？！ねぇ？！！*
 
 &nbsp;
 
-…………あれ？え？なんで？何でみんなそんな目？
+............ Huh? Huh? Why? Why are you all looking at me like that?
 
 *…………あれ？え？なんで？何でみんなそんな目？*
 
-アーヴィンとビビだけじゃなく、何でミアやロンバートまで、薄く笑って遠い目をするの？
+Why do not only Irving and Bibi, but even Mia and Lombardo smile thinly and look far away?
 
 *アーヴィンとビビだけじゃなく、何でミアやロンバートまで、薄く笑って遠い目をするの？*
 
-え？何で？え？…………そ、そうなの？そうなんでつか？
+What? Why? What? ............ Is that so? Is that right?
 
 *え？何で？え？…………そ、そうなの？そうなんでつか？*
 
 &nbsp;
 
-「兎に角！アンタが威圧を放ちそうだったから、大慌だったんだからね！」
+I was in a panic because you were about to unleash your intimidation! I was in a panic because you were about to unleash your intimidation!"
 
 *「兎に角！アンタが威圧を放ちそうだったから、大慌だったんだからね！」*
 
 &nbsp;
 
-ビビは、わたしが殺気を漏らすまでは、陰からわたしのお嬢様対応の様子を観察しようとしていたらしい。
+Bibi was apparently trying to observe my handling of the young lady from the shadows until I let out a kill shot.
 
 *ビビは、わたしが殺気を漏らすまでは、陰からわたしのお嬢様対応の様子を観察しようとしていたらしい。*
 
-ちゃんとわたしが成長していて、一人でも対応できるか見守っていた、とビビさんは仰る。
+Bibi said he was watching to see if I had matured enough to handle the situation on my own.
 
 *ちゃんとわたしが成長していて、一人でも対応できるか見守っていた、とビビさんは仰る。*
 
-そんなモノ、見守らないで良いから、直ぐに助けに入って来てよ！
+You don't have to watch over that thing, just come in and help us right away!
 
 *そんなモノ、見守らないで良いから、直ぐに助けに入って来てよ！*
 
-だが、雲行きがヤバいと思い、急いでわたしの傍まで出て来たのだそうだ。
+However, he thought that the clouds were getting darker, so he hurried out to my side.
 
 *だが、雲行きがヤバいと思い、急いでわたしの傍まで出て来たのだそうだ。*
 
 &nbsp;
 
-「そりゃニコニコしてりゃ良いとは言ってたけどね！流石にアタシも、まさかアンタがニコニコしながら、あんな強烈に殺気を振りまこうとするとは思わなかったわよ！」
+I'm not sure if it's a good idea to be smiling or not, but it's good to be smiling! I didn't think you would try to kill me so hard while smiling!
 
 *「そりゃニコニコしてりゃ良いとは言ってたけどね！流石にアタシも、まさかアンタがニコニコしながら、あんな強烈に殺気を振りまこうとするとは思わなかったわよ！」*
 
-「ふ、振りまいてないけど？！で、でも、その……お、お手数をおかけしまし、た？」
+I'm not pretending! But, but, I'm ...... sorry to bother you?"
 
 *「ふ、振りまいてないけど？！で、でも、その……お、お手数をおかけしまし、た？」*
 
-「大体にして……、あんな小物相手に、アンタが真っ当に相手してやる必要なんて無いんだからね！正直！アタシが、『お里が知れるチンケな小物よね！』とか言ってやりたかったんだけどさ！！」
+In general, ......, there's no need for you to be straight with that little guy, you know! Frankly speaking! I wanted to say to him, 'You're a small, stupid, little thing who knows where he's coming from! I wanted to say something like that!
 
 *「大体にして……、あんな小物相手に、アンタが真っ当に相手してやる必要なんて無いんだからね！正直！アタシが、『お里が知れるチンケな小物よね！』とか言ってやりたかったんだけどさ！！」*
 
-「や、やめて！それは止めて！絶対に戦争になるから！！絶対に止めて、よ？！」
+Stop it! Don't do that! It'll definitely turn into a war! Don't do that, okay?
 
 *「や、やめて！それは止めて！絶対に戦争になるから！！絶対に止めて、よ？！」*
 
-「だから言っていないじゃないのさ！」
+I didn't tell you that!"
 
 *「だから言っていないじゃないのさ！」*
 
 &nbsp;
 
-ぅわぁ、なんだろ、ビビがケンカ売って、ルゥリィ嬢との口撃戦が展開される図が容易に想像できてしまうよ……。
+Oooh, what the heck, I can easily imagine Bibi putting up a fight and a verbal battle with Miss Lurie. ......
 
 *ぅわぁ、なんだろ、ビビがケンカ売って、ルゥリィ嬢との口撃戦が展開される図が容易に想像できてしまうよ……。*
 
 &nbsp;
 
-「まあ！あの小物連中はバカなだけでなく、相当鈍そうだったから、アンタの漏らした威圧なんて、てんで分りもしなかったでしょうけどね！」
+Well," he said, "not only were those little guys stupid, but they also seemed pretty slow! Those little guys were not only stupid, but they were so slow that they could not have understood the intimidation you let out!
 
 *「まあ！あの小物連中はバカなだけでなく、相当鈍そうだったから、アンタの漏らした威圧なんて、てんで分りもしなかったでしょうけどね！」*
 
-「それでも、分かる子には分かってたんじゃないかな？周りには顔色変ってた子、何人か居たよ？」
+But I think the kids who knew what they were talking about understood it. There were a couple of kids around me who had a different complexion, you know?"
 
 *「それでも、分かる子には分かってたんじゃないかな？周りには顔色変ってた子、何人か居たよ？」*
 
-「……そりゃそうね！この学校に入っているんだから、逆に居ない方がどうかしてるわね！」
+I'm sure you're right," he said! You're in this school, you'd be crazy not to be here!"
 
 *「……そりゃそうね！この学校に入っているんだから、逆に居ない方がどうかしてるわね！」*
 
 &nbsp;
 
-と、ミアの言葉を受けてビビが、ふむ、と考えるような素振りをしてから答えていた。
+And Bibi, in response to Mia's words, pretended to think, "Hmmm," before answering.
 
 *と、ミアの言葉を受けてビビが、ふむ、と考えるような素振りをしてから答えていた。*
 
 &nbsp;
 
-「兎に角！被れる物は被れるウチにシッカリ被って置きなさい！どうせ時間の問題だろうから！」
+Anyway...! Put on what you can while you can! It's only a matter of time!"
 
 *「兎に角！被れる物は被れるウチにシッカリ被って置きなさい！どうせ時間の問題だろうから！」*
 
 &nbsp;
 
-ビビが酷い事を言っている。
+Bibi is saying terrible things.
 
 *ビビが酷い事を言っている。*
 
-そこまでかぁ？と思い、周りに視線を巡らせば、ミアもアーヴィンもロンバートも、揃ってウンウンと頷いていた。
+Is that all there is to it? I looked around and saw Mia, Irving, and Lombardo all nodding their heads in agreement.
 
 *そこまでかぁ？と思い、周りに視線を巡らせば、ミアもアーヴィンもロンバートも、揃ってウンウンと頷いていた。*
 
-やっぱり皆がシドイ！シクシクシク……。
+Everyone is still shid! Sic sic sic sic .......
 
 *やっぱり皆がシドイ！シクシクシク……。*
 
 &nbsp;
 
-まあ、確かにいつ迄も猫を被ってられやしないのは、自分でも自覚はしておりますけどね！フンだ！
+Well, I am aware of the fact that I can't keep wearing a cat's mask forever, though! Hmmm!
 
 *まあ、確かにいつ迄も猫を被ってられやしないのは、自分でも自覚はしておりますけどね！フンだ！*
 
 &nbsp;
 
-そんな事よりも、今はカレンの事だ。
+It's not about that, it's about Karen now.
 
 *そんな事よりも、今はカレンの事だ。*
 
-ルゥリィ嬢の、カレンへの態度が気掛かりなのだ。
+I am concerned about Miss Lurie's attitude toward Karen.
 
 *ルゥリィ嬢の、カレンへの態度が気掛かりなのだ。*
 
-……やっぱり、ニヴン家の次男の事も含めて、グルースミルの事は少し調べておくべきだな。
+...... I should still do a little research on Grouse Mill, including the second son of the Niven family.
 
 *……やっぱり、ニヴン家の次男の事も含めて、グルースミルの事は少し調べておくべきだな。*
 
@@ -1054,167 +1054,167 @@
 
 &nbsp;
 
-「ど、ど、ど、どうしましょう？！怒ってた？怒ってらしたわよね？！」
+What should I do? Were you angry? You were angry, weren't you?
 
 *「ど、ど、ど、どうしましょう？！怒ってた？怒ってらしたわよね？！」*
 
-「落ち着いて下さいコーディリア様！大丈夫です、コーディリア様にお怒りを向けていた訳ではありませんから」
+I'm sure you'll be able to relax, Miss Cordilia! Don't worry, I wasn't directing my anger at you."
 
 *「落ち着いて下さいコーディリア様！大丈夫です、コーディリア様にお怒りを向けていた訳ではありませんから」*
 
-「でも、でも！わたくし、あんな押し付けるような事してしまいましたし……」
+But, but! I've done such a pushy thing and ......"
 
 *「でも、でも！わたくし、あんな押し付けるような事してしまいましたし……」*
 
-「大丈夫です！そんな事は気にしてお出ででは無いです！……多分」
+It's all right! We are not here to worry about such things! ...... maybe."
 
 *「大丈夫です！そんな事は気にしてお出ででは無いです！……多分」*
 
-「ああ！やっぱり！やっぱり？！」
+I knew it! I knew it! I knew it!
 
 *「ああ！やっぱり！やっぱり？！」*
 
 &nbsp;
 
-教室に入ってからずっと、落着きを無くしているコーディリアを諫めようと、ルシールは尽力していた。
+Lucille had been trying her best to admonish Cordelia, who had been losing her composure ever since she entered the classroom.
 
 *教室に入ってからずっと、落着きを無くしているコーディリアを諫めようと、ルシールは尽力していた。*
 
-廊下であった第2組の女子グループとの衝突を、成り行きで第1組のクラウド嬢が引き受けてくれた形になったのだが、その時に彼女が漏らした怒気に中てられて、この始末である。
+The first group's Miss Cloud took care of the clash with the second group of girls in the hallway, and the angry atmosphere she let out at that time led to this mess.
 
 *廊下であった第2組の女子グループとの衝突を、成り行きで第1組のクラウド嬢が引き受けてくれた形になったのだが、その時に彼女が漏らした怒気に中てられて、この始末である。*
 
-確かに彼女が発した怒気からは、自分達が温室育ちである事を叩き付けられ、思い知らされた様な気にさせられた。
+Indeed, the angry tone she emitted made us feel as if we had been hit and reminded of the fact that we had been raised in a greenhouse.
 
 *確かに彼女が発した怒気からは、自分達が温室育ちである事を叩き付けられ、思い知らされた様な気にさせられた。*
 
-ちょいとばかり、コーディリアが落ち着きを無くすのも無理は無い。
+No wonder Cordelia was a bit restless.
 
 *ちょいとばかり、コーディリアが落ち着きを無くすのも無理は無い。*
 
 &nbsp;
 
-あの怒りの波動を、第2組のルゥリィ・ディート嬢とその仲間は、何とも感じなかったのだろうか？
+Did Miss Lurie Diet and her friends of the second group feel nothing of that surge of anger?
 
 *あの怒りの波動を、第2組のルゥリィ・ディート嬢とその仲間は、何とも感じなかったのだろうか？*
 
-それとも、あの程度の怒りでは、問題に成らない程の耐性を持っているという事か？
+Or is it that they have such a high tolerance for that level of anger that it doesn't matter?
 
 *それとも、あの程度の怒りでは、問題に成らない程の耐性を持っているという事か？*
 
-……いや、さすがにそれは無いか。
+...... No, that's as good as it gets.
 
 *……いや、さすがにそれは無いか。*
 
-動揺を懸命に押さえ込もうとしているコーディリアとは別に、横に居るもう一人の付き人、自分の従妹の様子を横目で見ながら、『それは無いな』、と首を振る。
+Apart from Cordelia, who is trying hard to suppress her agitation, he looks sideways at his cousin, the other valet beside him, and shakes his head, "I don't think so.
 
 *動揺を懸命に押さえ込もうとしているコーディリアとは別に、横に居るもう一人の付き人、自分の従妹の様子を横目で見ながら、『それは無いな』、と首を振る。*
 
-大体にして、あんな一番近くで発せられたのに、何も感じなかったなんてあり得るだろうか？
+In general, how is it possible that I didn't feel anything when it was uttered so close to me?
 
 *大体にして、あんな一番近くで発せられたのに、何も感じなかったなんてあり得るだろうか？*
 
-きっと彼女達は途轍もなく鈍感なのだな……間違いない！とルシール・ムーアはこの件に結論付けた。
+I'm sure they are tremendously insensitive ...... no doubt! and Lucille Moore concluded on this matter.
 
 *きっと彼女達は途轍もなく鈍感なのだな……間違いない！とルシール・ムーアはこの件に結論付けた。*
 
 &nbsp;
 
-自分の横に立っている従妹のキャサリン・ムーアに目をやれば、彼女たちが鈍感の極みだと云う事くらい、直ぐに分かると言う物だ。
+If you look at my cousin Catherine Moore standing beside me, you can easily see that they are the epitome of insensitivity.
 
 *自分の横に立っている従妹のキャサリン・ムーアに目をやれば、彼女たちが鈍感の極みだと云う事くらい、直ぐに分かると言う物だ。*
 
 &nbsp;
 
-キャサリンはルシールの横で物も言わず、いつものクールな無表情を維持しようと必死になりながらも、その眼には涙を湛え、全身がカタカタと小刻みに震え続けていた。
+Catherine didn't say a word beside Lucille, struggling to maintain her usual cool expressionless face, but her eyes were filled with tears, and her whole body kept shaking and shaking in small increments.
 
 *キャサリンはルシールの横で物も言わず、いつものクールな無表情を維持しようと必死になりながらも、その眼には涙を湛え、全身がカタカタと小刻みに震え続けていた。*
 
-どれだけ動揺してんのよ！とルシールは突っ込みを入れたくなるが、……しょうがない。
+How upset are you? Lucille wanted to rush in, but ...... couldn't help it.
 
 *どれだけ動揺してんのよ！とルシールは突っ込みを入れたくなるが、……しょうがない。*
 
-あれでいて、キャサリンは感性が中々に鋭い。恐らくは、このクラスの誰よりも鋭い感性を持っていると、ルシールは常々思っていたのだ。
+And yet, Catherine has a moderately keen sensibility. Lucille had always thought that she probably had the sharpest sensibility of anyone in this class.
 
 *あれでいて、キャサリンは感性が中々に鋭い。恐らくは、このクラスの誰よりも鋭い感性を持っていると、ルシールは常々思っていたのだ。*
 
-それがこんな状態に陥るとは……。
+I didn't realize it would be in this state. ......
 
 *それがこんな状態に陥るとは……。*
 
 &nbsp;
 
-「大丈夫ですかキャサリン。保健室まで付き添いましょうか？」
+Are you all right, Catherine? Would you like me to escort you to the infirmary?"
 
 *「大丈夫ですかキャサリン。保健室まで付き添いましょうか？」*
 
-「だ、だ、だ、だ、だいじょじょじょぶぶ、で、ですルルルルシールルルル」
+
 
 *「だ、だ、だ、だ、だいじょじょじょぶぶ、で、ですルルルルシールルルル」*
 
-「あ、話さなくてイイです。無理に話さなくて良いですから」
+I said, "Oh, you don't have to talk. You don't have to talk.
 
 *「あ、話さなくてイイです。無理に話さなくて良いですから」*
 
 &nbsp;
 
-唇をキュッと結んで、小さく首を縦に振るキャサリン。
+Catherine purses her lips and gives a small shake of her head.
 
 *唇をキュッと結んで、小さく首を縦に振るキャサリン。*
 
-自分達は、かなり間近で怒気に中てられたのだから無理も無い、とルシールは思う。
+It's not surprising, Lucille thinks, since they themselves were angered by the rage quite up close and personal.
 
 *自分達は、かなり間近で怒気に中てられたのだから無理も無い、とルシールは思う。*
 
-実際自分もキャサリン程では無いが、あの一瞬、身動きが取れなくなっていたのだから。
+In fact, I was stuck for that moment, though not as stuck as Catherine.
 
 *実際自分もキャサリン程では無いが、あの一瞬、身動きが取れなくなっていたのだから。*
 
 &nbsp;
 
-他にも何人か、あの気配を感じた者も居たようだけど、全員では無いのは第2組の子達を見ても明らかだ。
+There were a few others who felt that presence, but it was clear from the second group of children that it was not all of them.
 
 *他にも何人か、あの気配を感じた者も居たようだけど、全員では無いのは第2組の子達を見ても明らかだ。*
 
-あれが察知出来てしまうのが、良い事なのか悪い事なのか、今のルシールには分からなかった。
+Lucille did not know whether it was a good thing or a bad thing that she could detect it.
 
 *あれが察知出来てしまうのが、良い事なのか悪い事なのか、今のルシールには分からなかった。*
 
-だが、『この程度の事も察知出来なければ、自分の前に立つ資格は無い』とでも言われている様にも感じていた。
+But I also felt as if they were saying, 'If you can't perceive this level of detail, you are not qualified to stand in front of me.
 
 *だが、『この程度の事も察知出来なければ、自分の前に立つ資格は無い』とでも言われている様にも感じていた。*
 
-あれがアムカムの姫の力の一端かと思うと、背中に薄っすらと汗が浮かぶのが分かる。
+I can feel a thin sheen of sweat on my back as I wonder if that was part of the power of the princess of Amkam.
 
 *あれがアムカムの姫の力の一端かと思うと、背中に薄っすらと汗が浮かぶのが分かる。*
 
 &nbsp;
 
-そして、気にかかる人物がもう一人。……あの出来事の中心に居たあの子。
+And there is one more person that I am concerned about. That girl who was at the center of ...... that event.
 
 *そして、気にかかる人物がもう一人。……あの出来事の中心に居たあの子。*
 
-始終、落ち着かなげだったが、少なくとも今は、比較的落ち着いている様にも見える。
+He seemed restless throughout, but at least now he seems relatively calm.
 
 *始終、落ち着かなげだったが、少なくとも今は、比較的落ち着いている様にも見える。*
 
 &nbsp;
 
-「彼女も、心中穏やかでは無いでしょうに……」
+I'm sure she's not at peace with it either. ......
 
 *「彼女も、心中穏やかでは無いでしょうに……」*
 
-「…………」
+"............"
 
 *「…………」*
 
 &nbsp;
 
-ルシールの呟きに応える様に、コーディリアが眉根を寄せ、苦し気にその彼女に向け視線を送る。
+As if in response to Lucille's muttering, Cordelia raises her eyebrows and looks at her with a pained expression.
 
 *ルシールの呟きに応える様に、コーディリアが眉根を寄せ、苦し気にその彼女に向け視線を送る。*
 
-そして、彼女……カレン・マーリンを見詰めるコーディリアの横顔を、その心の内を図る様にルシール・ムーアも静かに見詰めていた。
+And Lucille Moore was quietly staring at the profile of Cordilia, who was staring at her ...... Karen Merlin, as if trying to figure out what was in her heart.
 
 *そして、彼女……カレン・マーリンを見詰めるコーディリアの横顔を、その心の内を図る様にルシール・ムーアも静かに見詰めていた。*
 
@@ -1224,7 +1224,7 @@
 
 ----------------
 
-いつもお読みいただき、ありがとうございます！
+Thank you for reading!
 
 *いつもお読みいただき、ありがとうございます！*
 

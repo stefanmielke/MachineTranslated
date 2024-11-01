@@ -1,16 +1,16 @@
-# 第一章登場人物
+# Chapter 1 Characters
 
-自分用にとメモ的にザックリとまとめた物でございます。
-
-<blank>
+This is a brief summary for my own use and as a memo.
 
 <blank>
 
-アムカム村マップを追加しました。
+<blank>
+
+Added Amkam village map.
 
 <blank>
 
-クラウド邸見取り図を追加しました。
+Added a floor plan of the Cloud residence.
 
 
 ----------------
@@ -25,149 +25,149 @@
 
 <blank>
 
-第一章登場人物
+Chapter 1 Characters
 
 <blank>
 
-*年齢は一章終了時のモノ。
+*Age is at the end of the first chapter.
 
 <blank>
 
 <blank>
 
-〇スージィ・クラウド（スー）
+0 Susie Cloud (Sue)
 
-13歳（8段位）
+13 years old (8th dan)
 
 153cm 42kg
 
-B 71　Bカップ（恐らくはC－。なのでCカップ！はあくまで自称）
+B 71 B cup (possibly C-. So C cup! is only a self-proclaimed)
 
 W 50
 
 H 74
 
-2の蒼月/14日生まれ
+Born on the blue moon/14th of the 2nd
 
-ルビーの様に光り、外に跳ね広がるショートボブの赤い髪。澄んだコバルトグリーンの瞳。
+Short bob of red hair that shines like rubies and bounces outward. Clear cobalt green eyes.
 
-【クラウド家養女。全属性持ち　主武器・二刀ミドルソード】
-
-<blank>
-
-〇ハワード・クラウド
-
-62歳
-
-195cm
-
-4の紅月/20日生まれ
-
-グレーの頭髪と口元を覆う濃い髭。力のある灰色の目。
-
-【クラウド家当主。アムカム郡護民団統括。『灰色の鉄鬼神』　主武器・ツヴァイヘンダー】
+Adopted daughter of the Cloud family. All attributes, primary weapon, two swords, middle sword]
 
 <blank>
 
+0 Howard Cloud
+
+62 years old
+
+195 cm
+
+Red Moon in 4 / born on the 20th
+
+Gray head of hair and a dark beard covering his mouth. Gray eyes with power.
+
+Head of the Cloud family. Head of the Amkham County Protectorate. Gray Iron God. Main weapon: Zweihender.
+
 <blank>
 
-〇ソニア・クラウド
+<blank>
 
-58歳
+0 Sonia Cloud
+
+58 years old.
 
 168cm
 
-フワリと頭の上で纏めた栗茶色の髪。灰味がかったグリーンの瞳。
+Chestnut-brown hair tied in a fluffy bun on top of her head. Grayish green eyes.
 
-脚が悪く余り負担はかけられない。時に車椅子を使う事もある。
+He has a bad leg and cannot put too much strain on it. Sometimes he uses a wheelchair.
 
-【ハワード・クラウドの妻　主武器・ロングボウ】
+Wife of Howard Cloud, primary weapon, longbow.
 
 <blank>
 
-〇エルローズ
+0.005L Rose
 
-59歳
+59 years old.
 
 170cm
 
-頭の上で団子を作る白髪の混じった黒いひっ詰め髪。
+Black strands of hair mixed with gray that form a dumpling on the top of the head.
 
-【クラウド家女中　主武器・トンファー】
+Main weapon: ton fur.
 
 <blank>
 
-〇ジルベルト
+0 Gilbert.
 
-71歳
+71 years old.
 
 166cm
 
-隻眼の老人
+old man with one eye much bigger than the rest
 
-【クラウド家使用人　主武器・ロングソード+ダガー】
-
-<blank>
-
-〇ヘンリー・ジェイムスン
-
-55歳
-
-180㎝
-
-オールバックに撫でつけた白髪の混ざったダークブラウンの髪。顎ひげ有り。
-
-【アムカム村神殿神殿長。祭司官】
+Cloud family servant, main weapon: longsword + dagger
 
 <blank>
 
-〇デイジー・ジェイムスン
+0 Henry Jameson
 
-37歳
+55 years old.
+
+180 cm
+
+Dark brown hair mixed with gray stroked into an all back. He has a beard.
+
+[Head of the Amkham Village Temple Temple. Priest]
+
+<blank>
+
+0 Daisy Jameson
+
+37 years old
 
 168cm
 
-艶のあるダークブラウンの髪を後で三つ編みにし団子にして纏めている。
+Her shiny dark brown hair is later braided into a bun to tie it up.
 
-灰みがかったブラウンの眼とそれにかかる小さなメガネが責任職を思わせる。
+The grayish brown eyes and the small glasses over them suggest a responsible position.
 
-【アムカム村学校教師。結界者・補】
+[Amkam Village School Teacher. [Warding and supplemental].
 
 <blank>
 
-〇オーガスト・ダレス
+0 August Dulles
 
-52歳
+52 years old.
 
 187cm
 
-恰幅は良いが筋肉質。
+Well-dressed but muscular.
 
-茶褐色の髪を切り揃え清潔感がある。
+Her brown hair is cropped and clean.
 
-【アムカム村村長。アムカム12班、第一班班長。アムカム三家の内の一つ、ダレス家家長】
+Village head of Amkam Village. Head of the first group of Amkam Group 12. Patriarch of the Dulles family, one of the three Amkham families.
 
 <blank>
 
-〇フランク・ロング
+0 Frank Long
 
-44歳
+44 years old.
 
 190cm
 
-大柄で黒髪の口髭を蓄えている。
+He is a large man with black hair and a mustache.
 
-【アムカム12班、第五班班長】
+[Amcam 12, Team Leader, Team 5]
 
 <blank>
 
-〇ライダー・ハッガード
+00 Rider Haggard
 
-24歳
+24 years old
 
 181cm
 
-【ハッガード家次男。無、属性持ち。『黄金の吸血殺し』　主武器・ナイトソード】
+[Second son of the Haggard family. No. Attribute. Golden Bloodsucker Killer, primary weapon, nightsword.
 
 <blank>
 
@@ -175,13 +175,13 @@ H 74
 
 <blank>
 
-〇ラヴィニア・クラウド（ラヴィ）
+0 Lavinia Cloud (Lavie)
 
-14歳（故人）
+14 years old (deceased)
 
 154cm
 
-一本の三つ編みにした赤毛と灰味がかったグリーンの瞳。
+Red hair in a single braid and grayish green eyes.
 
 <blank>
 
@@ -189,91 +189,91 @@ H 74
 
 <blank>
 
-アムカム村　学校生徒
+Amkham Village School Students
 
 ＿＿＿＿＿＿＿＿＿＿
 
-卒業生・男子
+Graduates - Male
 
-〇ヴィクター・フランク
+0 Victor Frank
 
-15歳
+15 years old
 
 174cm
 
-細くさらさらとしたプラチナブロンドの髪と青い瞳。見た目だけは美形。
+Thin, silky platinum blonde hair and blue eyes. She is beautiful only in appearance.
 
-【フランク家長男。火属性持ち。回避特化】
+The eldest son of the Frank family. Has fire attribute. Specialized in evasion.
 
 <blank>
 
-〇アローズ・ビーアス
+0 Arrows B.A.S.
 
-15歳
+15 years old
 
 167cm
 
-【ビーアス家次男。魔法オフェンス。火、水、風、三属性持ち】
+[Second son of the Beas family. Magic offense. Fire, water, wind, three attributes.
 
 <blank>
 
-女子
+girl
 
-〇カーラ・エドガーラ
+0Carla Edgarra
 
-15歳
+15 years old
 
 155cm
 
-B 81　Bカップ
+B 81 B cup
 
 W 54
 
 H 79
 
-ショートボブの黒髪と黒い瞳。
+Short bob, black hair and dark eyes.
 
-【エドガーラ家長女。地属性持ち。主武器・仕込み短刀】
-
-<blank>
+[Eldest daughter of the Edgarra family. She has the earth attribute. Main weapon: a dagger.
 
 <blank>
 
-〇アリシア・ルゴシ
+<blank>
 
-15歳
+0 Alicia Lugosi
+
+15 years old
 
 159cm
 
-B 84　Dカップ
+B 84 D cup
 
 W 52
 
 H 81
 
-少し癖のある柔らかそうなアッシュブラウンの髪を白いリボンでポニーテールにしている。
+Her soft ash brown hair, which has a slight habit, is pulled into a ponytail with a white ribbon.
 
-【ルゴシ家次女。水属性持ち。主武器・徒手空拳+コンバットナイフ】
-
-<blank>
+Second daughter of the Lugosi family. She has water attribute. Main weapons: empty hand + combat knife.
 
 <blank>
 
-〇ジェシカ・カーロフ
+<blank>
 
-15歳
+0 Jessica Karloff
+
+15 years old
 
 161cm
 
-B 82　Cカップ
+B 82 C cup
 
 W 58
 
 H 84
 
-三つ編みにしたストロベリーブロンドの髪。モデルを思わせるスラリと伸びた手足。
+Strawberry blonde hair in a braid. Slender arms and legs reminiscent of a model.
 
-【カーロフ家三女。魔法ディフェンス。火・無、二属性持ち。身体強化、回復特化。神官見習い】
+[Third daughter of the Karloff family. Magic defense. She has two attributes, fire and non-fire. Specialized in physical strengthening and recovery. Priestess apprentice.
 
 <blank>
 
@@ -283,63 +283,63 @@ H 84
 
 ＿＿＿＿＿＿＿＿＿＿
 
-9段位・男子
+9th Dan, Men
 
-〇ウィリー・ホジスン
+0 Willie Hodgson
 
-14歳
+14 years old
 
 171cm
 
-メガネ男子。
+Men with glasses.
 
-【ホジスン家次男。魔法ディフェンス。火、水、二属性持ち】
-
-<blank>
+[Second son of the Hodgson family. Magic defense. Fire, water, dual attributes.
 
 <blank>
 
-女子
+<blank>
 
-〇ダーナ・マッケイン
+girl
 
-14歳
+0 Dana McCain
+
+14 years old
 
 158cm
 
-B 78　Cカップ
+B 78 C cup
 
 W 54
 
 H 81
 
-後ろで束ねた長いチェリーレッドに輝くブルネットの髪。
+Long cherry red shiny brunette hair tied back.
 
-ネコを思わせるアクアマリンの瞳。
+Aquamarine eyes reminiscent of a cat.
 
-【マッケイン家次女。主武器・ショートスピア】
-
-<blank>
+Second daughter of the McCain family. Primary weapon: Short Spear.
 
 <blank>
 
-〇コリン・ソンダース
+<blank>
 
-14歳
+0 Colin Saunders
+
+14 years old
 
 150cm
 
-B 81　Dカップ（隠れ巨入気味）
+B 81 D cup (with a hidden big cup)
 
 W 59
 
 H 89
 
-落ち着いたダーティブロンドの髪を後でフィッシュボーンで編み下ろしている。
+Her calm dirty blonde hair is later braided down in a fishbone.
 
-大きな丸眼鏡の奥にある青味がかったグレーの眼はミカン目。
+The bluish gray eyes behind the large round glasses are tangerine.
 
-【ソンダース家長女。魔法ディフェンス。水・風、二属性持ち】
+[Eldest daughter of the Saunders family. Magic defense. Water and wind, dual attributes.
 
 <blank>
 
@@ -347,319 +347,319 @@ H 89
 
 ＿＿＿＿＿＿＿＿＿＿
 
-8段位・男子
+8th Dan, Men
 
-〇アーヴィン・ハッガード
+0 Irving Haggard
 
-13歳
+13 years old
 
 163cm
 
-ダークブロンドの髪
+Dark blonde hair
 
-アンバーのウルフアイズ
+Amber Wolf Eyes
 
-【ハッガード家三男。主武器・ロングソード】
+Third son of the Haggard family. Primary weapon: longsword
 
 <blank>
 
-〇ロンバート・ブロウク
+0 Lombard Broek.
 
-14歳
+14 years old
 
 172cm
 
-大柄な少年。肩口まである切りっぱなしのキャロットオレンジの髪。
+Large boy. Shoulder-length cropped carrot-orange hair.
 
-鼻筋が通り、掘りが深い。瞳は澄んだブルー。
+She has a straight nose and deep digs. Her eyes are clear blue.
 
-【ブロウク家三男。主武器・バトルアクス】
-
-<blank>
+Third son of the Burok family. Primary Weapon: Battle Axe
 
 <blank>
 
-女子
+<blank>
 
-〇ベアトリス・クロキ（ビビ・ベア子）
+girl
 
-13歳（8段位）
+0 Beatrice Kroki (Bibi Bearko)
+
+13 years old (8th dan)
 
 149cm
 
-B 65　Aカップ
+B 65 A cup
 
 W 49
 
 H 70
 
-3の蒼月/17日生まれ
+Born on the azure/17th of the 3rd
 
-背中まである緩くウエーブのかかったとび色の髪。カチューシャで後ろに流し、大きな額を見せている。細い眉と程よく散ったソバカスが気の強さを表す。瞳は大きなアンバー。
+She has back-length, loosely wavy, tobiko hair. Her hair is swept back with a catsuit, showing her large forehead. Her thin eyebrows and a moderate scattering of freckles indicate her strong spirit. Her eyes are large amber.
 
-【アムカム三家の内の一つ、クロキ家長女。魔法ディフェンス。地・風・無、三属性持ち。従魔アルジャーノンの主】
-
-<blank>
+[Eldest daughter of the Kuroki family, one of the three Amukam families. She is a magic defender. She has three attributes: earth, wind, and nothing. Lord of Algernon, a follower.
 
 <blank>
 
 <blank>
 
-〇ミア・マティスン
+<blank>
 
-13歳（8段位）
+00 Mia Mathieson
+
+13 years old (8th dan)
 
 160cm
 
-B 84　Eカップ（Gはあくまでスージィの願望的目測）
+B 84 E cup (G is Susie's wishful thinking)
 
 W 58
 
 H 82
 
-6の蒼月/11日生まれ
+Born on the azure moon/11th of the 6th
 
-青味がかったアッシュブロンドの髪、腰まである長い髪を緩い三つ編みにし肩口から前へ流している。瞳は澄んだウルトラマリン。
+Ash blonde hair with a bluish tinge, waist-length, loosely braided and swept forward from her shoulders. Her eyes are clear ultramarine.
 
-【マティスン家長女。魔法オフェンス。地・水、二属性持ち】
-
-<blank>
+[Eldest daughter of the Mathisons. Magic offense. Earth and water, dual attributes.
 
 <blank>
-
-＿＿＿＿＿＿＿＿＿＿
-
-7段位・男子
-
-〇アラン・エドガーラ
-
-12歳
-
-<blank>
-
-〇ベルナップ・ロング
-
-12歳
-
-<blank>
-
-〇カール・ジャコビニ
-
-12歳
-
-<blank>
-
-女子
-
-〇ヘレナ・スレイター
-
-12歳
-
-<blank>
-
-〇メアリー・フランク
-
-12歳
 
 <blank>
 
 ＿＿＿＿＿＿＿＿＿＿
 
-6段位・男子
+7th Dan, Men
 
-〇クラーク・スミス
+0 Alan Edgarra
 
-11歳
-
-<blank>
-
-〇アシュトン・スミス
-
-11歳
+12 years old
 
 <blank>
 
-女子
+0Bell Nap Long
 
-〇フィオリーナ・アトリー
+12 years old
 
-11歳
+<blank>
+
+0 Carl Giacobini
+
+12 years old
+
+<blank>
+
+girl
+
+0Helena Slater
+
+12 years old
+
+<blank>
+
+0 Mary Frank
+
+12 years old
 
 <blank>
 
 ＿＿＿＿＿＿＿＿＿＿
 
-5段位・男子
+6th Dan, Men
 
-〇ステファン・ジング
+0 Clark Smith
 
-10歳
+11 years old
+
+<blank>
+
+0 Ashton Smith.
+
+11 years old
+
+<blank>
+
+girl
+
+0 Fiorina Atlee
+
+11 years old
+
+<blank>
+
+＿＿＿＿＿＿＿＿＿＿
+
+5th Dan, Men
+
+0 Stephan Zing
+
+10 years old
 
 135cm
 
-天パで赤茶のクセっ毛、そばかすだらけの顔
+Tenpa, reddish brown kinky hair, freckled face.
 
-キラキラした青い眼
-
-<blank>
+Sparkling blue eyes
 
 <blank>
 
-女子
+<blank>
 
-〇グローリア・ヘロン
+girl
 
-10歳
+0 Gloria Heron
+
+10 years old
 
 <blank>
 
-〇シェリー・フランク
+0 Shelley Frank
 
-10歳
-
-<blank>
-
-＿＿＿＿＿＿＿＿＿＿
-
-4段位・男子
-
-〇デニス・ホートリィ
-
-9歳
-
-<blank>
-
-〇ヴァージル・フィレイン
-
-9歳
-
-<blank>
-
-女子
-
-〇イルマ・アトリー
-
-9歳
-
-<blank>
-
-〇ジャニス・カーロフ
-
-9歳
+10 years old
 
 <blank>
 
 ＿＿＿＿＿＿＿＿＿＿
 
-3段位・男子
+4th Dan, Men
 
-〇フランク・ジーライト
+0 Dennis Whatley.
 
-8歳
-
-<blank>
-
-〇トマス・リゴティ
-
-8歳
+9 years old
 
 <blank>
 
-〇ウェイド・ウィルマン
+0 Virgil Filane
 
-8歳
-
-<blank>
-
-女子
-
-〇フィービー・カイツ
-
-8歳
+9 years old
 
 <blank>
 
-＿＿＿＿＿＿＿＿＿＿
+girl
 
-2段位・男子
+0 Irma Utley.
 
-〇デヴィット・ブレイク
-
-7歳
+9 years old
 
 <blank>
 
-〇チャールズ・ボーマント
+0Janice Karloff
 
-7歳
-
-<blank>
-
-女子
-
-〇レイラ・カーター
-
-7歳
-
-<blank>
-
-〇メイベル・ボーモント
-
-7歳
+9 years old
 
 <blank>
 
 ＿＿＿＿＿＿＿＿＿＿
 
-1段位・男子
+3rd Dan, Men
 
-〇エドワード・クロキ
+0 Frank G. Wright
 
-6歳
-
-【クロキ家長男】
+8 years old
 
 <blank>
 
-〇ヴァレット・アヴァンズ
+0 Thomas Ligoti
 
-6歳
-
-<blank>
-
-女子
-
-〇エヴァ・アヴァンズ
-
-6歳
+8 years old
 
 <blank>
 
+0 Wade Willman
+
+8 years old
+
+<blank>
+
+girl
+
+0 Phoebe Kaitz
+
+8 years old
+
+<blank>
+
+＿＿＿＿＿＿＿＿＿＿
+
+2nd Dan, Men
+
+0 David Blake
+
+7 years old
+
+<blank>
+
+0 Charles Beaumont
+
+7 years old
+
+<blank>
+
+girl
+
+0 Leila Carter
+
+7 years old
+
+<blank>
+
+0 Mabel Beaumont
+
+7 years old
+
+<blank>
+
+＿＿＿＿＿＿＿＿＿＿
+
+1st Dan, Men
+
+0 Edward Crocki
+
+6 years old
+
+The eldest son of the Kroki family.
+
+<blank>
+
+0 Valet Avans
+
+6 years old
+
+<blank>
+
+girl
+
+0 Eva Avans
+
+6 years old
+
 <blank>
 
 <blank>
 
-〇ウィリアム・クラウド（ウィル）
+<blank>
 
-17歳（高等校3回生）
+0 William Cloud, Will.
+
+17 years old (senior in high school)
 
 175cm
 
-短く刈り込んだ若々しい灰味の強いサンディブロンドの髪
+Short-cropped, youthful, ashy, sandy blonde hair
 
-青味のあるグレーの瞳
+Gray eyes with a blue tinge
 
-【クラウド家長男。風・無、二属性持ち。主武器・ロングソード】
-
-<blank>
+He is the eldest son of the Cloud family. He has two attributes, wind and no wind. Primary weapon: longsword.
 
 <blank>
 
-〇フレッド・マッケイン
+<blank>
 
-16歳（高等校2回生）
+0Fred McCain
 
-【マッケイン家次男】
+16 years old (sophomore in high school)
+
+Second son of the McCain family.
 
 <blank>
 
@@ -667,49 +667,49 @@ H 82
 
 ＿＿＿＿＿＿＿＿＿＿
 
-護民団　上団位者
+Protectorate, senior rank
 
 <blank>
 
-〇ゲイリー・メイヤーズ
+0 Gary Meyers
 
 <blank>
 
-〇マルセル・アヴァンズ
+0 Marcel Avans
 
-【ヴァレットとエヴァの父親】
-
-<blank>
-
-＿＿＿＿＿＿＿＿＿＿
-
-護民団　低団位者（スージィ・クラウドファン倶楽部会員）
-
-<blank>
-
-〇ケネス
-
-<blank>
-
-〇ランドルフ
-
-<blank>
-
-〇ルフィーノ
+[Valette and Eva's father].
 
 <blank>
 
 ＿＿＿＿＿＿＿＿＿＿
 
-コープタウン　鍛冶工房
+Protectorate, low-ranking member of the Suzy Crowdfun Club
 
 <blank>
 
-〇マーシュ・カウズバート
+0 Kenneth.
 
 <blank>
 
-〇マリーベル・カウズバート
+00 Randolph.
+
+<blank>
+
+0 Ruffino
+
+<blank>
+
+＿＿＿＿＿＿＿＿＿＿
+
+Copetown Blacksmith Workshop
+
+<blank>
+
+00 Marsh Cowsbert.
+
+<blank>
+
+0Marybelle Cowsbert.
 
 <blank>
 
@@ -721,63 +721,63 @@ H 82
 
 <blank>
 
-〇オルベット・マッシュ（10）
+0 Orbet Mash (10)
 
-（）内は外見上の年齢
+（Age in parentheses ( ) is the age in appearance.
 
-『子供喰らい』（チャイルド・イーター）
-
-<blank>
-
-＿＿＿＿＿＿＿＿＿＿
-
-オルベット・マッシュ眷属
-
-<blank>
-
-〇エイハブ（18）
-
-<blank>
-
-〇プトーラ（17）
-
-<blank>
-
-〇バーニー（16）
-
-<blank>
-
-〇ローレンス（14）
-
-<blank>
-
-〇ライラ（14）
-
-<blank>
-
-〇イライザ（12）
-
-<blank>
-
-〇ダグ（9）
+Child Eater.
 
 <blank>
 
 ＿＿＿＿＿＿＿＿＿＿
 
-<blank>
-
-〇クラリモンド
+Orbet Mash and his family
 
 <blank>
 
-〇アブド
+0 Ahab (18)
+
+<blank>
+
+0 Putola (17)
+
+<blank>
+
+0 Bernie (16)
+
+<blank>
+
+0 Lawrence (14)
+
+<blank>
+
+0 Lila (14)
+
+<blank>
+
+0 Eliza (12)
+
+<blank>
+
+0 Doug (9)
+
+<blank>
+
+＿＿＿＿＿＿＿＿＿＿
+
+<blank>
+
+0 Clarimonde.
+
+<blank>
+
+00 abd
 
 <blank>
 
 <blank>
 
-〇アルズ・アルフ
+0 als alf
 
 <blank>
 
@@ -787,7 +787,7 @@ H 82
 
 <blank>
 
-〇ロドルフ・ダーカー
+0Rodolph Darker
 
 
 
@@ -795,9 +795,9 @@ H 82
 
 ----------------
 
-次回は『幕間』、一週間後17日20時に投下します。
+The next "Interlude" will be dropped a week later on the 17th at 20:00.
 
-夏休み中のお話しです。
+This is a story during the summer vacation.
 
-『幕間1　海へ行こうよ！』
+Interlude 1: Let's Go to the Sea!
 

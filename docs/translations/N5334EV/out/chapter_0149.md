@@ -1,12 +1,12 @@
-# 137話　フルークの悪夢
+# 137 Fluke's Nightmare
 
 ## 137話　フルークの悪夢
 
-ガン！ガツン！！と室内に重い音が何度も響き渡る。
+Gun! GUN! and a heavy sound echoes repeatedly in the room.
 
 *ガン！ガツン！！と室内に重い音が何度も響き渡る。*
 
-フルークが、自分の執務机を苛立ち紛れに蹴り上げている音だ。
+It was the sound of Fluke kicking his desk in frustration.
 
 *フルークが、自分の執務机を苛立ち紛れに蹴り上げている音だ。*
 
@@ -14,15 +14,15 @@
 
 &nbsp;
 
-フザケやがってあの餓鬼がっ！
+That brat is a joke!
 
 *フザケやがってあの餓鬼がっ！*
 
-態々３人も付けてやったのに、また全員衛士に捕まえられたとか、一体何の冗談だ？！
+What the hell is the joke, I put three of them on him and they were all caught by the guards again?
 
 *態々３人も付けてやったのに、また全員衛士に捕まえられたとか、一体何の冗談だ？！*
 
-役立たずにも程がある！！
+It's not even close to useless!
 
 *役立たずにも程がある！！*
 
@@ -30,119 +30,119 @@
 
 &nbsp;
 
-成果を果たすどころか、おめおめと逃げ帰って来たパーカーに、フルークは嘗て無いほどの怒りを爆発させていた。
+Fluke was more angry than ever at Parker, who had come back dazed and dazed, rather than accomplish anything.
 
 *成果を果たすどころか、おめおめと逃げ帰って来たパーカーに、フルークは嘗て無いほどの怒りを爆発させていた。*
 
-怒りが溢れるに任せ、デスクを力まかせに蹴り続ける。
+I let my anger overflow and continued to kick the desk with all my might.
 
 *怒りが溢れるに任せ、デスクを力まかせに蹴り続ける。*
 
 &nbsp;
 
-マスカを置いて来たガイドといい、この国の連中はつくづく信用ならない！
+The guide who left Masuka behind, and the people in this country are really not to be trusted!
 
 *マスカを置いて来たガイドといい、この国の連中はつくづく信用ならない！*
 
-パーカーの馬鹿は顔面を陥没させ、手足もへし折ってやった。
+Parker's fool caved in his face and broke his limbs as well.
 
 *パーカーの馬鹿は顔面を陥没させ、手足もへし折ってやった。*
 
-奴の連れ合いの女を呼び出して嬲り者にしたが、その程度ではまだ腹の虫が収まらない。
+I called up his companion and tortured her, but that wasn't enough to settle my stomach yet.
 
 *奴の連れ合いの女を呼び出して嬲り者にしたが、その程度ではまだ腹の虫が収まらない。*
 
-今は階下で手下共に使わせちゃいるが、今夜中に薬に漬けて、他の女と一緒に色街に沈める。
+Right now, he's downstairs with his crew, but tonight he'll be drugged and drowned with the other women in the red-light district.
 
 *今は階下で手下共に使わせちゃいるが、今夜中に薬に漬けて、他の女と一緒に色街に沈める。*
 
-それでも到底補填にゃ追いつかねぇ！とんだ貧乏神だ！！
+But it's still not enough to make up for it! What a god of poverty!
 
 *それでも到底補填にゃ追いつかねぇ！とんだ貧乏神だ！！*
 
 &nbsp;
 
-「クソがっ！！」
+Fuck you!
 
 *「クソがっ！！」*
 
 &nbsp;
 
-一際大きくデスクを蹴飛ばす音が、部屋の中に響き渡った。
+The sound of a desk kicking loudly echoed through the room.
 
 *一際大きくデスクを蹴飛ばす音が、部屋の中に響き渡った。*
 
-入り口扉の両脇に立つボディーガードの手下2人が、その音にビクリと肩を震わせる。
+The two bodyguards standing on either side of the entrance door shudder and their shoulders shake at the sound.
 
 *入り口扉の両脇に立つボディーガードの手下2人が、その音にビクリと肩を震わせる。*
 
 &nbsp;
 
-だが初めにあの施設と娘にちょっかいを出せとオーダーして来たのは、あのいけ好かない御曹司だ。
+But it was the obnoxious sergeant who first ordered me to mess with the facility and his daughter.
 
 *だが初めにあの施設と娘にちょっかいを出せとオーダーして来たのは、あのいけ好かない御曹司だ。*
 
-いっそ奴に損失分を補わせれば……。
+If you can get him to make up the loss, you can do so at .......
 
 *いっそ奴に損失分を補わせれば……。*
 
 &nbsp;
 
-「……やはり今夜中に攫うか」
+...... still want to kidnap him tonight."
 
 *「……やはり今夜中に攫うか」*
 
-「はい？」
+Yes?"
 
 *「はい？」*
 
 &nbsp;
 
-元々今夜はあの娘で楽しむ予定だった。それが予定外のクソ餓鬼が現れたおかげで綺麗にスッ飛んだ。
+Originally, I had planned to have fun with that girl tonight. But it was blown clean out of the water when the brat showed up, which I hadn't planned on.
 
 *元々今夜はあの娘で楽しむ予定だった。それが予定外のクソ餓鬼が現れたおかげで綺麗にスッ飛んだ。*
 
-結局はそこがケチの付き始めだ。
+In the end, that's where the stinginess begins.
 
 *結局はそこがケチの付き始めだ。*
 
 &nbsp;
 
-なら仕切り直すのが一番だ。予定通り事を進めりゃ、めぐり合わせも戻って来る。
+Then it's best to start over. If things go on as planned, the chance will come back to you.
 
 *なら仕切り直すのが一番だ。予定通り事を進めりゃ、めぐり合わせも戻って来る。*
 
 &nbsp;
 
-「兵隊を集めろ！10人……いや！20人はかき集めろ！」
+"Gather the troops, ten ...... no, scrape up twenty!"
 
 *「兵隊を集めろ！10人……いや！20人はかき集めろ！」*
 
-「は！」
+Ha!"
 
 *「は！」*
 
-「そんだけ居りゃ、どれだけあの餓鬼の腕が立とうが、隙を見て娘の1人くらい掻っ攫えんだろ」
+No matter how good that brat is, he could snatch at least one of my daughters if he saw an opening.
 
 *「そんだけ居りゃ、どれだけあの餓鬼の腕が立とうが、隙を見て娘の1人くらい掻っ攫えんだろ」*
 
 &nbsp;
 
-そうだ、端から娘だけを狙えば良かったのだ。チビガキを攫わせようとか全く無意味だった。
+Yes, they should have targeted only the daughter from the beginning. It was completely pointless to try to get the little kid kidnapped.
 
 *そうだ、端から娘だけを狙えば良かったのだ。チビガキを攫わせようとか全く無意味だった。*
 
-自分がもう一度あのイカれた餓鬼と見えるのは御免被るが、あの娘は兵隊10人以上の価値はある！
+I would hate to see myself as that crazy brat again, but that girl is worth more than 10 soldiers!
 
 *自分がもう一度あのイカれた餓鬼と見えるのは御免被るが、あの娘は兵隊10人以上の価値はある！*
 
-人員の補填は必要経費だ。御曹司に吹っ掛けて尻を持たせる事に決めた。
+Filling in personnel is a necessary expense. I decided to blow it to the sergeant and let him have his ass.
 
 *人員の補填は必要経費だ。御曹司に吹っ掛けて尻を持たせる事に決めた。*
 
 &nbsp;
 
-「いいか！今夜中に必ずあの施設から娘を攫って――――」
+Listen to me! Make sure you kidnap my daughter from that facility by the end of tonight. ----"
 
 *「いいか！今夜中に必ずあの施設から娘を攫って――――」*
 
@@ -150,143 +150,143 @@
 
 &nbsp;
 
-その時、フルークが座っていたデスクが、突然大音響と共に真っ二つに割れ砕けた。
+At that moment, the desk on which Fluke was sitting suddenly cracked in half and shattered with a loud noise.
 
 *その時、フルークが座っていたデスクが、突然大音響と共に真っ二つに割れ砕けた。*
 
 &nbsp;
 
-厚手の天板は高価なマホガニー材で、重量もかなりな物だ。
+The thick top panel is made of expensive mahogany wood and is quite heavy.
 
 *厚手の天板は高価なマホガニー材で、重量もかなりな物だ。*
 
-1人の力では持ち上げる事など出来ないし、到底割れる類のものでは無い。
+It is not something that can be lifted by one person's strength, nor is it something that can be broken by any means.
 
 *1人の力では持ち上げる事など出来ないし、到底割れる類のものでは無い。*
 
-それが今、目の前で真っ二つに割れて潰れている。
+It is now cracked in half and crushed in front of my eyes.
 
 *それが今、目の前で真っ二つに割れて潰れている。*
 
-フルークはその衝撃で、いつの間にか椅子から転げ落ち、床に尻餅を付いていた。
+The impact caused Fluke to fall out of his chair and onto his buttocks on the floor before he knew it.
 
 *フルークはその衝撃で、いつの間にか椅子から転げ落ち、床に尻餅を付いていた。*
 
 &nbsp;
 
-「アンタがフルークでいい、の？」
+You're Fluke, right?"
 
 *「アンタがフルークでいい、の？」*
 
 &nbsp;
 
-いきなり聞こえた女の声に、身体がビクリと反応した。
+The sudden sound of a woman's voice made my body react with a jerk.
 
 *いきなり聞こえた女の声に、身体がビクリと反応した。*
 
-今の今まで誰も居なかった筈なのに、まるで割れたデスクを踏み潰したかの様に女がそのど真ん中に立ち、そこから此方を見下ろしている。
+There should have been no one there until now, but a woman stands in the middle of the room as if she had stepped on a broken desk and is looking down at us from there.
 
 *今の今まで誰も居なかった筈なのに、まるで割れたデスクを踏み潰したかの様に女がそのど真ん中に立ち、そこから此方を見下ろしている。*
 
 &nbsp;
 
-「やっぱり、今夜の内に来て正解だった、よ」
+I knew it was the right thing to do tonight.
 
 *「やっぱり、今夜の内に来て正解だった、よ」*
 
 &nbsp;
 
-革製のドレスの様な服を着た女だ。
+She's a woman dressed in what looks like a leather dress.
 
 *革製のドレスの様な服を着た女だ。*
 
-質が高い品だと一目で分かる。
+You can tell at a glance that it is a high quality product.
 
 *質が高い品だと一目で分かる。*
 
-革の光沢やその色合い。それを形造る縫製の技術。どれを取ってもその辺の庶民が手に入れられる物には到底思えない。
+The luster of the leather and its hue. The sewing technique that creates it. It is hard to imagine that the average person can afford any of these things.
 
 *革の光沢やその色合い。それを形造る縫製の技術。どれを取ってもその辺の庶民が手に入れられる物には到底思えない。*
 
-今でも力のある上位の旧貴族でもなければ、まず手に入れるのは無理な品だと分かる。
+Even now, unless you are a powerful, upper-class former noble, you know that it is an impossible item to obtain first.
 
 *今でも力のある上位の旧貴族でもなければ、まず手に入れるのは無理な品だと分かる。*
 
 &nbsp;
 
-だが真に目を引くのは、女のその容姿だった。
+But what really caught the eye was the woman's appearance.
 
 *だが真に目を引くのは、女のその容姿だった。*
 
 &nbsp;
 
-彫像のように整った目鼻立ち。
+Statuesque, well-defined eyes and nose.
 
 *彫像のように整った目鼻立ち。*
 
-陶磁の様に濁りの無い艶やかな白い肌。
+The skin is as clear and shiny white as porcelain.
 
 *陶磁の様に濁りの無い艶やかな白い肌。*
 
-エメラルドグリーンの眼は、澄んだ海の様に常に光を湛えている。
+His emerald green eyes are like the clear ocean, always full of light.
 
 *エメラルドグリーンの眼は、澄んだ海の様に常に光を湛えている。*
 
 &nbsp;
 
-そしてその髪。
+And that hair.
 
 *そしてその髪。*
 
-宝石の様な赤い輝きを纏い、僅かに動くだけで紅玉の輝きが辺りに散って消えて行く。
+The red jade sparkles like a jewel, and with the slightest movement, it dissipates and disappears around the area.
 
 *宝石の様な赤い輝きを纏い、僅かに動くだけで紅玉の輝きが辺りに散って消えて行く。*
 
 &nbsp;
 
-目を惹かれない方がどうかしている。
+It would be crazy if it didn't catch your eye.
 
 *目を惹かれない方がどうかしている。*
 
 &nbsp;
 
-こんな女が居て良いものなのか？
+Is this the kind of woman we should have?
 
 *こんな女が居て良いものなのか？*
 
-フルークはその姿に魅入られた様に目を離す事が出来ずにいた。
+Fluke was so mesmerized by the sight that he couldn't take his eyes off it.
 
 *フルークはその姿に魅入られた様に目を離す事が出来ずにいた。*
 
 &nbsp;
 
-今まで数多くの女をモノにして来た自分からしても、コレだけの相手にお目にかかった事は無い。
+Even though I have had many women in my life, I have never met anyone like this.
 
 *今まで数多くの女をモノにして来た自分からしても、コレだけの相手にお目にかかった事は無い。*
 
 &nbsp;
 
-だが同時にフルークは、目の前の相手から空恐ろしい程の寒気も感じていた。
+But at the same time, Fluke also felt a frightening chill from the person in front of him.
 
 *だが同時にフルークは、目の前の相手から空恐ろしい程の寒気も感じていた。*
 
 &nbsp;
 
-今、自分は真面では無い事態に直面している。
+Now I find myself in a not-so-serious situation.
 
 *今、自分は真面では無い事態に直面している。*
 
-普通では割れる筈の無い机が割れて、自分は床に尻を付き、突然現れた女の存在にも事態が飲み込めず、頭は混乱するばかりだ。
+The desk, which would not normally break, is broken, I am on my butt on the floor, and the sudden presence of the woman is confusing my mind.
 
 *普通では割れる筈の無い机が割れて、自分は床に尻を付き、突然現れた女の存在にも事態が飲み込めず、頭は混乱するばかりだ。*
 
 &nbsp;
 
-混乱している筈なのに、何故か口元が引き攣る様に上がっていく。
+I should be confused, but for some reason, my mouth is twitching up.
 
 *混乱している筈なのに、何故か口元が引き攣る様に上がっていく。*
 
-あまりにも理解が及ばない事態に直面して、脳が正常な判断を放棄して無自覚に笑ってしまっているのだ。
+Faced with a situation that is so beyond comprehension, the brain abandons normal judgment and laughs unknowingly.
 
 *あまりにも理解が及ばない事態に直面して、脳が正常な判断を放棄して無自覚に笑ってしまっているのだ。*
 
@@ -294,37 +294,37 @@
 
 &nbsp;
 
-「フルークさん！！」
+Mr. Fluke!
 
 *「フルークさん！！」*
 
 &nbsp;
 
-入り口に居たガードの2人が声を上げた。
+Two of the guards at the entrance raised their voices.
 
 *入り口に居たガードの2人が声を上げた。*
 
-突然の大音響と部屋を揺らす振動に、一時我を無くしていたが、漸くフルークの元へ駆け出す。
+The sudden loud noise and vibrations that shook the room temporarily knocked him out of his wits, but he finally ran to Fluke.
 
 *突然の大音響と部屋を揺らす振動に、一時我を無くしていたが、漸くフルークの元へ駆け出す。*
 
 &nbsp;
 
-「なんだテメェ？どこから入って――」
+What the fuck, man? Where did you come in?
 
 *「なんだテメェ？どこから入って――」*
 
 &nbsp;
 
-部屋の真ん中に陣取る巨大なソファーを飛び越えて、男の1人が女を引き倒そうとその肩に向かって腕を伸ばす。
+One of the men jumps over the huge sofa that is positioned in the middle of the room and stretches his arm toward the woman's shoulder in an attempt to pull her down.
 
 *部屋の真ん中に陣取る巨大なソファーを飛び越えて、男の1人が女を引き倒そうとその肩に向かって腕を伸ばす。*
 
-もう1人も、相手の動きを抑えようと横から女の身体に襲いかかる。
+The other one also attacks the woman's body from the side in an attempt to suppress her opponent's movement.
 
 *もう1人も、相手の動きを抑えようと横から女の身体に襲いかかる。*
 
-だが次の瞬間、突然男2人がフルークの視界から掻き消えていた。
+But the next moment, the two men had suddenly been scratched out of Fluke's sight.
 
 *だが次の瞬間、突然男2人がフルークの視界から掻き消えていた。*
 
@@ -332,95 +332,95 @@
 
 &nbsp;
 
-目の前のフルークには、部屋の空気が膨らんだ様な気がした。
+The air in the room seemed to swell up in the fluke in front of me.
 
 *目の前のフルークには、部屋の空気が膨らんだ様な気がした。*
 
-間を置かず、左右の壁に何かが打ち当てられた様な大きな振動が室内に広がった。
+Without a pause, a loud vibration spread through the room as if something had been struck against the walls on either side.
 
 *間を置かず、左右の壁に何かが打ち当てられた様な大きな振動が室内に広がった。*
 
 &nbsp;
 
-「は？」
+What about?"
 
 *「は？」*
 
 &nbsp;
 
-壁にかかっていた大型の絵画は吹き飛び、同じく据え付けられていた高級酒が並んだディスプレイラックは粉々になっていた。
+A large painting hanging on the wall was blown away, and a display rack of fine liquors, which had also been installed, was shattered.
 
 *壁にかかっていた大型の絵画は吹き飛び、同じく据え付けられていた高級酒が並んだディスプレイラックは粉々になっていた。*
 
-2人はいつの間にかその左右の壁にへばり付き、ズルズルと壁に吸着して赤い染みを残しながら、ゆっくり壁からずり落ちている。
+The two of them are heaving against the wall on either side of it before long, slowly slipping off the wall, leaving a red stain as they are adsorbed to the wall by the cheaters.
 
 *2人はいつの間にかその左右の壁にへばり付き、ズルズルと壁に吸着して赤い染みを残しながら、ゆっくり壁からずり落ちている。*
 
-2人共手足の関節がおかしな方向を向いていた。
+Both had joints of their limbs pointing in strange directions.
 
 *2人共手足の関節がおかしな方向を向いていた。*
 
-意識はとうに無いのだろうが、時折「ゴポリ」と何かを口から零している。微かに呻き声も上げているので、辛うじて生命活動は止まってはいないのは分かる。
+He may be unconscious at the moment, but he occasionally spits something out of his mouth with a "goporir" sound. He is also moaning slightly, so we know that he has not stopped his vital activities.
 
 *意識はとうに無いのだろうが、時折「ゴポリ」と何かを口から零している。微かに呻き声も上げているので、辛うじて生命活動は止まってはいないのは分かる。*
 
 &nbsp;
 
-「もう、ココにはアンタだけだか、ら」
+You're the only one here now.
 
 *「もう、ココにはアンタだけだか、ら」*
 
-「……は？な、なんだと？」
+I said, "What about ......? What, what?"
 
 *「……は？な、なんだと？」*
 
-「下で女の子達に酷い事してた男共。アレ全部足を2～3本潰しといた、から。他にも問答無用で襲って来た、ヤツ。『アンタの仲間だ』と答えた、ヤツ。大体この建物の周りと中にいた全部、かな？30はいなかった、ね」
+"The guys were doing terrible things to the girls downstairs. I smashed a couple of their legs. And the other guy who attacked me without asking me. I said, 'They're your guys. So, all of them, I guess, around and inside this building, there weren't 30 of them, right?
 
 *「下で女の子達に酷い事してた男共。アレ全部足を2～3本潰しといた、から。他にも問答無用で襲って来た、ヤツ。『アンタの仲間だ』と答えた、ヤツ。大体この建物の周りと中にいた全部、かな？30はいなかった、ね」*
 
 &nbsp;
 
-何を言っているんだ？この女は？
+What are you talking about? Who is this woman?
 
 *何を言っているんだ？この女は？*
 
-コイツは下に居た兵隊を全部潰してやって来たとでも言っているのか？
+Is this guy saying that he came here by crushing all the soldiers who were under him?
 
 *コイツは下に居た兵隊を全部潰してやって来たとでも言っているのか？*
 
-そんな馬鹿な……そんな訳――
+That's impossible. ...... There's no way--
 
 *そんな馬鹿な……そんな訳――*
 
 &nbsp;
 
-「あ、あり得ねぇ……」
+Oh, that ain't possible. ......
 
 *「あ、あり得ねぇ……」*
 
 &nbsp;
 
-フルークは半笑いのまま呟いた。
+Fluke muttered with a half-smile.
 
 *フルークは半笑いのまま呟いた。*
 
-だが、壁に張り付いている2人が目に入ると、無意識に喉が鳴る。
+But when I see the two of them stuck to the wall, I involuntarily choke up.
 
 *だが、壁に張り付いている2人が目に入ると、無意識に喉が鳴る。*
 
 &nbsp;
 
-「人の皮を被った豚に手加減する気は起きないけど、一応死なない様にはする、つもり。それでも死んじゃったら、運が無かったと諦め、て」
+I don't want to go easy on a pig in human skin, but I'm going to try not to die. If he still dies, I'll just give up and say it was bad luck.
 
 *「人の皮を被った豚に手加減する気は起きないけど、一応死なない様にはする、つもり。それでも死んじゃったら、運が無かったと諦め、て」*
 
 &nbsp;
 
-女が冷やかな眼差しを無慈悲に落とす。
+The woman drops her cold gaze ruthlessly.
 
 *女が冷やかな眼差しを無慈悲に落とす。*
 
-その瞬間、フルークの悪夢が幕を開けた。
+At that moment, Fluke's nightmare began.
 
 *その瞬間、フルークの悪夢が幕を開けた。*
 
@@ -430,7 +430,7 @@
 
 ----------------
 
-お読み頂き、ありがとうございます。
+Thank you for reading.
 
 *お読み頂き、ありがとうございます。*
 
@@ -438,13 +438,13 @@
 
 &nbsp;
 
-誤字脱字のご指摘、ありがとうございます！
+Thank you for pointing out the typo!
 
 *誤字脱字のご指摘、ありがとうございます！*
 
 &nbsp;
 
-ブクマ、ご評価もありがとうございます！いつも励みになっております！！
+Thank you for your buzz and your rating! We are always encouraged!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
 

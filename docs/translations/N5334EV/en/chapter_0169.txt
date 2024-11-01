@@ -1,88 +1,80 @@
-# 157話　甘々と南瓜
+# 157 Sweet and Pumpkin
 
-－＊＊－－＊－－＊＊－－＊－－＊＊－－＊－－＊＊－－＊－
-
-<blank>
-
-<blank>
-
-「トール君……トール君！答えて！……トール！トール！！ねぇ！お願い！返事をしてよ！！」
-
-「…………大丈夫だ……スズ。大丈夫、心配するな」
-
-「良かった！！トール、トール！怪我は？！もう動いても平気なのね？！」
-
-「大丈夫だ。深手って程じゃなかった……。傷ももう塞がってる」
-
-「ホントに？本当に大丈夫なのね？」
-
-「大丈夫だ心配ない。あの子も無事だ」
-
-「……よかった、本当に良かった」
-
-「あの子は、義父さんと義母さんに預けて来た。もう心配無い」
-
-「今はアナタの事よ！お願いだから無茶はしないでって言ったじゃない！！」
-
-「だが、これでアムカムを長年に渡って搾取して来たアルコンネン家も、もう終わりだ」
-
-「それでも！！」
-
-「アルコンネンは、バルデモンテに次いで、貴族派の大派閥だ。これでお前も動きが大分楽になる」
-
-「……それはそうだけど！」
-
-「お前の影武者も限界が来ていた。時期的にも此処でやるしか無かったんだよ」
-
-「でも！それでアナタに何かあったら……どうするのよ！！」
-
-「オレの事はいい。お前は大丈夫なのかスズ？もう身体を動かしても平気なのか？」
-
-「わたしは平気。わたしは大丈夫！だから！アナタは自分の身体の事をもっと気遣って！！」
-
-「……お前が無事ならそれで良い」
-
-「…………ばか、ばか！」
-
-「……今回は、オレがヘマをした。迂闊だった。もっと慎重にするべきだった……心配かけて済まない」
-
-「もう！直ぐにそうやって…………本当に、もう無茶はしないで。お願い」
-
-「……ああ。約束する、もう無茶はしない」
-
-「本当だよ……約束だからね！」
-
-「……いつか、いつかあの子を連れて、またそっちへ行くよ」
-
-「…………うん」
-
-「だから、そう出来るように、後は任せても良いか？」
-
-「うん、その為にわたしはココに居るんだから！わたしに任せて！」
-
-「分った、スズに任せる……」
-
-「うん！任された！」
-
-「……少しだけ、休んでも良いかな？……少しだけ」
-
-「良いよトール。ゆっくり休んで……」
-
-「いつか……いつかさ、あの海を3人で渡ろう」
-
-「うん、うん！トール！きっと渡れるよ！いつか3人で……あの船に乗せて」
-
-「……ああ、いつか」
-
-「……うん、いつか」
+-*** --****--****--****--****--****--****--****--****--****-
 
 <blank>
 
 <blank>
 
-<blank>
+'Tall-kun: ...... Tall-kun! Answer! ...... Thor! Thor! Hey! Please! Answer me!
 
-－＊＊－－＊－－＊＊－－＊－－＊＊－－＊－－＊＊－－＊－
+"It's ............ okay ...... tin. I'm fine, don't worry."
+
+Good! Thor, Thor! Are you hurt? Are you okay to move now?
+
+I'm fine. It wasn't a deep wound. ...... The wound is already closed."
+
+"Are you sure? You're sure you're okay?"
+
+I'm fine, don't worry. The boy is safe.
+
+......Good, that was really good."
+
+I left him with his stepfather and stepmother. You don't have to worry anymore."
+
+I'm talking about you now! I said please don't do anything rash!"
+
+But now the Alconnen family, which has exploited Amkham for so many years, is no more."
+
+Still!
+
+Alconnen is the second largest faction of the aristocracy after Valdemonte. This will make your move a lot easier."
+
+...... that's true though!"
+
+Your shadow warriors were reaching their limits. We had no choice but to do it here in time."
+
+But! So what if something happens to you ......!
+
+I don't care about me. Are you all right, Tin? Are you okay to move your body now?"
+
+I'm fine. I'm fine! I'm fine! You need to take better care of yourself!
+
+"......, as long as you're safe, that's all that matters."
+
+"............ idiot, idiot!"
+
+...... "This time, I screwed up. I was careless. I should have been more careful. ...... Sorry for worrying you."
+
+I'm not going to do it again! Do that right away and ............ really, don't do anything reckless anymore. Please."
+
+"...... yeah. I promise, no more recklessness."
+
+It's true ...... I promise!"
+
+...... someday, someday, I'll take that girl back there."
+
+"............ yeah."
+
+So can I leave the rest to you so you can do that?"
+
+I'm here for that! I'll take care of it!"
+
+All right, I'll leave it to Tin. ......
+
+Yeah, I'm in charge! I'm in charge!"
+
+I'm going to go to ...... and see if I can take a break for a bit." ...... for a little bit."
+
+'Good one Thor. Get some rest. ......"
+
+Someday ...... someday, the three of us will cross that sea together."
+
+Yeah, yeah." Thor! You'll make it across! Someday the three of us will ...... be on that boat."
+
+"...... oh, someday."
+
+"...... yeah, someday."
 
 <blank>
 
@@ -90,137 +82,7 @@
 
 <blank>
 
-<blank>
-
-今日も大食堂は中々の盛況具合だ。
-
-元の世界での土曜日にあたる今日は、生徒の皆は午後の時間は自由に過ごす。
-
-生徒達はみんな、午後はどうするかと食事をしなら、又は食後のデザートを頂きながら、わいのワイのとお喋りを楽しむのだ。
-
-<blank>
-
-今食堂ではパンプキンフェアをやっていたりする。
-
-そこではカボチャ料理だけで無く、カボチャを使った色々なスイーツもメニューには数多く並んでいるのだ。
-
-<blank>
-
-わたしが今日選んだのは『かぼちゃのプディング』だ。
-
-これはかぼちゃの香りがとぉっても濃厚で、口に含めば香ばしいカラメルソースと相まって優しい甘さが零れそうになる。
-
-一口頂けば忽ちお口一杯に幸せが広がり、思わず顔がフルフルしてしまう。
-
-<blank>
-
-「スー、コッチのパイも食べてみようか？ホラ、あ〜〜ん」
-
-「カーラずるい！スーちゃんコッチケーキも美味しいよ！はい、ア〜〜ん」
-
-「いやいや、スーはまず、わたしのババロアをほしがってるよ！ハイ、あ〜〜ン」
-
-「こっちはチョコと合わせたマーブルケーキだよ！ほら、ア～～ン」
-
-<blank>
-
-カーラがミアがアリシアが、そしてジェシカがいつもの様にスプーンを突き出して来る。
-
-わたしはエサを待つヒナでは無いと言うに！
-
-<blank>
-
-それでも！目の前にあるスイーツを拒むなど出来ようはずも無く……。パイをケーキをババロアを、拒む事なく口が受け取ってしまうのだ！
-
-<blank>
-
-「「「「美味しい？」」」」
-
-「美味……しい、の！」
-
-<blank>
-
-そしてやっぱり頂く度、頬に手を添えてフルフルしてしまう。
-
-これは、体が勝手に反応してしまう反射の様な物なのだ！だから仕方がないのだ！
-
-ココのスイーツが、どれも絶品なのがイケナイのよさ！
-
-<blank>
-
-「………………」
-
-「呆れないでもらえる？いつものことなので！」
-
-「あはは……、初めて目の前で見ると、ちょっとビックリするよね……」
-
-<blank>
-
-ん？なんかテーブルの端の方にいるコーディリア嬢に、ビビとカレンが何か言っている？
-
-特に変わった事は無いと思うんだけどな？
-
-<blank>
-
-今このテーブルにはルシール嬢、コーディリア嬢、カレン、アリシア、カーラ、と並んでいる。
-
-そしてその対面に、キャサリン嬢、ビビ、ミア、わたし、ジェシカ、と並び座っていた。
-
-ダーナとコリンは今いない。
-
-<blank>
-
-ダーナはいつもの様に食事を掻き込むと、サッサとお昼の鍛錬だと言って出て行ってしまったし、コリンは生徒会の用事があるとかでやはり居ない。
-
-なので今日はこの10人でテーブルを囲んでるワケだ。
-
-<blank>
-
-そんな感じでスイーツのスプーン攻勢は、両脇と正面から次々と繰り出されているのだたたた！ぁふン！
-
-<blank>
-
-<blank>
-
-カレンはあれ以来、すっかり人が変わった様に明るくなった。
-
-今迄の彼女は一体何だったのだろう？と言いたいほど、オドオドとした自信無さげな様子が鳴りをひそめ、屈託の無い笑みを辺りに振り撒く様になった。
-
-<blank>
-
-学園内でルゥリィ嬢達とニアミスした時も、特に腰が引ける様子も全く無かった。
-
-コチラとしてはヒヤヒヤして見守っていたのだが、その堂々とした態度には、ルゥリィ嬢達も呆気に取られていた様だ。
-
-<blank>
-
-控えめな性格のカレンしか知らないと、この変化には戸惑ってしまうのも分かる。
-
-しかし、コレが本来のカレンなのだとコーディリア嬢は言う。
-
-<blank>
-
-やっとカレンと会えた気がするとコーディリア嬢は嬉しそうに語る。
-
-コーディリア嬢は、昔カレンに酷い言葉をかけてしまったと後悔していて、仲直りの機会を探っていたのだとか。
-
-それも自身の暴走気味の性格が空回りを起こし、上手く行っていなかったとはルシール嬢の言葉。
-
-<blank>
-
-カレンも、ずっとコーディリア嬢と仲直りがしたかったのだと言っていた。
-
-カレンはカレンでやはり昔、コーディリア嬢を拒否した事がずっと引っかかっていて、顔をまともに見る事が出来なかったのだと言う。
-
-<blank>
-
-その2人が今目の前で、笑顔で語り合う姿を見ていると、そんな事情を聞いた身としてはホッコリとせずにはいられない。
-
-<blank>
-
-そんな彼女達に、ビビも感じるトコロがあるのだと思う。
-
-コーディリア嬢に対する当たりの強さが無くなっている気がするよね。
+-*** --****--****--****--****--****--****--****--****--****-
 
 <blank>
 
@@ -230,67 +92,135 @@
 
 <blank>
 
-<blank>
+The main cafeteria is quite busy again today.
 
-「でも、確かにこのプディングは美味しそうだよね」
+Today, which is Saturday in the original world, all students spend the afternoon free.
 
-「そ、そうですわね」
-
-「コーディも食べてご覧よ。ハイ、アーン」
-
-「じ、自分で食べられますわ！」
-
-「アーン」
-
-「で、ですから！」
-
-「アーン」
-
-「も、もお……、ぁーん……ン」
-
-「おいしい？」
-
-「ぉ、おいしい……です、わ」
-
-「良かった！コーディも変わらず可愛くて嬉しいよ」
-
-「ま、また！カレンは直ぐそう言う事を！」
-
-「……ダメ、だった？」
-
-「……ダメじゃ……無い、……です、わ」
-
-「ホント？！良かった！」
-
-「も、もぅ……」
+The students all enjoy chatting over a meal or after-dinner dessert about what they will do in the afternoon.
 
 <blank>
 
-<blank>
+There is a pumpkin fair going on in the diner right now.
 
-「………………」
-
-<blank>
-
-なんだ？
-
-今我々は何を見せられた？
-
-何だこのオトコマエ女子？
-
-何だこの真っ赤になってる可愛い生き物？
-
-「「……てぇてぇ」」
+The menu includes not only pumpkin dishes, but also a wide variety of sweets made from pumpkin.
 
 <blank>
 
-思わず溢れた言葉が誰かと被った。
+I chose "pumpkin pudding" today.
 
-声の発した方をチラ見れば、キャサリン嬢と目が合う。
+The aroma of pumpkin is very rich, and when you put it in your mouth, the gentle sweetness combined with the savory caramel sauce almost spills out.
 
-互いに無言で交わし合うサムズアップ！
+One bite and you will be filled with happiness, and your face will be full of joy.
 
-うむ！彼女とは上手くやって行けそうな気がしるよ！
+<blank>
+
+"Sue, you want to try some of this pie? Here you go.
+
+Kara, it's not fair! Sue-chan, the Koch cake is delicious too! Yes, ahhh!"
+
+No, no, no, Sue wants my bavarois first! Hi, ahhhhh..."
+
+This one is marble cake with chocolate! Here you go, ahhhhh."
+
+<blank>
+
+Carla, Mia, Alicia, and Jessica come in with their spoons out as usual.
+
+I am not a chick waiting to be fed!
+
+<blank>
+
+And yet! There is no way you can refuse the sweets in front of you. ...... The pie, the cake, the bavarois, the mouth receives them all without rejection!
+
+<blank>
+
+「「「「 delicious? 」」」」
+
+It's delicious ......!"
+
+<blank>
+
+And every time I have it, I still put my hand on my cheek and full it.
+
+This is like a reflex that the body reacts to on its own! So it can't be helped!
+
+The beauty of Ikenai is that all of Coco's sweets are excellent!
+
+<blank>
+
+".................."
+
+Can you please stop being so silly? It happens all the time!"
+
+"Haha ......, it's a bit of a surprise when you see it in front of you for the first time ......"
+
+<blank>
+
+Hmm? What are Bibi and Karen saying to Miss Cordelia at the end of the table?
+
+I don't think there's anything particularly unusual about it, do you?
+
+<blank>
+
+At this table now are Mistress Lucille, Mistress Cordilia, Karen, Alicia, and Carla.
+
+And sitting opposite them were Miss Catherine, Bibi, Mia, myself, Jessica, and others.
+
+Dana and Colin are gone now.
+
+<blank>
+
+Dana, as usual, had just finished her meal and left, saying she was going to work out for lunch, and Colin was still not there, saying he had something to do with the student council.
+
+That's why these 10 people are sitting around the table today.
+
+<blank>
+
+And so the spoon attack of sweets was being unleashed one after another from both sides and the front! A-huh!
+
+<blank>
+
+<blank>
+
+Since then, Karen has brightened up as if she had completely changed.
+
+What was she like before? Her shy and unconfident appearance has gone down, and she is smiling carefree around us.
+
+<blank>
+
+When he had a near miss with Miss Lurie and her friends at the school, he didn't seem to be particularly put off at all.
+
+I was watching them with concern, but Miss Lurie and the others seemed to be taken aback by their brazen attitude.
+
+<blank>
+
+Knowing only Karen's reserved nature, I can understand why this change would be confusing.
+
+But this is the real Karen, says Miss Cordelia.
+
+<blank>
+
+Miss Cordilia says happily that she feels like she has finally met Karen.
+
+Miss Cordilia said that she regretted the terrible words she had said to Karen in the past and was looking for an opportunity to make it up to her.
+
+According to Miss Lucille, this was not going well, as her own outburst personality was causing things to spin out of control.
+
+<blank>
+
+Karen also said that she had always wanted to make up with Miss Cordilia.
+
+Karen said that she was still stuck with the fact that she had rejected Miss Cordelia a long time ago and could not look her in the face properly.
+
+<blank>
+
+Seeing them smiling and talking to each other in front of me now, I can't help but feel relieved as someone who has heard of such a situation.
+
+<blank>
+
+I think Bibi also feels something for these girls.
+
+I feel like you are losing your pertinence to Miss Cordelia, don't you?
 
 <blank>
 
@@ -298,23 +228,93 @@
 
 <blank>
 
-「皆様、可愛いらしいお客様がいらっしゃっていますよ」
+<blank>
 
 <blank>
 
-そんなわたし達のテーブルに、同じクラスのセルキーさんが声をかけて来た。
+But surely this pudding looks good."
 
-青い髪のセルキーさんの後ろに、チョコりと覗く小さな姿。
+Yes, I suppose so.
 
-それは直ぐに前に進み出て、綺麗にカーテシーを披露して見せた。
+Cody said, "You should try some, too. Hi, Arn."
+
+I can eat it myself!"
+
+"Ahn."
+
+And so!
+
+"Ahn."
+
+"Oh, mooo......, ahhh......n."
+
+Tasty?"
+
+Oh, it's delicious ......, wow."
+
+I'm glad to hear that! And I'm glad Cody's as cute as ever."
+
+Oh, no, not again! Karen will be saying that soon!"
+
+"...... no, was it?"
+
+"...... no, not ......, it's ......, wow."
+
+Really? That's good!"
+
+Much, much more ......"
 
 <blank>
 
-「みなさま、お昼どきにしつれいいたします」
+<blank>
+
+".................."
 
 <blank>
 
-そこには、愛らしく礼をとるアニーの姿があった。
+What is it?
+
+Now what have we been shown?
+
+What's with these geeky girls?
+
+What's with this cute little red creature?
+
+"...... tee-hee."
+
+<blank>
+
+The words that came out of my mouth were covered with someone else's.
+
+I glanced in the direction of the voice and saw that I was eye to eye with Miss Catherine.
+
+Thumbs up to each other in silent exchange!
+
+Hmmm! I have a feeling we're going to get along just fine with her!
+
+<blank>
+
+<blank>
+
+<blank>
+
+Ladies and gentlemen, we have a lovely guest.
+
+<blank>
+
+At our table, Mr. Selkie, who was in the same class with us, approached us.
+
+A small figure peeks out behind the blue-haired selkie.
+
+It immediately stepped forward and showed off its curtesy beautifully.
+
+<blank>
+
+Ladies and gentlemen, we will see you at noon.
+
+<blank>
+
+There was Annie, curtsying adorably.
 
 
 
@@ -322,9 +322,9 @@
 
 ----------------
 
-お読み頂き、ありがとうございます。
+Thank you for reading.
 
 <blank>
 
-ブクマ、ご評価もありがとうございます！いつも励みになっております！！
+Thank you for your buzz and your rating! We are always encouraged!
 

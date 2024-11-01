@@ -1,150 +1,150 @@
-# 153話　焦り
+# 153 Episode 153 Impatience.
 
 ## 153話　焦り
 
-「ぅがゃあぁぁーーーーっ！！」
+Aaaaahhhh!"
 
 *「ぅがゃあぁぁーーーーっ！！」*
 
 &nbsp;
 
-パーカーの叫びに何事かとカレンが眼を向ければ、自分の足首を掴んでいた右腕を残し、パーカーがのけ反り倒れる姿が目に映る。
+When Karen turned to see what was going on at the sound of Parker's cry, she saw Parker sprawled on his back, leaving his right arm clutching his ankle.
 
 *パーカーの叫びに何事かとカレンが眼を向ければ、自分の足首を掴んでいた右腕を残し、パーカーがのけ反り倒れる姿が目に映る。*
 
-何が起きたのか分からぬまま、足首を掴む指を引き剥がし、そこからすぐさま転がる様に距離を取った。
+Not knowing what had happened, I yanked off the fingers gripping my ankle and quickly rolled away from it.
 
 *何が起きたのか分からぬまま、足首を掴む指を引き剥がし、そこからすぐさま転がる様に距離を取った。*
 
 &nbsp;
 
-「よう、動けるか？」
+Hey, can you move?"
 
 *「よう、動けるか？」*
 
-「え？！ハッガード君？！どうして？！」
+What? Mr. Haggard? Why?
 
 *「え？！ハッガード君？！どうして？！」*
 
 &nbsp;
 
-そこにアーヴィン・ハッガードが居た。
+Irving Haggard was there.
 
 *そこにアーヴィン・ハッガードが居た。*
 
-アーヴィンは、カレンに手を貸して立たせると、カレンを庇う様に一歩踏み出す。その手には、先端の欠けたナイトソードを握っていた。
+Irving helped Karen to her feet and took a step forward as if to protect her. In his hand, he holds a nightsword with a chipped tip.
 
 *アーヴィンは、カレンに手を貸して立たせると、カレンを庇う様に一歩踏み出す。その手には、先端の欠けたナイトソードを握っていた。*
 
 &nbsp;
 
-「い、今のは何？どうして此処に？」
+"Hey, what was that? How did you get in here?"
 
 *「い、今のは何？どうして此処に？」*
 
-「今のは……、まあ取って置きのひとつだ。さっきまで裏に居たんだけどな……。ちょいとばかり煩かったから来て見た」
+That was ......, well, one of the ones I took. I was in the back a while ago, ....... It was bothering me a little bit, so I came over.
 
 *「今のは……、まあ取って置きのひとつだ。さっきまで裏に居たんだけどな……。ちょいとばかり煩かったから来て見た」*
 
-「裏って……、待って！血が！」
+"Back to ......, wait! Blood!"
 
 *「裏って……、待って！血が！」*
 
-「あ？ああ、問題無い、少し寝たから止まった」
+Oh?" Yeah, no problem, I got some sleep and it stopped."
 
 *「あ？ああ、問題無い、少し寝たから止まった」*
 
-「そんな……寝たって……」
+"Such ...... sleeping ......"
 
 *「そんな……寝たって……」*
 
 &nbsp;
 
-突然現れたアーヴィンに、カレンは驚きを隠せない。
+Karen cannot hide her surprise at Irving's sudden appearance.
 
 *突然現れたアーヴィンに、カレンは驚きを隠せない。*
 
-彼は服を酷く血で汚しているのに、それを何でもないと軽く言う。
+He has blood stained his clothes badly, yet he makes light of it and says it is nothing.
 
 *彼は服を酷く血で汚しているのに、それを何でもないと軽く言う。*
 
-どう見ても直ぐに治療が必要だと思われる出血量なのに、だ。
+The amount of blood loss was enough to require immediate medical treatment.
 
 *どう見ても直ぐに治療が必要だと思われる出血量なのに、だ。*
 
-それが平然な顔をして、寝たから問題無いなどと言う。
+They look unconcerned and say that there is no problem because they have gone to bed.
 
 *それが平然な顔をして、寝たから問題無いなどと言う。*
 
 &nbsp;
 
-「そんな事よりそっちは平気なのか？足元が随分おぼついて無いぞ」
+"Are you all right? You look a little unsteady on your feet.
 
 *「そんな事よりそっちは平気なのか？足元が随分おぼついて無いぞ」*
 
 &nbsp;
 
-確かにカレンの状態もまともでは無い。
+Certainly Karen's condition is not decent.
 
 *確かにカレンの状態もまともでは無い。*
 
-叩き付けられた衝撃で、背中が酷く痛い。呼吸をするのもやっとの思いだ。それに左腕の橈骨は恐らく折れている。
+My back hurts terribly from the impact of the slam. I can barely breathe. And the radius of my left arm is probably broken.
 
 *叩き付けられた衝撃で、背中が酷く痛い。呼吸をするのもやっとの思いだ。それに左腕の橈骨は恐らく折れている。*
 
-そして足が、石にでもなったかの様に異様に重い。
+And my legs were unusually heavy, as if they were turned to stone.
 
 *そして足が、石にでもなったかの様に異様に重い。*
 
 &nbsp;
 
-「でめ゛ぇーーーっっ！ごのガギぃ！見づけだぞぉガギがぁ！」
+De-gee-da-eee! Gogo no gagi! I'm gonna get you, you little gurgi!"
 
 *「でめ゛ぇーーーっっ！ごのガギぃ！見づけだぞぉガギがぁ！」*
 
 &nbsp;
 
-フルークがアーヴィンを見つけ、怒鳴り上げた。
+Fluke found Irving and yelled at him.
 
 *フルークがアーヴィンを見つけ、怒鳴り上げた。*
 
-その顔は、昨日の屈辱を思い出し憤怒に歪み、赤銅色に変えている。
+His face is contorted in rage, remembering yesterday's humiliation and turning reddish-bronze.
 
 *その顔は、昨日の屈辱を思い出し憤怒に歪み、赤銅色に変えている。*
 
-それは、とても人間の物とは思えない様相だ。
+It looks very un-human.
 
 *それは、とても人間の物とは思えない様相だ。*
 
 &nbsp;
 
-「ぎのゔのがりをぉ、がえじでやるぅぅ！！」
+Gi no reference gari oo gaeji dey!"
 
 *「ぎのゔのがりをぉ、がえじでやるぅぅ！！」*
 
-「なんだありゃ？誰だ？大体今の奴といい、コイツら人間か？」
+What the hell is that? Who are they? Are they even human, like that guy?"
 
 *「なんだありゃ？誰だ？大体今の奴といい、コイツら人間か？」*
 
-「アレは多分、金貸しのロドリゴさんだと……思う」
+That's probably Mr. Rodrigo the moneylender, ...... thinks."
 
 *「アレは多分、金貸しのロドリゴさんだと……思う」*
 
-「うん？アレが、ロリリンゴさん……？」
+"Yeah? That's the one, Lori Lingo, ......?"
 
 *「うん？アレが、ロリリンゴさん……？」*
 
 &nbsp;
 
-フルークの名を知らぬカレンが、そのまま偽名を告げる。
+Karen, who does not know Fluke's name, tells him her alias as it is.
 
 *フルークの名を知らぬカレンが、そのまま偽名を告げる。*
 
-アーヴィンは、それがフルークの偽名である事は、フィリップから聞き及んでいた。
+Irving had heard from Philip that it was an alias for Fluke.
 
 *アーヴィンは、それがフルークの偽名である事は、フィリップから聞き及んでいた。*
 
-だが、今目の前に居るモノが、昨日見た人物と同じ存在なのかと目を細めて訝しむ。
+However, I narrowed my eyes and wondered if the thing in front of me now was the same person I saw yesterday.
 
 *だが、今目の前に居るモノが、昨日見た人物と同じ存在なのかと目を細めて訝しむ。*
 
@@ -152,33 +152,33 @@
 
 &nbsp;
 
-「ぐぅおぉぉおぉーーー！！」
+Goooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo!"
 
 *「ぐぅおぉぉおぉーーー！！」*
 
 &nbsp;
 
-パーカーが切り離された自分の腕を拾い、その傷口を宛てがうと、ウゾウゾと肉が蠢きそのまま繋がろうとし始めた。
+When Parker picked up his severed arm and addressed the wound, the oozing flesh began to wriggle and try to connect.
 
 *パーカーが切り離された自分の腕を拾い、その傷口を宛てがうと、ウゾウゾと肉が蠢きそのまま繋がろうとし始めた。*
 
 &nbsp;
 
-「うっ！」
+Ugh!"
 
 *「うっ！」*
 
-「うわっ！気持ち悪ぃな！やっぱ人間じゃ無くねぇか？！」
+Wow! That's disgusting! You're not even human, are you?
 
 *「うわっ！気持ち悪ぃな！やっぱ人間じゃ無くねぇか？！」*
 
 &nbsp;
 
-その悍ましい光景に、カレンが口元を抑える。
+Karen holds her mouth shut at the fearless sight.
 
 *その悍ましい光景に、カレンが口元を抑える。*
 
-アーヴィンは、ソレを人として認識するのを素直に止めた。
+Irving honestly stopped recognizing Sole as a person.
 
 *アーヴィンは、ソレを人として認識するのを素直に止めた。*
 
@@ -186,267 +186,267 @@
 
 &nbsp;
 
-不意にアーヴィンがカレンの二の腕に手をかけ、そのまま彼女の身体を引き、手に持っていたナイトソードをその場で払う様に軽く振り切った。
+Suddenly, Irving put his hand on Karen's second arm, pulled her body as it was, and lightly swung the nightsword in his hand as if to dispel it on the spot.
 
 *不意にアーヴィンがカレンの二の腕に手をかけ、そのまま彼女の身体を引き、手に持っていたナイトソードをその場で払う様に軽く振り切った。*
 
-続けてカレンの目の前に魔獣が転がる。
+The magical beast continues to roll in front of Karen's eyes.
 
 *続けてカレンの目の前に魔獣が転がる。*
 
-アーヴィンがナイトソードを振い、飛び込んで来た魔獣の左前脚を切り落としたのだ。
+Irving swung his nightsword and chopped off the left foreleg of a magical beast that had jumped in.
 
 *アーヴィンがナイトソードを振い、飛び込んで来た魔獣の左前脚を切り落としたのだ。*
 
 &nbsp;
 
-魔獣がその場でジタバタと藻掻いている。それをアーヴィンは蹴り飛ばし、カレンから遠ざけた。
+The magical beast was jittering and scratching algae on the spot. Irving kicked it away from Karen.
 
 *魔獣がその場でジタバタと藻掻いている。それをアーヴィンは蹴り飛ばし、カレンから遠ざけた。*
 
 &nbsp;
 
-「ガギがぁあぁ！い゛ぎがっでんぢゃねぇえぇぞぉぉぉ！」
+Gagi ga ah! Giggityaahhhh!"
 
 *「ガギがぁあぁ！い゛ぎがっでんぢゃねぇえぇぞぉぉぉ！」*
 
 &nbsp;
 
-フルークが忌々し気に持っている棍棒を足元に叩き付け、その場の石畳を砕く。
+Fluke abominably slams the cudgel he is holding at his feet, shattering the cobblestones in its place.
 
 *フルークが忌々し気に持っている棍棒を足元に叩き付け、その場の石畳を砕く。*
 
 &nbsp;
 
-「バラ゛バラ゛のぉ！やづざぎにしでやンぞぉぉぉおぉーーー！！」
+"Oh, "ba-ba-ba-ba-ba-ba-ba-ba! I'm gonna get you in a heap!"
 
 *「バラ゛バラ゛のぉ！やづざぎにしでやンぞぉぉぉおぉーーー！！」*
 
-「ああ？何言ってんだか分んねぇよ。ンな事より……。アニー達をこんなにしたのは、テメェらか？」
+Oh? I don't know what you're talking about. I don't care what you're talking about. ...... You're the ones who did this to Annie and the kids?"
 
 *「ああ？何言ってんだか分んねぇよ。ンな事より……。アニー達をこんなにしたのは、テメェらか？」*
 
 &nbsp;
 
-喚き立てるフルークに対し、ユラリと身体を揺らし、それに向き合うアーヴィンが問い質す。
+Irving, who is facing Fulk and shaking his body, asks him a question.
 
 *喚き立てるフルークに対し、ユラリと身体を揺らし、それに向き合うアーヴィンが問い質す。*
 
 &nbsp;
 
-「あ゛あ゛？！ぞのメズガギどもば、オデざまだぢにざがらっだがだな！げはっげははは！！」
+I'll be damned if I'm going to let them get away with that! Gee ha ha ha ha ha ha ha!
 
 *「あ゛あ゛？！ぞのメズガギどもば、オデざまだぢにざがらっだがだな！げはっげははは！！」*
 
-「オレがちょいと寝てる間に、随分好き勝手やってくれたよな……」
+You've done a lot while I've been sleeping. ......
 
 *「オレがちょいと寝てる間に、随分好き勝手やってくれたよな……」*
 
 &nbsp;
 
-笑い声を上げるフルークを睨むアーヴィンの目が、僅かに細まり剣呑な光が灯る。
+Irving's eyes narrow slightly and a swarthy light comes on as he glares at Fluke, who laughs.
 
 *笑い声を上げるフルークを睨むアーヴィンの目が、僅かに細まり剣呑な光が灯る。*
 
 &nbsp;
 
-「う゛っぜぃンだよ！ごのガギがぁ！い゛まごごで！ぶっごろじでやンよ！！」
+I'm in a foul mood! I'm a five-horned gurgi! I'm going to kill you! I'm gonna beat the shit out of you!
 
 *「う゛っぜぃンだよ！ごのガギがぁ！い゛まごごで！ぶっごろじでやンよ！！」*
 
 &nbsp;
 
-「ぅごあぁぁあああぁあああああーーーーーーーー！！！！」
+Ooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo ！！！！"
 
 *「ぅごあぁぁあああぁあああああーーーーーーーー！！！！」*
 
-「ハッガード君！！！」
+Mr. Haggard!!!!"
 
 *「ハッガード君！！！」*
 
 &nbsp;
 
-フルークが怒鳴るのと同時に、パーカーが真横からアーヴィンに飛び掛かって来た。
+At the same time Fluke yelled at him, Parker jumped on Irving from right beside him.
 
 *フルークが怒鳴るのと同時に、パーカーが真横からアーヴィンに飛び掛かって来た。*
 
-ソレを見たカレンが咄嗟に叫ぶ。
+Karen saw this and shouted as soon as she saw it.
 
 *ソレを見たカレンが咄嗟に叫ぶ。*
 
-だがアーヴィンは相手を一瞥もせずそれをユルリと躱し、上げた腕に持つナイトソードをそのまま力み無く打ち下ろす。
+Irving, however, does not even take a glance at his opponent, but instead just ducks, and without any effort, he brings down the nightsword in his upraised arm.
 
 *だがアーヴィンは相手を一瞥もせずそれをユルリと躱し、上げた腕に持つナイトソードをそのまま力み無く打ち下ろす。*
 
-瞬間、ナイトソードの刃はパーカーの二の腕の真ん中を断ち切った。
+A moment later, the blade of the nightsword sliced through the middle of Parker's second arm.
 
 *瞬間、ナイトソードの刃はパーカーの二の腕の真ん中を断ち切った。*
 
 &nbsp;
 
-「がぎゅっ！ぐゅぎゃあぁぁあああああああ！！！」
+Giggle!
 
 *「がぎゅっ！ぐゅぎゃあぁぁあああああああ！！！」*
 
-「オレは言ったよな……？」
+I told you, didn't I ......?"
 
 *「オレは言ったよな……？」*
 
 &nbsp;
 
-腕を切り落とされ転がるパーカーを見向きもせず、アーヴィンはフルークに目を向ける。
+Not looking at Parker, who rolls around with his arm cut off, Irving turns to Fluke.
 
 *腕を切り落とされ転がるパーカーを見向きもせず、アーヴィンはフルークに目を向ける。*
 
 &nbsp;
 
-「次にそのツラ見た時は――」
+Next time I see that face--"
 
 *「次にそのツラ見た時は――」*
 
-「あ゛？！」
+Aaah!
 
 *「あ゛？！」*
 
 &nbsp;
 
-アーヴィンがナイトソードをフルークに向け、足を踏み出す。
+Irving points his nightsword at Fluke and steps out.
 
 *アーヴィンがナイトソードをフルークに向け、足を踏み出す。*
 
 &nbsp;
 
-「速攻、首落とす――と」
+"I'm going to lose my head as fast as I can."
 
 *「速攻、首落とす――と」*
 
 &nbsp;
 
-「かひゅっ？！」
+Ka-hyuh?
 
 *「かひゅっ？！」*
 
 &nbsp;
 
-その場にいた誰も、アーヴィンの動きを追う事が出来ない。
+No one present could follow Irving's movements.
 
 *その場にいた誰も、アーヴィンの動きを追う事が出来ない。*
 
-気付いた時には、フルークの首が傾いていた。
+I noticed that Fluke's head was tilted back.
 
 *気付いた時には、フルークの首が傾いていた。*
 
 &nbsp;
 
-「くそぉ……やっぱ浅ぇ」
+Damn ......, I knew I was shallow."
 
 *「くそぉ……やっぱ浅ぇ」*
 
 &nbsp;
 
-フルークの背後に立つアーヴィンが、悔し気に呟く。
+Irving, standing behind Fluke, mutters in frustration.
 
 *フルークの背後に立つアーヴィンが、悔し気に呟く。*
 
-ほんの一瞬でそこまで移動したアーヴィンを、カレンはただ驚きで目を見開いて見詰めていた。
+Karen just stared wide-eyed in amazement at Irving, who had moved that far in just a few moments.
 
 *ほんの一瞬でそこまで移動したアーヴィンを、カレンはただ驚きで目を見開いて見詰めていた。*
 
 &nbsp;
 
-「が！ボゲぼっ！ゴボぼぼっ！」
+The "! Bogebobo! Gobobobo!"
 
 *「が！ボゲぼっ！ゴボぼぼっ！」*
 
 &nbsp;
 
-フルークの首は真横に切り裂かれたが落ちてはいない。
+Fluke's head was cut right across, but did not fall.
 
 *フルークの首は真横に切り裂かれたが落ちてはいない。*
 
-皮一枚で繋がっている状態だ。
+They are connected by a single layer of skin.
 
 *皮一枚で繋がっている状態だ。*
 
-それをフルークは自らの手で押さえ、元の位置に戻すと、泡立つ様に傷口が繋がって行く。
+Fluke held it in his own hand and put it back in place, and the wounds connected like bubbles.
 
 *それをフルークは自らの手で押さえ、元の位置に戻すと、泡立つ様に傷口が繋がって行く。*
 
 &nbsp;
 
-「……やっぱお前、人間じゃ無ぇよな？」
+"...... you're not human after all, are you?"
 
 *「……やっぱお前、人間じゃ無ぇよな？」*
 
 &nbsp;
 
-アーヴィンの持っていたナイトソードが、その半ばから折れて落ちた。
+The nightsword that Irving was holding broke off halfway through and fell off.
 
 *アーヴィンの持っていたナイトソードが、その半ばから折れて落ちた。*
 
-音を立てて足元に落ちたナイトソードの欠片を見て、アーヴィンが小さく舌打ちをする。
+Irving gives a small click of his tongue when he sees the piece of the nightsword that fell noisily at his feet.
 
 *音を立てて足元に落ちたナイトソードの欠片を見て、アーヴィンが小さく舌打ちをする。*
 
 &nbsp;
 
-そのアーヴィンが、突然口元を押さえ込んだ。
+This Irving suddenly clamped down on his mouth.
 
 *そのアーヴィンが、突然口元を押さえ込んだ。*
 
 &nbsp;
 
-「ぅぼっっ」
+"Oooooh!"
 
 *「ぅぼっっ」*
 
 &nbsp;
 
-口元に当てた指の間から、どす黒い血がボトボトと垂れ落ちた。
+A dribble of black blood dripped from between the fingers that had been placed over his mouth.
 
 *口元に当てた指の間から、どす黒い血がボトボトと垂れ落ちた。*
 
-足元にはズボンから滴る血が、血溜まりを作り始めている。
+Blood dripping from his pants is beginning to form a pool at his feet.
 
 *足元にはズボンから滴る血が、血溜まりを作り始めている。*
 
 &nbsp;
 
-「ハッガード君？！」
+Mr. Haggard?
 
 *「ハッガード君？！」*
 
 &nbsp;
 
-それを見たカレンが叫びを上げた。
+When Karen saw this, she screamed.
 
 *それを見たカレンが叫びを上げた。*
 
-カレンはその場で石畳に座り込んでいる。最早彼女には、立っていられるだけの力が残っていないのだ。
+Karen is sitting on the cobblestones on the spot. She has no strength left to stand.
 
 *カレンはその場で石畳に座り込んでいる。最早彼女には、立っていられるだけの力が残っていないのだ。*
 
-それでも、カレンはアーヴィンに少しでも近付こうと気持ちが走り、石畳を指で掻く。
+Still, Karen's mind raced to get as close to Irving as possible, and she scratched the cobblestones with her fingers.
 
 *それでも、カレンはアーヴィンに少しでも近付こうと気持ちが走り、石畳を指で掻く。*
 
 &nbsp;
 
-「問題無い。ちっとばかり傷口開いただけだ」
+No problem. It's just a little open wound."
 
 *「問題無い。ちっとばかり傷口開いただけだ」*
 
-「そんな！ちょっとなんて……！」
+Oh no! What a little ......!"
 
 *「そんな！ちょっとなんて……！」*
 
 &nbsp;
 
-アーヴィンはカレンに向け、左手を軽く上げて「問題無い」と告げる。
+Irvin turns to Karen and lightly raises his left hand to tell her, "No problem.
 
 *アーヴィンはカレンに向け、左手を軽く上げて「問題無い」と告げる。*
 
-そしてそのまま、口の中に残る血の塊を吐き捨てた。
+And just like that, he spat out the remaining clots of blood in his mouth.
 
 *そしてそのまま、口の中に残る血の塊を吐き捨てた。*
 
@@ -454,123 +454,123 @@
 
 &nbsp;
 
-――何なんだ？コイツは？アンデッドか？いや、生きてるのか。
+--What is this guy? What is it? Is it undead? No, he's alive.
 
 *――何なんだ？コイツは？アンデッドか？いや、生きてるのか。*
 
-アンデッドなら、浅層で湧くゾンビソルジャーの方がずっと質悪いよな。
+If it's the undead, the zombie soldiers that spring up in the shallow layers are much worse quality.
 
 *アンデッドなら、浅層で湧くゾンビソルジャーの方がずっと質悪いよな。*
 
-アイツらはもっと速いし力も強い。大体にして頭斬り飛ばしたくらいじゃ、動きは止まらない。
+They are much faster and stronger. A simple slash to the head is not enough to stop them.
 
 *アイツらはもっと速いし力も強い。大体にして頭斬り飛ばしたくらいじゃ、動きは止まらない。*
 
-コイツ等はそれに比べりゃ、ただタフなだけって感じだ。
+These guys are just tough by comparison.
 
 *コイツ等はそれに比べりゃ、ただタフなだけって感じだ。*
 
-やっぱ、頭と心臓潰さないと終わらないか……。
+I knew I had to crush your head and heart to finish. ......
 
 *やっぱ、頭と心臓潰さないと終わらないか……。*
 
-ナイトソードもこんなんだから、自分の腕一本も潰す気でやらないと駄目だな。
+You have to be willing to crush even one of your own arms because the nightsword is like this.
 
 *ナイトソードもこんなんだから、自分の腕一本も潰す気でやらないと駄目だな。*
 
-……それにしても、ナンか胸元がムカムカしてて気持ち悪ぃな。さっきからグルグル目が回ってんのも治らねぇし……。
+I've been feeling a bit queasy around the chest. ...... My eyes have been rolling around since a while ago, and it hasn't gone away. ......
 
 *……それにしても、ナンか胸元がムカムカしてて気持ち悪ぃな。さっきからグルグル目が回ってんのも治らねぇし……。*
 
-血を出し過ぎたか？
+Did I bleed too much?
 
 *血を出し過ぎたか？*
 
-まぁ、ココで手を抜くワケにもいかねぇからな。もうそろそろヤバそうだし……。大変な事になる前に、サッサと終わらせないとな――
+Well, we can't cut corners here. It's about to get bad. ...... We've got to get this over with before it becomes a big problem.
 
 *まぁ、ココで手を抜くワケにもいかねぇからな。もうそろそろヤバそうだし……。大変な事になる前に、サッサと終わらせないとな――*
 
 &nbsp;
 
-「もう終わらせるぞ」
+Let's get this over with."
 
 *「もう終わらせるぞ」*
 
 &nbsp;
 
-アーヴィンが左手を軽く前に突き出し、剣身の中程で折れたナイトソードを肩に担ぐ様に構えを取った。
+Irving lightly thrust his left hand forward and took a stance as if to carry his nightsword, which was broken in the middle of its body, on his shoulder.
 
 *アーヴィンが左手を軽く前に突き出し、剣身の中程で折れたナイトソードを肩に担ぐ様に構えを取った。*
 
 &nbsp;
 
-「げひゃびゃひゃ！がだだがボドボドでゃでぇが！デメぇでゃオデばごどぜねぇぎょ！オデがごのででやづざぎにぎでやぐど！！ぎゃっぎゃっぎゃっぎゃ！」
+Gahya bhaiya bhaiya! But it's a boodle boodle boodle boodle boodle boodle boodle boodle boodle boodle boodle! Dame dey yagoda odeba doe yagoda! Ode ga gode yadzagigiga de yagudo! No, no, no, no, no, no, no, no, no, no!
 
 *「げひゃびゃひゃ！がだだがボドボドでゃでぇが！デメぇでゃオデばごどぜねぇぎょ！オデがごのででやづざぎにぎでやぐど！！ぎゃっぎゃっぎゃっぎゃ！」*
 
 &nbsp;
 
-「そうか？少し無理すりゃ、何とかなると思うぞ？」
+"Really? I think if you push yourself a little bit, you can get by, don't you?"
 
 *「そうか？少し無理すりゃ、何とかなると思うぞ？」*
 
-「げばぎゃぎゃ！ぞうがよ！」
+Geba-gya-gya! Elephant!"
 
 *「げばぎゃぎゃ！ぞうがよ！」*
 
 &nbsp;
 
-フルークが手に持つ棍棒を振る。
+Fluke swings the cudgel in his hand.
 
 *フルークが手に持つ棍棒を振る。*
 
-そこから魔力の光が零れると、犬の魔獣の一匹が向きを変え、カレンへと向かい走り出した。
+As the magical light spilled from it, one of the canine magical beasts turned and ran toward Karen.
 
 *そこから魔力の光が零れると、犬の魔獣の一匹が向きを変え、カレンへと向かい走り出した。*
 
 &nbsp;
 
-「？！てめ！」
+? You!"
 
 *「？！てめ！」*
 
 &nbsp;
 
-アーヴィンが咄嗟に意識を走る魔獣に向け直す。
+Irving quickly turns his attention back to the running magical beast.
 
 *アーヴィンが咄嗟に意識を走る魔獣に向け直す。*
 
-そして、瞬間的に溜めた『氣』を乗せたナイトソードを振り切った。
+Then, he swung his nightsword, which carried the "Ki" he had momentarily accumulated.
 
 *そして、瞬間的に溜めた『氣』を乗せたナイトソードを振り切った。*
 
 &nbsp;
 
-『スラッシュ・インパクト！』
+Slash Impact!"
 
 *『スラッシュ・インパクト！』*
 
 &nbsp;
 
-アーヴィンが技の名を叫び、衝撃がナイトソードより放たれる。
+Irving shouts the name of the technique, and a shock is released from the nightsword.
 
 *アーヴィンが技の名を叫び、衝撃がナイトソードより放たれる。*
 
 &nbsp;
 
-それは、スージィが使う剣氣を飛ばす『インパクト系』と呼ばれるスキル。
+It is a skill called "Impact-type" that sends the sword ki flying, which Suzy uses.
 
 *それは、スージィが使う剣氣を飛ばす『インパクト系』と呼ばれるスキル。*
 
-アーヴィンはそれを、随分前から使い熟す様になっていた。
+Irving had long since become proficient in its use.
 
 *アーヴィンはそれを、随分前から使い熟す様になっていた。*
 
-威力こそ無いモノの、アーヴィンは教えられてから一月もかけずに、ソレを放ってしまったのだ。
+Although it was not powerful, Irving had released it less than a month after he was taught.
 
 *威力こそ無いモノの、アーヴィンは教えられてから一月もかけずに、ソレを放ってしまったのだ。*
 
-それを見たスージィが白目を剥き、暫く開いた顎が閉じなくなった出来事は過去の話だ。
+The incident in the past, when Suzy saw this, her eyes turned white and her jaw, which had been open for a while, would not close.
 
 *それを見たスージィが白目を剥き、暫く開いた顎が閉じなくなった出来事は過去の話だ。*
 
@@ -578,55 +578,55 @@
 
 &nbsp;
 
-放たれた衝撃は、一瞬で魔獣に追い付き、その腰を切り裂いた。
+The impact released caught up with the magical beast in an instant and sliced through its waist.
 
 *放たれた衝撃は、一瞬で魔獣に追い付き、その腰を切り裂いた。*
 
-叫びを上げる魔獣が、ジタバタと蠢きながらカレンの目の前まで転がって来た。
+The screaming magical beast rolled up to Karen's doorstep, jittery and writhing.
 
 *叫びを上げる魔獣が、ジタバタと蠢きながらカレンの目の前まで転がって来た。*
 
 &nbsp;
 
-同時にナイトソードの小さな欠片が、アーヴィンの足元に落ちる。
+At the same time, a small piece of the nightsword falls at Irving's feet.
 
 *同時にナイトソードの小さな欠片が、アーヴィンの足元に落ちる。*
 
 &nbsp;
 
-「ちっ！！」
+Tsk!"
 
 *「ちっ！！」*
 
 &nbsp;
 
-そのアーヴィンの頭上に、フルークの棍棒が落ちて来る。
+Fluke's cudgel falls on Irving's head.
 
 *そのアーヴィンの頭上に、フルークの棍棒が落ちて来る。*
 
-アーヴィンは躱しざまにその腕を斬り付けるが、腕を落とすまでには至らない。
+Irving slashes at the arm as he dodges, but not before dropping the arm.
 
 *アーヴィンは躱しざまにその腕を斬り付けるが、腕を落とすまでには至らない。*
 
-血を噴き出した傷口は、忽ちの内に修復してしまう。
+The wound that spurts out blood is repaired in a matter of seconds.
 
 *血を噴き出した傷口は、忽ちの内に修復してしまう。*
 
 &nbsp;
 
-「このヤロウ、つまんねぇ時間稼ぎを……」
+"You bastard, stalling for time with your boring ......"
 
 *「このヤロウ、つまんねぇ時間稼ぎを……」*
 
-「げぎゃぎゃぎゃ！どぉよ！デメぇぢゃ、オデをごどぜねぇぞ！ごどざれンのば、デメぇらっっ！！」
+Gee whiz! What's wrong? I'm not going to let you get away with this! I can't get out of your face!
 
 *「げぎゃぎゃぎゃ！どぉよ！デメぇぢゃ、オデをごどぜねぇぞ！ごどざれンのば、デメぇらっっ！！」*
 
-「このバカヤロが！悪い事言わねぇからオレにやられとけ！もう時間ねぇんだよ！」
+"You asshole! I'm not going to hurt you, so let me do it! I don't have time for this!
 
 *「このバカヤロが！悪い事言わねぇからオレにやられとけ！もう時間ねぇんだよ！」*
 
-「ねごどい゛っでんぢゃねぇ！やだでんどば、デメぇら！！」
+"Don't you dare! No, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no!
 
 *「ねごどい゛っでんぢゃねぇ！やだでんどば、デメぇら！！」*
 
@@ -634,63 +634,63 @@
 
 &nbsp;
 
-このクソ餓鬼、自分がやられそうで焦ってやがる。
+This fucking brat is in a hurry because he's about to get himself beat up.
 
 *このクソ餓鬼、自分がやられそうで焦ってやがる。*
 
-この身体と力なら、このガキがどんな使い手だって必ず殺せる。
+With this body and power, I can surely kill this kid no matter what kind of user he is.
 
 *この身体と力なら、このガキがどんな使い手だって必ず殺せる。*
 
-どういう訳か、既に身体がボロボロになっている様だしな。
+Somehow, it seems like your body is already falling apart.
 
 *どういう訳か、既に身体がボロボロになっている様だしな。*
 
-幾らもせずに、スタミナも切れて動けなくなる筈だ。
+In less than a few days, he should run out of stamina and be unable to move.
 
 *幾らもせずに、スタミナも切れて動けなくなる筈だ。*
 
-その上、得物の剣も半ばから折れている。あれでは使い物になる訳が無い。
+Moreover, his sword was broken in the middle. There was no way he could use it.
 
 *その上、得物の剣も半ばから折れている。あれでは使い物になる訳が無い。*
 
-もう時間の問題だ。
+It's only a matter of time now.
 
 *もう時間の問題だ。*
 
 &nbsp;
 
-一方こちらは時間が経つほど、全身に力が溢れて来る。負ける気など全くしない。
+On the other hand, the more time passes, the more power floods into my body. I have no intention of losing at all.
 
 *一方こちらは時間が経つほど、全身に力が溢れて来る。負ける気など全くしない。*
 
-漲る全能感が尋常ではない。今の自分に敵うヤツなど居る筈がないのだ。
+The sense of omnipotence that pervades me is extraordinary. There is no one who can compete with me now.
 
 *漲る全能感が尋常ではない。今の自分に敵うヤツなど居る筈がないのだ。*
 
 &nbsp;
 
-この餓鬼を捻り殺したら、次はあの女だ。
+If I twist this brat to death, that woman is next.
 
 *この餓鬼を捻り殺したら、次はあの女だ。*
 
-石を奪い、さっき好き勝手やってくれた礼をタップリ返してやる。
+I take the stone and tap back a thank you for doing whatever I wanted earlier.
 
 *石を奪い、さっき好き勝手やってくれた礼をタップリ返してやる。*
 
-身体が裂けるまで、存分に嬲り者にしてやる！
+I will torture you to the fullest until your body is ripped open!
 
 *身体が裂けるまで、存分に嬲り者にしてやる！*
 
 &nbsp;
 
-「げぎゃびゃひゃぎゃぎゃ！ざあ！ぶぢごどじでやンぎょ！！げぎゃぎゃぎゃぎゃぎゃぎゃ！」
+Geegabya-bye hiya-gyagyagyagya! Zaah! Buchidoji de yangyago! Gee, gee, gee, gee, gee, gee, gee, gee, gee, gee, gee, gee, gee!
 
 *「げぎゃびゃひゃぎゃぎゃ！ざあ！ぶぢごどじでやンぎょ！！げぎゃぎゃぎゃぎゃぎゃぎゃ！」*
 
 &nbsp;
 
-フルークがこれから行う蹂躙劇を思い描き、悍ましい笑いを上げ続ける。
+He continues to laugh fearlessly as he contemplates the play of violation that Fluke is about to perform.
 
 *フルークがこれから行う蹂躙劇を思い描き、悍ましい笑いを上げ続ける。*
 
@@ -712,25 +712,25 @@
 
 &nbsp;
 
-その時、ズシリと大地が揺れた。
+At that moment, the earth shook.
 
 *その時、ズシリと大地が揺れた。*
 
 &nbsp;
 
-何か巨大な物体が落ちた様な衝撃を、足元に、大気に感じて身体が揺れたのだ。
+I felt the impact of some huge object falling on my feet and in the air, and my body shook.
 
 *何か巨大な物体が落ちた様な衝撃を、足元に、大気に感じて身体が揺れたのだ。*
 
 &nbsp;
 
-「ああ……、時間切れだ」
+Oh, ......, time's up."
 
 *「ああ……、時間切れだ」*
 
 &nbsp;
 
-アーヴィンが、諦めた様に小さく呟いた。
+Irving muttered quietly, as if he had given up.
 
 *アーヴィンが、諦めた様に小さく呟いた。*
 
@@ -740,7 +740,7 @@
 
 ----------------
 
-お読み頂き、ありがとうございます。
+Thank you for reading.
 
 *お読み頂き、ありがとうございます。*
 
@@ -748,13 +748,13 @@
 
 &nbsp;
 
-誤字脱字のご指摘、ありがとうございます！
+Thank you for pointing out the typo!
 
 *誤字脱字のご指摘、ありがとうございます！*
 
 &nbsp;
 
-ブクマ、ご評価もありがとうございます！いつも励みになっております！！
+Thank you for your buzz and your rating! We are always encouraged!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
 
