@@ -8,7 +8,7 @@ def merge_txt_files(folder_path):
     all_txt_files = glob.glob(os.path.join(folder_path, "*.txt"))
     
     # Calculate the number of batches needed
-    batch_size = 40
+    batch_size = 150
     num_batches = math.ceil(len(all_txt_files) / batch_size)
 
     # Process each batch
