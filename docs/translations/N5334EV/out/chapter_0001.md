@@ -267,9 +267,7 @@ Her lips slowly part and a word escapes.
 
 &nbsp;
 
-◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆
-
-*◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆*
+◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆
 
 &nbsp;
 

@@ -1,5 +1,6 @@
 import os
 import sys
+import re
 
 def merge_files(jp_dir, en_dir, output_dir):
     # Ensure output directory exists
@@ -41,6 +42,8 @@ def merge_files(jp_dir, en_dir, output_dir):
                 elif jp_line.strip().startswith("#"):
                     output_file.write(en_line.strip() + '\n')
                     output_file.write('\n#' + jp_line.strip() + '\n')
+                elif not re.search(r'[一-鿿぀-ゟ゠-ヿA-Za-z0-9「」]', jp_line):  # If jp_line has no Japanese characters, numbers, letters, or brackets
+                    output_file.write(jp_line.strip() + '\n')
                 else:
                     output_file.write(en_line.strip() + '\n')
                     output_file.write('\n*' + jp_line.strip() + '*\n')

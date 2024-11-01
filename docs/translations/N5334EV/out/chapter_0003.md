@@ -471,43 +471,23 @@ His hesitant hand starts to move as if he has made up his mind, and...
 
 ◇
 
-*◇*
+◇
 
 ◇
 
-*◇*
+◇
 
 ◇
 
-*◇*
+◇
 
 ◇
 
-*◇*
+◇
 
 ◇
 
-*◇*
-
 ◇
-
-*◇*
-
-◇
-
-*◇*
-
-◇
-
-*◇*
-
-◇
-
-*◇*
-
-◇
-
-*◇*
 
 &nbsp;
 
@@ -593,39 +573,21 @@ As she turned towards that place, she began to squirm again, and then...
 
 ◆
 
-*◆*
+◆
 
 ◆
 
-*◆*
+◆
 
 ◆
 
-*◆*
+◆
 
 ◆
 
-*◆*
-
 ◆
 
-*◆*
-
 ◆
-
-*◆*
-
-◆
-
-*◆*
-
-◆
-
-*◆*
-
-◆
-
-*◆*
 
 &nbsp;
 

@@ -69,9 +69,7 @@ I muttered, turning away from the devastation I had caused, and dripping with sw
 
 &nbsp;
 
-◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆
-
-*◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆*
+◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆◆
 
 &nbsp;
 
