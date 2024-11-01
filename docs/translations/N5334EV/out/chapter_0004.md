@@ -1,4 +1,4 @@
-# Episode 04 - Thinking about future plans
+# Episode 04 Suzy, thinking about future plans.
 
 ## 04話　スージィ今後の方針を考える
 
@@ -6,67 +6,67 @@
 
 &nbsp;
 
-“So, you see, modern people are all stiff, but seniors are even more so.”
+All modern people have stiff bodies, but seniors are even firmer.
 
 *「ですからね、現代人は皆ガチガチに身体固まってるんですけど、先輩はより一層固まってますから」*
 
-"Is that so?”
+'Mm-hmm, is that right?'
 
 *「むぅ、そうなのか？」*
 
-“Look at my feet! Even though I'm shaking them like this, my ankles don't move at all, do they? They're still stiff.“
+Look at these legs!　You're shaking it like this, but your ankle doesn't shake at all.　It's frozen in place."
 
 *「見てくださいよ、この足！　こんな揺すってるのに足首全く揺れないでしょ？　固まったままです」*
 
-”Isn't everyone like this?“
+Aren't they all like this?"
 
 *「皆、こんなもんじゃないの？」*
 
-”Normally, they move to some extent.“
+Usually they move more or less."
 
 *「普通は多少なりとも動きますから」*
 
-”Hmm...”
+Mmmm."
 
 *「むむぅ」*
 
-“The fact that you're stiff means you're unconsciously continuing to put in effort. You need to start by becoming aware of how much energy you're wasting on a daily basis.“
+If you are stiff, it means that you are unconsciously exerting yourself continuously. You should start by becoming aware of how much energy you are wasting on a daily basis.
 
 *「凝り固まってるって言うのは無意識に力を入れ続けてるって事ですから。どれだけ普段から無駄にエネルギーを消費しているか自覚するところから始めて下さい」*
 
-”I'm not aware of that at all!“
+I'm not aware of that at all!"
 
 *「そんな自覚は全く無い！」*
 
-”Well, it's the result of continuing to make unnatural movements in an unnatural posture. If you're not aware of your bad habits, there's no way you can fix them.”
+Well, it's the result of continuing to do unreasonable movements in an unnatural posture. If you are not aware of your bad habits, there is no way to correct them.
 
 *「まあ不自然な姿勢で無理な動きを続けて来た結果ですから。悪い癖は自覚しないと直しようがありませんからね」*
 
-“I wonder if I've been doing things like that with an unnatural posture? I thought I'd been living normally...“
+I don't know if I've been in an unnatural posture or not.　I've been living a normal life..."
 
 *「不自然な姿勢とかそんなにしてたかなぁ？　普通に暮らしてきたつもりだけど…」*
 
-”That's it, modern people start to stiffen up when they're still children. The 'attention' and 'front, please' they do when they start elementary school are the worst. That's when they get into the habit of standing with their backs stiff.“
+That's because people today have already begun to harden in childhood. When they enter elementary school, they are taught to 'be careful' and 'get in front of the class,' and that's the worst. That's the worst. They get into the habit of standing with a lot of strength.
 
 *「あれです、現代人はもう子供の頃に固まり始めてますから。小学校に入るとやる『気を付け』『前へならえ』あれ最悪ですね。あれで力入れて立つ癖が付いてしまう」*
 
-”Eeek, is that so? Everyone did that!”
+Ue!　Really?　Everybody did it!"
 
 *「うえ！　そうなの？　誰でもやってたじゃん！」*
 
-“That's why everyone today is so stiff. My master said, 'There are hardly any modern people who can stand properly or walk properly'.“
+That's why all people today are so stiff. My teacher said, 'Almost no one today can stand or walk properly. Few people today can stand or walk properly.
 
 *「だから現代人皆ガチガチなんですよ。師匠も言ってました。『現代人でロクに立ってるヤツ、歩けてるヤツは殆ど居ない』って」*
 
-”Wow... how does the world look from the perspective of a master?“
+"Ugh... what does the world look like from a guru's point of view?"
 
 *「うはぁ・・・達人目線で世間ってどう見えてんだよ？」*
 
-”So let's start with loosening up these legs.“
+So, let's start with this foot massage.
 
 *「だから先輩もまずはこの足ほぐすトコから始めましょう」*
 
-”Ugh... it looks like it's going to take a while...”
+"Ugh...looks like we have a long way to go. ......"
 
 *「くうぅ…先が長そうだぁ……」*
 
@@ -78,33 +78,33 @@
 
 &nbsp;
 
-...I had a dream that felt familiar...
+...I had some kind of nostalgic dream....
 
 *…何だか懐かしい夢を…見たな…。*
 
 &nbsp;
 
-A year junior to me, we were in the same team at work about seven years ago.
+About 7 years ago, I was a year junior on the same team at work.
 
 *7年ほど前、職場で同じチームで一緒になった1年後輩。*
 
-We got along well and hung out a lot even after the project was over.
+We got along with each other in some way and often hung out after the project was over.
 
 *何かと馬が合ってプロジェクトが終わった後もよくつるんでいた。*
 
 &nbsp;
 
-It seems that he was a disciple of a great master of ancient martial arts, and I often learned about martial arts from him.
+He seemed to be an apprentice of some great old martial arts teacher, and he often told me martial arts-related stories.
 
 *何でも古武術の凄い先生の弟子をしているらしく、よく武術関連の話を教えて貰っていた。*
 
-I was often taken to see performances by various martial arts masters, and we spent a lot of time together outside of work.
+I was taken to performances by various martial arts instructors, and we often spent time together outside of work.
 
 *色んな武術の先生の公演とかも連れられたりして、仕事以外の時間も一緒に過ごす事が多かった。*
 
 &nbsp;
 
-I was remembering these things as I dozed off in the early morning...
+In the slumber of dawn, I was remembering such things. .........
 
 *明け方のまどろみの中、そんな事を思い出していた………。*
 
@@ -114,81 +114,81 @@ I was remembering these things as I dozed off in the early morning...
 
 &nbsp;
 
-In the end, I spent the night on the riverbed by the waterfall.
+We ended up spending the night that day on the riverbank at that waterfall basin.
 
 *結局その日はその滝壺の河原で一晩過ごした。*
 
 &nbsp;
 
-What did I do with the time after midday? It goes without saying.
+What on earth were they doing with the time they had from mid-afternoon on? I don't have to tell you.
 
 *昼過ぎからの時間は一体何に使っていたのか？は言わずもがな。*
 
 &nbsp;
 
-Perhaps my strength and resilience, which exceeded human understanding, were the key to opening a new door.
+Their physical strength and resilience beyond human knowledge may have been the key to opening new doors.
 
 *人知を超えた体力と回復力は、新たなる扉を開く鍵となったのかもしれない。*
 
 &nbsp;
 
-Even so, spending the first night of camping in a strange place without any clothes on is not an advisable thing to do.
+Even so, it is not recommended to spend your first night in the wild in a strange place without clothes.
 
 *それでも見知らぬ場所で、初めての野宿を服も着ないで過すなど勧められる行為ではない。*
 
-He woke up at dawn, as if ashamed of himself, and took a bath, but when he returned to the tent, he fidgeted around and took another bath, so he probably didn't feel too bad about it.
+At dawn, he would get up and bathe in shame, but when he returned to his tent, he wriggled around and bathed again and again, so I guess he was not too sorry.
 
 *明け方に恥じ入ったように起きだしては水浴びをしていたが、テントに戻るとモゾモゾと蠢き、何度も水浴びをし直しているのだから、余り反省は無いのだろう。*
 
 &nbsp;
 
-The items I had with me for camping came in handy.
+The items I had with me were useful for the encampment.
 
 *野営には持って居たアイテムが役に立った。*
 
-They were quest items in my inventory.
+It's a quest item in your inventory.
 
 *インベントリ内のクエストアイテムだ。*
 
-I wasn't able to take them out during the game, but now I can take them out and use them.
+It was not possible to take it out at the time of the game, but now it seems to be possible to take it out and use it.
 
 *ゲーム時には取り出すことが出来なかった物だが、今は取り出して使う事も出来る様だ。*
 
 &nbsp;
 
-Last night, I took out the 'one-person tent' and 'villager's blanket' that were in my inventory, as well as some animal fur, and used them.
+Last night, I took a "simple tent for one person," a "villager's blanket," and animal pelts from the query items and used them.
 
 *昨晩はそのクエアイテムにあった『一人用簡易テント』と『村人の毛布』、それに動物の毛皮を取出して利用した。*
 
-For dinner, I tried eating the 'Mum's Salmon Stew' that I had with me, which is a recovery item (that restores a small amount of HP, etc.)... but.
+The meal was "Mam's Salmon Stew", a recovery item I had (e.g. to recover a small amount of HP), so I ate that. ......
 
 *食事は持っていた回復アイテム（少量のHPを回復するなど）の『マムのサーモンシチュー』があったのでそれを食べてみた……が。*
 
 &nbsp;
 
-'It's really bad tasting', it seems.
+They say it's 'very tasteless.
 
 *『とても不味い』らしい。*
 
-Anyway, it's so bland that there's hardly any taste at all.
+Anyway, the taste is thin and almost nonexistent.
 
 *とにかく味が薄くて殆ど無いのだ。*
 
 &nbsp;
 
-There are other recovery items that look like they could be eaten, but they all have almost no taste.
+There are various other recovery items that could be food, but they all have little or no flavor.
 
 *他にも色々と食糧になりそうな回復アイテムはあるのだが、どれもこれも味がほとんど無い。*
 
 &nbsp;
 
-It's not that they're inedible, but they're not something you'd want to reach out and eat.
+It's not that I can't eat it, but it's not something I want to reach out and eat myself.
 
 *食べられない訳ではないのだが、自分から手を伸ばして食べたいと思うものではない。*
 
 &nbsp;
 
-Suzy thought she'd hold off on eating until she felt really hungry.
+It was Suzy who thought, "Let's hold off on eating until our hunger pangs reach their limit .......
 
 *食事は空腹感が限界になるまで我慢しよう……と思うスージィだった。*
 
@@ -196,83 +196,83 @@ Suzy thought she'd hold off on eating until she felt really hungry.
 
 &nbsp;
 
-She also took some low-level equipment out of the guild warehouse.
+Equipment was also taken from the guild warehouse at a lower level.
 
 *装備品も、ギルド倉庫から低いレベルの物を取り出した。*
 
 &nbsp;
 
-In the game, equipment was divided into 11 basic ranks.
+In the game, equipment was ranked in 11 basic levels.
 
 *ゲームに於いて、装備品は基本11段階のランク分けがされていた。*
 
 &nbsp;
 
-'Zero Rank' for beginners who have just started the game and have not yet chosen a job
+Zero Rank" used by beginners level who have just started the game and before they have a job.
 
 *ゲームを始めたばかりで、職に就く前の初心者レベルが使う『ゼロランク』*
 
-'D/C Rank' which can be used after choosing your first job
+D and C ranks," which can be used by taking the first job.
 
 *最初の職に就く事で使えるようになる『D・Cランク』*
 
-'B/A Rank' which can be used after advancing to a specialized job
+After that, "B and A ranks" that can be equipped after advancing to professional positions.
 
 *その後、専門職へと進んでから装備できる『B・Aランク』*
 
-'S/SS Rank' which can be used after further advancing to a specialized type
+Further beyond that, "S and SS ranks" that can be used after evolving into specialized types.
 
 *更にその先、専門特化型へと進化後に使える『S・SSランク』*
 
-And then there are the 'G Zero, G1, G2, G3 Ranks', which can be used by those who have transcended humanity and become divine.
+And "G Zero, G1, G2, and G3 ranks" that can be used by those who have transcended man and become deities to the divine realm.
 
 *そして、人を越え神域へと神化した者が使える『Gゼロ・G1・G2・G3ランク』*
 
 &nbsp;
 
-Suzie was equipped with the Nemesis Dual Sword and Oracle Heavy Armor, which are both higher-level G Zero equipment.
+Suzy was equipped with a G Zero higher level, the Nemesis Dual Sword and Oracle Heavy Armor.
 
 *スージィが装備していたのはGゼロの上位、ネメシスデュアルソードとオラクル重鎧だ。*
 
 &nbsp;
 
-But even that is, to be frank, low-level equipment in the game.
+But that, too, is small fry equipment in the game, to be sure.
 
 *だがそれも、ゲーム内ではハッキリ言って雑魚装備である。*
 
 &nbsp;
 
-Even so, it seems to be quite over-specced for this area.
+Still, it seems to be quite over-specified for this location.
 
 *それでもこの地では、かなりのオーバースペックの様だ。*
 
 &nbsp;
 
-Suzie was now wearing A-rank equipment.
+Now Susie was wearing A-rated equipment.
 
 *今スージィはAランクの装備を身に着けていた。*
 
-She was wearing jet-black plate armor, two swords that shone with silver, and no cape.
+Jet-black plate armor, two swords shining white and silver, no cloak.
 
 *漆黒のプレートアーマーに白銀に輝く2刀、マントは無い。*
 
-The swords were wide, and although they had fine decorations on the blade's belly, they were rather plain.
+The sword is wide and martial, though finely decorated on the belly of the blade.
 
 *剣は幅広で、刃の腹に細かい装飾がされているが武骨な物だ。*
 
 &nbsp;
 
-“Let's see how it goes with this. Let's try it without enchantments. If it looks dangerous, we can always put the equipment back!"
+I guess we'll see how it goes.　Let's try without enchantment. If it looks dangerous, I'll just put the equipment back on!
 
 *「これで取敢えず様子見かな？　エンチャは無しでいってみよ。危なそうだったら装備戻せば良いしね！」*
 
 &nbsp;
 
-Originally, the guild warehouse stored equipment for each rank and job, in sets for use in raising sub-characters.
+Originally, the guild warehouse stored a set of equipment for each rank and occupation, as well as for sub-character training.
 
 *元々ギルド倉庫には各ランク、各職用の装備を、サブキャラ育成用にとセットごとに保管していた。*
 
-This time, we picked out equipment that wasn't too expensive or too cheap.
+This time, they found and took out equipment that was neither too high nor too low.
 
 *今回は、高すぎず低すぎずの装備を見繕い、取り出したのだ。*
 
@@ -280,91 +280,91 @@ This time, we picked out equipment that wasn't too expensive or too cheap.
 
 &nbsp;
 
-“The mobs that were scattered around yesterday have come back in droves today."
+The mobs that were scattered around yesterday have come back today.
 
 *「昨日散らばってたMobも、今日になって随分戻って来たな」*
 
 &nbsp;
 
-I used search to check the current situation around me.
+Use the search to see what's going on around you right now.
 
 *探索を使い、今の周りの状況を確認してみる。*
 
-I immediately looked up to the right.
+Then, immediately, he turned his head to the right upward.
 
 *すると、直ぐにスッと右上方に向け顔を上げた。*
 
-I could see a flying mob moving from the right to the left.
+The flying mob could be seen moving from right to left direction.
 
 *飛行しているMobが、右方向から左方向へ移動しているのが視認出来た。*
 
 &nbsp;
 
-“A flying mob I didn't see yesterday... a 'Gray Wyvern'. I'd estimate the distance to be about 90 meters."
+I didn't see any flying mobs or ...... 'grey wyverns' yesterday. I'd say it's about 90 meters away.
 
 *「昨日は見なかった飛行型のMobか……『グレイ・ワイバーン』ね。距離、推定90メートルってとこかな？」*
 
 &nbsp;
 
-With a whoosh of spirit, he channels his ‘ki’ into his weapon.
+HAAAAHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHH! and with a kiai, he puts his "chi" into the weapon.
 
 *ハァァァァッッ！！と気合と共に『気』を武器に籠める。*
 
 &nbsp;
 
-“This is the first shot for long-range, right? In the game, the maximum range was about 15 meters, but here I feel like I can reach it!“
+I knew this would be the first shot at long range!　In the game, the range was 15 meters at best, but here I feel like I can reach something!
 
 *「やっぱり遠距離への初撃はコレだよね！　ゲームでは射程は精々15メートルってとこだったけど、ココでは何か届きそうな気がすんだよな！」*
 
 &nbsp;
 
-With that, he thrust out his left arm, lowered his right hand to face level, and crouched down.
+As he said this, he thrust out his left arm and sat back with his right hand at face level.
 
 *そう言うと左腕を突出し、右手を顔の高さに合わせ腰を落とした。*
 
-He pointed the tips of his two swords at the target and shouted.
+He points the tip of his two swords at the target and shouts.
 
 *二刀の剣先を標的に向け叫ぶ。*
 
 &nbsp;
 
-”I'm going to take a shot at it!”
+I'm gonna shoot you!
 
 *「狙い撃つぜっっ！！！」*
 
 &nbsp;
 
-Impact Blaster
+≪Impact Blaster≫.
 
 *≪インパクト・ブラスター≫*
 
-The swordsman releases his accumulated ki and attacks a distant enemy.
+It sends out a pool of sword chi to attack enemies at a distance.
 
 *溜めた剣気を飛ばし、遠距離の敵を攻撃する。*
 
-This is a skill of the close-range attacker 'Duel Barbarian'.
+It is the skill of the proximity attacker "Duel Barbarian".
 
 *近接アタッカー『デュエルバーバリアン』のスキルだ。*
 
 &nbsp;
 
-The shock released from the tip of the sword becomes visible, and it heads towards the target at a speed faster than sound, emitting a white light.
+The impact, visible from the tip of the sword, exceeds the speed of sound and heads toward the target, emitting a white light.
 
 *剣先から放たれ可視となった衝撃が、音速を超え白い光を放ちながら標的に向かう。*
 
 &nbsp;
 
-The target and the white light intersect.
+Target and white light intersect.
 
 *標的と白い光が交差する。*
 
-A moment later, it explodes and scatters.
+A moment later, it exploded and scattered.
 
 *一瞬後、それは爆ぜて散った。*
 
 &nbsp;
 
-A dull explosion sound like something heavy bursting echoes a beat later.
+A beat later, a dull popping sound like something heavy popping is heard.
 
 *一拍遅れて何か重い物が弾ける様な鈍い破裂音が響いて来る。*
 
@@ -376,7 +376,7 @@ A dull explosion sound like something heavy bursting echoes a beat later.
 
 &nbsp;
 
-“……………Dirty fireworks.”
+"..............., you filthy fireworks."
 
 *「……………汚ねぇ花火だ」*
 
@@ -398,177 +398,177 @@ I said it.
 
 &nbsp;
 
-“Conclusion! The mobs around here are weak!”
+'Conclusion!　Mob's around here are small fry!"
 
 *「結論！　この辺のMobは雑魚い！！」*
 
 &nbsp;
 
-I came to this conclusion.
+He concluded.
 
 *結論づけた。*
 
 &nbsp;
 
-With a few beads of sweat trickling down my cheeks.
+A streak or two, sweat dripping down my cheeks.
 
 *一筋二筋、頬に汗を垂らせながら。*
 
 &nbsp;
 
-“I guess I'll have to find a stronger opponent!“
+I knew I had to find someone a little stronger!"
 
 *「やはり、もうちょい強い相手探さないとダメだよなっ！」*
 
 &nbsp;
 
-He put his hand over his eyes and looked around, as if searching for something in the distance.
+I put my hands over my eyes and posed as if I were scurrying to look into the distance.
 
 *と目の上に手を置いて、キョロキョロと遠方を見る様なポーズを取って見た。*
 
 &nbsp;
 
-”All I can see is trees... Is there any higher ground around here? If I go up there, I'm sure I'll find something stronger than this...”
+"All I see when I look at this stuff is trees. ...... Is there some higher ground somewhere?　If we go that way, there might be something much stronger than here.
 
 *「こんなん見ても樹木しか見えないしなぁ……。どっかにもっと高台でもなかろかね？　いっそあそこまで行けば、ココよりずっと強いのは居そうなんだけどねー」*
 
 &nbsp;
 
-He looked at the snowy mountain range that rose up to the north like a white wall and muttered to himself.
+I looked at the white wall of snowy mountains to the north and thought to myself.
 
 *北側に聳える、白い壁の様な雪の山脈を眺めて独りごちた。*
 
 &nbsp;
 
-"I wonder how high it is? Is it as high as Everest? I've never been there, so I don't know! Is it 8000 meters high? It would be nice to look down on the world from up there.”
+I wonder how high it is?　Is it as high as Mount Everest?　I've never been there, so I don't know!　Is it 8,000 meters or something?　It would be nice to look down on the world from up there.
 
 *「標高どんくらいあんだろ？　エベレストぐらいあんのかな？　行った事無いからワカンナイけどね！　8000メートルとかだっけ？　あの上から世界を見下ろすってのもいいかもねー」*
 
 &nbsp;
 
-He put his left hand on his hip and scratched his temple with his right hand.
+With his left hand on his hip and his right hand scratching his temple with his pollyanna .......
 
 *左手を腰に当て、右手でポリポリとこめかみを掻きながら……。*
 
 &nbsp;
 
-“……Why don't I just jump?”
+"......, why don't we just jump?"
 
 *「……いっそ跳んでみるか？」*
 
 &nbsp;
 
-He muttered to himself as if he had just thought of something.
+He muttered something like he had an idea.
 
 *と、何か思いついた様に呟いた。*
 
 &nbsp;
 
-“There's no jump point, but I think I can jump up normally.”
+I don't have a jump point, but I feel like I could at least jump up normally."
 
 *「ジャンプポイントは無いけど、普通に跳び上がるくらいは出来ちゃう気がすんだよなー」*
 
 &nbsp;
 
-In the game, characters who have been 'divine' have a way of moving that allows them to fly to any location by jumping from a predetermined jump point... but there are no jump points here.
+In the game, the character who has been "divinized" has a means of transportation that allows him to jump up from a predetermined jump point and then fly across to any location. ......, but there is no jump point here.
 
 *ゲーム内に於いて『神化』が済んだキャラクターは、決められたジャンプポイントから跳び上がれば、任意の場所へ飛んで渡れると云う移動手段を持っていた……のだが、ここにはジャンプポイントは無い。*
 
 &nbsp;
 
-“But you can jump, right? I haven't tried jumping with all my might yet...! The trick to enjoying games is to try things that look like they might work!“
+'But you can just jump up, right?　Jump as fast as you can, and I haven't done it yet. ...... I'll try anything I think I can do!　That's the key to enjoying the game!
 
 *「でも跳び上がるだけならできるよね？　全力で跳ぶ、とかまだやってないし……。やれそうな事は取敢えず試してみる！　ってのがゲームを楽しむコツだもんなっ！」*
 
 &nbsp;
 
-He bent down as if to gather strength.
+He said this and bent down to save his strength.
 
 *そう言うとグッと力を貯める様に屈み込んだ。*
 
 &nbsp;
 
-“Dooooo-seeeeee!”
+
 
 *「どぉっっっせぃっっっっ！！！」*
 
 &nbsp;
 
-At the moment he kicked the ground, the ground caved in.
+At the moment he kicked the earth, the land caved in significantly.
 
 *大地を蹴ったその瞬間、その地が大きく陥没した。*
 
 &nbsp;
 
-The roots of the trees around him were pulled out of the ground, and the trees tried to fall over, but the next shock wave spread out and knocked them over forcefully.
+Pulled by their roots by the gouging ground, the surrounding trees tried to fall down, but the spread of the shock wave that occurred next caused them to be reaped outward with great force.
 
 *抉れる地面に根を引かれ、周りの樹木が倒れ込もうとするが、次に起きた衝撃波の広がりにより、勢いよく外側へ薙ぎ倒されて行った。*
 
-The person who kicked up the earth with a roar was already far up in the sky.
+The one who kicked the earth with a roaring sound was already far above the ground.
 
 *轟音を辺りへ響かせ大地を蹴ったその者は、既に遥か上空に居た。*
 
 &nbsp;
 
-“Whoa, this is high, isn't it? I think I've gone up 40 or 50 meters, right?”
+"Woo hot ......, isn't this thing high, like 4 to 50 meters up?"
 
 *「うおほっとっと……コレ、た高くね？4～50メートルは昇ってるよね？」*
 
 &nbsp;
 
-In the sky, where the wind was blowing and the clouds were drifting, he looked around and was surprised at his own jumping ability.
+In the sky where the wind blows and connects, he looks around and is amazed at his own leaping ability.
 
 *風が吹き結ぶ空の中、周りを見渡し自らの跳躍力に驚いている。*
 
 &nbsp;
 
-“I thought I'd be able to jump a couple of meters, but... what is this? Have I gone 60 meters up? This is the view from a high-rise apartment building, right? I've never climbed one before!
+'I was hoping to fly a couple of meters, but ...... this?　Did you go about 60?　This is the view from a tower apartment or something, right?　I've never been up there!
 
 *「2～3メートルも飛べればと思ってたけど……これは？！　60位行ったか？！　タワーマンションとかからの眺めだよなコレ！　登った事無いけどさっ！！！」*
 
 &nbsp;
 
-Eventually, he reached the highest point of his jump and was able to see the horizon with his own eyes.
+Eventually, I reached the point of the leap and could see with my own eyes beyond the horizon.
 
 *やがて跳躍の到達点に達し、地平の彼方をその目で確認出来た。*
 
 &nbsp;
 
-“Wow, there's a forest all the way to the horizon except for the northern mountain range! This forest is as big as the Kanto Plain, isn't it? It's not a sea of trees, it's a sea of trees and forests! And the forest is a little thin in the south... I think?
+"Aaaaah!　The forest extends all the way to the horizon except for the mountain range in the north!　This forest must be the size of the Kanto Plain!　It's a sea of trees, or rather, it's a deep sea of trees!　But the forest is a bit thin in the south. ......?
 
 *「うあああ！　北の山脈以外地平線まで森が続いてるじゃん！　この森、関東平野くらいあんじゃね？　樹海っちうか、もうコレ樹深海だろ！！　で、でも南はちょっとだけ森が薄い……のかな？」*
 
 &nbsp;
 
-Eventually, his body began to descend slowly.
+Eventually, its body began to yukkuri its descent.
 
 *やがてその身がユックリと下降をし始めた。*
 
 &nbsp;
 
-“Oh? Oh? I'm falling! But! But! I'm fine, right? It's a dream, so it's fine, right? Whoa!
+Oh?　Oh?　Oh!　Falling down!　but!　BUT!　It's ......, right?　It's Yumu, right?　Whoo-hoo-hoo!
 
 *「お？　をお？　お！　お落ちる！　けど！　けど！　平気……だよね！？　ゆ夢だもんダイジブだよねっ！　うおっほぉぉぉぉぉ！！！」*
 
 &nbsp;
 
-She landed with a heavy thud, sending up a cloud of dust.
+As it was, it landed with a heavy vibration on the ground, sending up a cloud of dust.
 
 *そのままズシリと大地に重い振動を響かせて、土煙を上げながら着地した。*
 
 &nbsp;
 
-“I was so surprised! I'm fine! As I thought, it was a dream! I was so scared! I'm so glad it was a dream!"
+I was so surprised!　I was fine!　That's just like a dream!　I was so scared!　Thank God it was a dream!
 
 *「ビ、ビックリしたぁぁ！　へ平気だったぁぁ！　さすが夢！　あぁぁビビッたぁぁ！　夢でよかったぁぁぁぁ！！」*
 
 &nbsp;
 
-He landed on his feet, creating a crater in the process.
+He landed cleanly on both legs while making a crater.
 
 *クレーターを作りながらも綺麗に両脚で着地した。*
 
-After that, he got down on all fours and put his hands on the ground, and let out a heart-wrenching cry.
+He then poked his hands at Petali, got down on all fours, and let out a shrill cry.
 
 *その後ペタリと両手を突いて四つん這いになり、悲痛な叫びを上げた。*
 
@@ -576,19 +576,19 @@ After that, he got down on all fours and put his hands on the ground, and let ou
 
 &nbsp;
 
-“Well, I've got a better idea of the situation around me than I thought, but what should I do now?”
+Now that we know more about our surroundings than we thought we did, let's go to ...... and see what we can do."
 
 *「さて、思った以上に周りの状況が把握出来た訳だが……どしましょうかね？」*
 
 &nbsp;
 
-But he quickly got himself together and stood up, looking around while putting his hands on his hips.
+However, I immediately stood up as if I had regained my composure and looked around with my hands on my hips.
 
 *だが直ぐにスクッと気を取り直した様に立ち上がり、腰に手を当てながら周りを見渡してみた。*
 
 &nbsp;
 
-“I had a feeling that there were people living in the south. The theory is that if you want to progress in the game, you have to go down to the village and gather information, but there's no one stronger than me in the south. But I have a feeling that there's something in that mountain... I don't know why, but I have a feeling. Anyway, it's essential that I make the village my base, so I need to think about how I'm going to get there..."
+'I had a feeling that there might be people beyond the south: ....... The theory is that if you want to advance in the game, you should go down to the human village and gather information, but there's obviously nothing stronger than here in the south. ...... However, I have a feeling that there is something in those mountains. ......, but only vaguely. We will have to make a base in a human village sooner or later, so we have to figure out how to route it .......
 
 *「南の先に人が居そうなのは、何となく感じた……。ゲームを進めるなら人里に降りて、情報収集ってのがセオリーだけど、でも南には明らかにココより強いのは居ないんだよなぁ……。だけどあの山の方には、何となく何か居る気がすんだよねぇ……、何となくだけど。いずれ人里を拠点にするのは必須として、どうルート取りをするか……だね」*
 
@@ -596,91 +596,91 @@ But he quickly got himself together and stood up, looking around while putting h
 
 &nbsp;
 
-I tried to think about it while folding my fingers.
+I thought about it as I folded my fingers.
 
 *指を折りながら考えてみた。*
 
 &nbsp;
 
-“Once we get down to the village, we'll get ready and then head for the mountains, and after exploring, we'll head back to the village.”
+"Once down in the village, we'll get ready and head for the mountains, then return to the village after our exploration."
 
 *「一旦人里に降り準備を整えてから山に向かい、探索の後人里へ戻る」*
 
 &nbsp;
 
-“We'll head for the mountains as they are, and after exploring, we'll head for the village.”
+We're going to head up into the mountains to explore, and then we're going to head for the human village."
 
 *「このまま山へ向かい探索の後、人里を目指す」*
 
 &nbsp;
 
-"Clearing the forest to create a place to live... there isn't any.”
+"We're going to cut through the forest and build a place to live here: ......
 
 *「森を切り開きここに生活の場を作る……無いワぁ」*
 
 &nbsp;
 
-He crosses his arms and thinks while looking at the mountains.
+Crossing my arms, I look at the mountains and think.
 
 *腕を組んで山を見ながら思考する。*
 
 &nbsp;
 
-"If I'm going to the mountains, what do I need to prepare? Equipment and food to get through the forest and into the mountains? I think I can manage with the equipment I already have. As for food... if I don't go overboard... I think it would be pretty tiring to leave the forest, then go back and forth through this Juken Sea... wouldn't it?”
+If you're going to the mountains, what do you need to prepare?　Equipment and food to get through the forest and into the mountains?　I think we can get by with what we have on hand for gear. Food is also ...... if you don't want to be extravagant. I'm getting pretty sick of the thought of leaving the forest and then going back and forth to this deep sea of trees again. ......?
 
 *「山へ行くとして準備ってなんだ？　森を抜け山に入る為の装備品や食料か？　装備は持ち前の物で何とかなりそうだよな。食料も……贅沢さえ言わなければ……ね。一旦森を出て、それから改めてこの樹深海を往復ってのも、考えると結構ウンザリかなぁ……？」*
 
 &nbsp;
 
-He looked up towards the mountains.
+He looked up toward the mountain range.
 
 *山脈に向けて顔を上げた。*
 
 &nbsp;
 
-“All right, I've decided!”
+I'm going to go to the store and buy a new one!　I've made up my mind!"
 
 *「よし！　決めた！」*
 
 &nbsp;
 
-He started to move towards the north.
+It moves itself in the north direction.
 
 *北方向へその身を進める。*
 
 &nbsp;
 
-“First I'll explore the mountains, then head south.”
+First we'll explore the mountains!　Then we head south."
 
 *「まずは山を探索！　それから南へ向かう」*
 
 &nbsp;
 
-He put his index finger to his mouth and seemed to be thinking about something.
+He holds up his index finger to his mouth and seems to be thinking about something.
 
 *人差し指を立て口元に当て、なにやら考えているようだ。*
 
 &nbsp;
 
-“I guess I should take some water with me. I'll go to the water source and get some water... and get ready... and do a lot of things... and then... right?
+We should at least take some water with us. Go to the watering hole, fetch water and get ...... ready. ...... and ...... and then ...... and then ......?　...... hey?"
 
 *「取敢えず水くらいは持って行かないとな。水場に行って水汲んで……準備して。……色々……して、……それから……かな？　……ねぇ？」*
 
 &nbsp;
 
-For some reason, he was slightly flushed in the cheeks as he ran off to the water source.
+Toto, for some reason with a faint blush on his cheeks, made a short run to the water.
 
 *トトトっと、何故だか薄らと頬に赤味を帯びながら、小走りに水場へ向かって行った。*
 
 &nbsp;
 
-"Yeah, I guess I should do that first...”
+"Well, I'll start with ......, and then I'll go to ......."
 
 *「ウン、まずはして……から……だね」*
 
 &nbsp;
 
-It seems like they're going to do something first before setting off.
+They are going to do something before they leave.
 
 *ナニかしてから出発するらしい。*
 
@@ -690,7 +690,7 @@ It seems like they're going to do something first before setting off.
 
 ----------------
 
-7/4: Corrected.
+7/4 Corrected.
 
 *7/4　修正しました。*
 

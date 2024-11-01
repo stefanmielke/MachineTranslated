@@ -1,4 +1,4 @@
-# 06 Susie and the Gatekeeper
+# 06 Suzy and the Gatekeeper
 
 ## 06話　スージィと門番
 
@@ -18,7 +18,7 @@ The same is true of "being attentive" and "reading the atmosphere! The same goes
 
 *「『気を使う』とか『空気を読む』とかそうですからね！『雰囲気』とか『気配』とか、『気分が良い、悪い』、『気が合う、合わない』後、係長がよく言う『気迫を持て！』てのもそうですよ？」*
 
-I'm not sure if that's true, but I'm not sure. I guess so, but I can't quite put my finger on it.
+I'm not sure if that's true when you put it that way. I guess so, but I can't quite put my finger on it.
 
 *「う～～ん、そう言われるとそーなのかなぁ？とは思うけど、今一ピンと来ないね」*
 
@@ -232,13 +232,13 @@ Suddenly, a voice rang out.
 
 *突然、声が響いた。*
 
-He quickly jumped backward about 5 meters.
+Immediately, he jumped backward about five meters.
 
 *咄嗟に5メートル程後方へ跳び退いた。*
 
 &nbsp;
 
-（What?　I don't know the word?　But I know what it means.)
+（What's that word?　I don't know that word?　But I know what it means.)
 
 *（ぬ？　知らない言葉？　でも意味が分かるぞ？？）*
 
@@ -286,7 +286,7 @@ I thought about that as I responded with words I had never used before.
 
 &nbsp;
 
-No one is qualified to cross the gate without a certificate!　Only those who are willing to spare their lives can pass through!　If you do not wish to live, leave quickly!
+No one without a certificate is qualified to cross the gate!　Only those who are willing to spare their lives can pass through!　If you do not wish to live, leave quickly!
 
 *『証無き者に門を超える資格無し！　命惜しまぬ者のみ押し通れ！　惜しむのならば疾く立ち去れ！！』*
 
@@ -328,7 +328,7 @@ The smell of ozone filled the area.
 
 &nbsp;
 
-Without relaxing, he kept his distance from the gatekeeper and turned his attention once again around him.
+Without relaxing, he kept his distance from the gatekeeper and turned his attention once again to the other party around him.
 
 *気を緩める事無く、門番との距離を保ちながら、周囲を周り改めて相手に意識を向けた。*
 
@@ -456,7 +456,7 @@ A roar shakes the atmosphere and a vicious blast blasts the area.
 
 *轟音が大気を震わせ、凶悪な爆風が辺り一面を吹き飛ばす。*
 
-With the storm drenching the area, the remnants of what had been armor and weapons crumpled, ripped, bent, and shattered, flying in shreds like scraps of paper.
+With the storm drenching the area, the remnants of what used to be armor and weapons crumpled, ripped, bent, and shattered, flying in shreds like paper shreds.
 
 *辺りを浚う暴風と共に、鎧と武器だった物の残骸が、ひしゃげ、裂け、曲がり、砕かれ、紙屑の様に千切れ飛んで行った。*
 

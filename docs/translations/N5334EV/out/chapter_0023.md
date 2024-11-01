@@ -1,54 +1,54 @@
-# 23話　スージィ・クラウドと朝の教室
+# 23 - Morning Classroom with Suzy Cloud
 
 ## 23話　スージィ・クラウドと朝の教室
 
-翌朝は特に声がかれている事も疲れも無く、健やかな目覚めを迎えた。
+The next morning, I woke up healthy, with no particular hoarseness or fatigue.
 
 *翌朝は特に声がかれている事も疲れも無く、健やかな目覚めを迎えた。*
 
 &nbsp;
 
-何故声がかれる心配があったのかは、夜中に大声を出しまくったからなのだが、何をしたからかは禁則事項なので明かす事は出来ない。
+The reason why I was worried about my voice being broken was because I was shouting a lot in the middle of the night, but I cannot reveal what I did because it is forbidden to do so.
 
 *何故声がかれる心配があったのかは、夜中に大声を出しまくったからなのだが、何をしたからかは禁則事項なので明かす事は出来ない。*
 
-だが本人は良く分っている。
+But he knows better.
 
 *だが本人は良く分っている。*
 
-改めて思い出すと、何故か恥ずかしくなるのは困った物だと思うスージィだった。
+Suzy felt embarrassed when she remembered it again.
 
 *改めて思い出すと、何故か恥ずかしくなるのは困った物だと思うスージィだった。*
 
 &nbsp;
 
-「ろしゅつ・・・きょう・・・ちがう！・・・おもう・・・よね？」
+"Roussei ... today ... no! ...you think... right?"
 
 *「ろしゅつ・・・きょう・・・ちがう！・・・おもう・・・よね？」*
 
 &nbsp;
 
-自信が無くなって来た…とても焦る。
+I'm losing confidence...very impatient.
 
 *自信が無くなって来た…とても焦る。*
 
 &nbsp;
 
-エェイッ！とばかりに焦りを振り払う様に飛び起きた。
+I jumped up to shake off my impatience! I jumped up to shake off my impatience.
 
 *エェイッ！とばかりに焦りを振り払う様に飛び起きた。*
 
-パンパンッと頬を叩き気合を入れて窓を開け放ち　あぁ今日も気持ちの良い朝ね　と外の空気を思い切り吸い込んだ。
+I slapped my cheeks and opened the window, and breathed in the fresh air, thinking, "Oh, it's a nice morning again today.
 
 *パンパンッと頬を叩き気合を入れて窓を開け放ち　あぁ今日も気持ちの良い朝ね　と外の空気を思い切り吸い込んだ。*
 
 &nbsp;
 
-たちまち焦る想いは立ち消え、健やかな心持になる。
+Immediately, the impatient thoughts fade away, and a healthy mind is restored.
 
 *たちまち焦る想いは立ち消え、健やかな心持になる。*
 
-スージィは心の切り替え、立ち直りは早いのだ。
+Suzy is quick to change her mind and get back on her feet.
 
 *スージィは心の切り替え、立ち直りは早いのだ。*
 
@@ -58,23 +58,23 @@
 
 &nbsp;
 
-その日の朝、クラウド家にスージィを迎えにミアが訪れた。
+That morning, Mia visited the Cloud family to pick up Suzy.
 
 *その日の朝、クラウド家にスージィを迎えにミアが訪れた。*
 
 &nbsp;
 
-「おはようスーちゃん。お迎えに来たよ」
+Good morning, Sue. I'm here to pick you up."
 
 *「おはようスーちゃん。お迎えに来たよ」*
 
-「おはよ・・・ミア？」
+Good morning... Mia?"
 
 *「おはよ・・・ミア？」*
 
 &nbsp;
 
-どうやらミアは、上級生二人に占領されがちなスージィを通学路が近いと言うアドバンテージを生かし、いち早く彼女を確保をする為に動いたようだ。
+It seems that Mia took advantage of her proximity to the school to quickly secure Susie, who is often occupied by two upperclassmen.
 
 *どうやらミアは、上級生二人に占領されがちなスージィを通学路が近いと言うアドバンテージを生かし、いち早く彼女を確保をする為に動いたようだ。*
 
@@ -82,167 +82,167 @@
 
 &nbsp;
 
-「スーちゃんのお家って、屋根がこうカクカクってしてて可愛いよね。前から近くで見たかったの」
+I've always wanted to see your house up close. I've always wanted to see it up close.
 
 *「スーちゃんのお家って、屋根がこうカクカクってしてて可愛いよね。前から近くで見たかったの」*
 
 &nbsp;
 
-そんな事をクラウド邸前の丘陵を下りながら、ミアが言ってきた。
+That's what Mia told me as we walked down the hillside in front of the Cloud residence.
 
 *そんな事をクラウド邸前の丘陵を下りながら、ミアが言ってきた。*
 
-随分前から、このクラウド邸独特の屋根が気になっていたそうだ。
+For a long time, he had been curious about the unique roof of this Cloud residence.
 
 *随分前から、このクラウド邸独特の屋根が気になっていたそうだ。*
 
 &nbsp;
 
-（そうだ思い出した、これって『ギャンブレル屋根』と言って、形が将棋の駒に似ているから『駒形切妻屋根』と言われている形だ！）
+(I just remembered, this is called a "gambrel roof," which is called a "komagata gable roof" because its shape resembles a chess piece!)
 
 *（そうだ思い出した、これって『ギャンブレル屋根』と言って、形が将棋の駒に似ているから『駒形切妻屋根』と言われている形だ！）*
 
 &nbsp;
 
-「可愛い緑色の切妻だよねぇ」
+It's a pretty green gable, isn't it?"
 
 *「可愛い緑色の切妻だよねぇ」*
 
 &nbsp;
 
-ハタッと気が付いた。　きり……づま…だと？……緑の切妻屋根？　恐る恐る屋敷を振り返る。
+I noticed a hiccup.　Kiri-...... gable...? ...... green gable roof?　I looked back at the mansion fearfully.
 
 *ハタッと気が付いた。　きり……づま…だと？……緑の切妻屋根？　恐る恐る屋敷を振り返る。*
 
 &nbsp;
 
-丘陵の下から見上げているので、屋根だけがしっかり見えている。
+Looking up from the bottom of the hillside, only the roof is clearly visible.
 
 *丘陵の下から見上げているので、屋根だけがしっかり見えている。*
 
 &nbsp;
 
-緑色の屋根、切妻屋根、グリーンゲ……。次いで自分の髪を摘み改めて確認する。
+Green roof, gable roof, greige ....... Next, he plucks his own hair and checks it again.
 
 *緑色の屋根、切妻屋根、グリーンゲ……。次いで自分の髪を摘み改めて確認する。*
 
 &nbsp;
 
-赤毛だ　ヘタリと力なく地面に手を付いてしまった。
+Redhead: Hetari and his hands on the ground without strength.
 
 *赤毛だ　ヘタリと力なく地面に手を付いてしまった。*
 
 &nbsp;
 
-「ど、どうしたのスーちゃん！？どっか痛いの？」
+What's wrong, Sue? Does it hurt somewhere?"
 
 *「ど、どうしたのスーちゃん！？どっか痛いの？」*
 
 &nbsp;
 
-ミアが慌ててスージィの傍に寄り添う。
+Mia rushes to stand by Suzy's side.
 
 *ミアが慌ててスージィの傍に寄り添う。*
 
 &nbsp;
 
-「あ・・・あ・・・な・・・なんて・・・なんて・・・こと・・・を！！！」
+Oh...oh...oh...my...god...what...what...what...what...what...what...what...what...what...what...what...what!
 
 *「あ・・・あ・・・な・・・なんて・・・なんて・・・こと・・・を！！！」*
 
-「だいじょうぶ？スーちゃん！」
+Are you okay? Sue!"
 
 *「だいじょうぶ？スーちゃん！」*
 
 &nbsp;
 
-プルプルと震えるスージィを気遣いミアが声をかけた。
+Mia, concerned about Suzy's trembling, called out to her.
 
 *プルプルと震えるスージィを気遣いミアが声をかけた。*
 
 &nbsp;
 
-「わたし・・・わたしわぁ・・・あうーーーんっっ！！！」
+I... I... I... ahhhhhh!
 
 *「わたし・・・わたしわぁ・・・あうーーーんっっ！！！」*
 
 &nbsp;
 
-突然、滂沱の如く涙を流し泣き崩れるスージィにミアが慌てる。
+Suddenly, Suzy breaks down in tears, and Mia is flustered.
 
 *突然、滂沱の如く涙を流し泣き崩れるスージィにミアが慌てる。*
 
 &nbsp;
 
-「スーちゃん！だいじょぶ！？具合悪いの？お家戻ろうか！？」
+Sue! Are you okay! Are you sick? Let's go home!
 
 *「スーちゃん！だいじょぶ！？具合悪いの？お家戻ろうか！？」*
 
 &nbsp;
 
-『なんてことだーーー！！わたしは！わたしはぁ！！ごめんなさい！全世界のモ〇ゴメリファンのみなさま！！ワタシの様な人間がこんな……こんな！！！こんな立ち位置に居るなんて！！ゆるしてください！ごめんなさいーーー！！グ、グリーン〇イブルズ！あ…赤毛！！うあーーーーっっごめんなさいーーー！！！そんなつもり無いんですぅーーーー！！！わたしの様なヤツぁ破風窓から異次元に連れて行かれちゃえば良いのよっ！！！うわわぁぁ～～～～～～～～ん！！！！』
+I am! I am! I am! I'm sorry! To all the Momo Gomery fans around the world! I can't believe that someone like me is in such a ...... position! I can't believe I'm in such a position! Please forgive me! I'm sorry! I'm sorry! I'm so sorry!  I didn't mean that! I hope someone like me is taken to another dimension through a gable window! Wow!
 
 *『なんてことだーーー！！わたしは！わたしはぁ！！ごめんなさい！全世界のモ〇ゴメリファンのみなさま！！ワタシの様な人間がこんな……こんな！！！こんな立ち位置に居るなんて！！ゆるしてください！ごめんなさいーーー！！グ、グリーン〇イブルズ！あ…赤毛！！うあーーーーっっごめんなさいーーー！！！そんなつもり無いんですぅーーーー！！！わたしの様なヤツぁ破風窓から異次元に連れて行かれちゃえば良いのよっ！！！うわわぁぁ～～～～～～～～ん！！！！』*
 
 &nbsp;
 
-スージィがイヤイヤと首を振りまくり、滝の様な涙を撒き散らす。
+Suzy shakes her head no, and tears like a waterfall are scattered.
 
 *スージィがイヤイヤと首を振りまくり、滝の様な涙を撒き散らす。*
 
 &nbsp;
 
-「ス、スーちゃん！？言葉が分んないよ？！ね？落ち着いて！落ち着こう？」
+"Suu, Suu! I don't understand a word you're saying! Hey! Calm down! Let's calm down!
 
 *「ス、スーちゃん！？言葉が分んないよ？！ね？落ち着いて！落ち着こう？」*
 
 &nbsp;
 
-ミアが、スージィを落ち着かせようとその豊かな胸に押し抱く。
+Mia pushes Suzy into her ample bosom in an attempt to calm her.
 
 *ミアが、スージィを落ち着かせようとその豊かな胸に押し抱く。*
 
 &nbsp;
 
-「ふみゅぎゅ！」
+Fumiyu!"
 
 *「ふみゅぎゅ！」*
 
 &nbsp;
 
-スージィは一瞬抗ったが直ぐに大人しくなった。　はふぅん、何コノ幸せ感覚……ふにゅふにゅしてゆぅ～～　両手で顔を挟む柔らかい物を掴み揉みしだく。
+Suzy fought for a moment, but soon grew quiet.　I'm so happy to be able to ...... fufu fufu fufu fufu yu~~~ I grabbed the soft thing between my face with both hands and rubbed it.
 
 *スージィは一瞬抗ったが直ぐに大人しくなった。　はふぅん、何コノ幸せ感覚……ふにゅふにゅしてゆぅ～～　両手で顔を挟む柔らかい物を掴み揉みしだく。*
 
 &nbsp;
 
-「あっ！ス、スーちゃん…く、くすぐったい……よ？ンぁ！」
+Oh! Su, Su-chan...ticklish ......? Aah!
 
 *「あっ！ス、スーちゃん…く、くすぐったい……よ？ンぁ！」*
 
 &nbsp;
 
-尚も揉む手を止める事無く、上へ下へ寄せたり離したりと、その至高の感触を手と頭部で存分に味わい続けている。
+She never stops rubbing, moving her hands up and down, pulling them up and away, and continuing to fully enjoy the supreme sensation with her hands and head.
 
 *尚も揉む手を止める事無く、上へ下へ寄せたり離したりと、その至高の感触を手と頭部で存分に味わい続けている。*
 
 &nbsp;
 
-「スー…ちゃん？も、あン！いい…かな？ンん！いいんじゃないかな？かな？！ぁン！」
+"Sue? I'm sorry...? Can I...? Nn! Is it okay? Is it? Ah!
 
 *「スー…ちゃん？も、あン！いい…かな？ンん！いいんじゃないかな？かな？！ぁン！」*
 
-「ん・・・も・・・すこしぃ・・・このままぁ」
+A little bit... more... like this.
 
 *「ん・・・も・・・すこしぃ・・・このままぁ」*
 
-「ンもう、しょうがないなぁ……ンん！」
+I can't help it. ...... nn!"
 
 *「ンもう、しょうがないなぁ……ンん！」*
 
 &nbsp;
 
-スージィはすっかり持ち直していた。立ち直りは早いのだ。
+Suzy had completely recovered. She recovered quickly.
 
 *スージィはすっかり持ち直していた。立ち直りは早いのだ。*
 
@@ -250,35 +250,35 @@
 
 &nbsp;
 
-落ち着きを取り戻したスージィは、ミアと手を繋ぎ学校への道を歩いている。
+Suzy has regained her composure and is walking hand in hand with Mia on her way to school.
 
 *落ち着きを取り戻したスージィは、ミアと手を繋ぎ学校への道を歩いている。*
 
-手を繋いでいるのはミアがスージィを心配し、繋いで行こうと言い出したからだ。
+They are holding hands because Mia was worried about Suzy and suggested that they hold hands.
 
 *手を繋いでいるのはミアがスージィを心配し、繋いで行こうと言い出したからだ。*
 
 &nbsp;
 
-「でも、ビックリしたよ？いきなり泣き崩れるんだもん。ホントにもう大丈夫？」
+But I was surprised, wasn't I? "But I was so surprised," he said, "because you suddenly broke down crying. Are you really okay now?
 
 *「でも、ビックリしたよ？いきなり泣き崩れるんだもん。ホントにもう大丈夫？」*
 
-「ん・・・ごめんなさい・・・むかしの・・・かなしい・・・じじつ・・・おもいだし・・・いたたまれなく・・・なたです・・・も・・・へいき・・・よ？」
+I'm sorry... I remember... a long time ago... a sad... fact... and I'm so sorry... I can't help it... I'm so sorry... I'm so sorry... I can't help it...
 
 *「ん・・・ごめんなさい・・・むかしの・・・かなしい・・・じじつ・・・おもいだし・・・いたたまれなく・・・なたです・・・も・・・へいき・・・よ？」*
 
-「そか…悲しくなったらいつでも言ってね？わたしで良ければいつでも抱っこしてあげるから…ね？」
+I'll hold you anytime you feel sad, okay? If it's okay with me, I'll always hold you... right?
 
 *「そか…悲しくなったらいつでも言ってね？わたしで良ければいつでも抱っこしてあげるから…ね？」*
 
-「うん・・・ありがと・・・ミア・・・だいすき」
+Yeah... thanks... Mia... I love you."
 
 *「うん・・・ありがと・・・ミア・・・だいすき」*
 
 &nbsp;
 
-にこぉ～～っと頬を染めてミアに微笑むスージィに、ミアの胸の中では　キューーーーーン　と擬音が鳴り響いていた。
+When Suzy smiled at Mia with her cheeks tinted with a smile, an onomatopoeic sound echoed in Mia's chest.
 
 *にこぉ～～っと頬を染めてミアに微笑むスージィに、ミアの胸の中では　キューーーーーン　と擬音が鳴り響いていた。*
 
@@ -286,17 +286,17 @@
 
 &nbsp;
 
-あぁ！か可愛いよスーちゃん！可愛過ぎよ！！
+Oh, you're so cute, Sue! You're so cute, Sue! You're too cute!
 
 *あぁ！か可愛いよスーちゃん！可愛過ぎよ！！*
 
-このまま持って帰っちゃだめかな？ダメかなぁ？！
+Can't I just take it home with me? Is it bad?
 
 *このまま持って帰っちゃだめかな？ダメかなぁ？！*
 
 &nbsp;
 
-と、危ない考えを浮かべていたがスージィには知る由も無い。
+I had a dangerous thought in my mind, but Suzy had no way of knowing.
 
 *と、危ない考えを浮かべていたがスージィには知る由も無い。*
 
@@ -306,59 +306,59 @@
 
 &nbsp;
 
-学校へ到着する手前でベアトリスとも会った。
+I also met Beatrice before arriving at the school.
 
 *学校へ到着する手前でベアトリスとも会った。*
 
 &nbsp;
 
-「おはよう二人とも！あら？一緒に来たのね？」
+Good morning, you two! Oh, hey. You're here together, aren't you?"
 
 *「おはよう二人とも！あら？一緒に来たのね？」*
 
-「おはようビビちゃん。そうだよお迎えに行ったの」
+'Good morning, Bibi. Yes, I'm here to pick you up."
 
 *「おはようビビちゃん。そうだよお迎えに行ったの」*
 
-「おはよ・・・ビビ・・・ビビも・・・あした・・・いっしょ・・・する？」
+"Good morning... Bibi... Bibi too... will you... come... with me... tomorrow?"
 
 *「おはよ・・・ビビ・・・ビビも・・・あした・・・いっしょ・・・する？」*
 
 &nbsp;
 
-小首を傾げてベアトリスに訊ねてみる。
+I tilt my head and ask Beatrice.
 
 *小首を傾げてベアトリスに訊ねてみる。*
 
 &nbsp;
 
-「…そうね！並木道の入口で待ち合わせるなら、二人に遠回りさせずにすむかしらね？」
+I'll meet you at the entrance to the boulevard! If we meet at the entrance to the tree-lined avenue, will that save us both the detour?"
 
 *「…そうね！並木道の入口で待ち合わせるなら、二人に遠回りさせずにすむかしらね？」*
 
 &nbsp;
 
-少しの間、考えてからベアトリスが答えた。
+After a few moments of thought, Beatrice answered.
 
 *少しの間、考えてからベアトリスが答えた。*
 
 &nbsp;
 
-「じゃ・・・あした・・・さんにんで・・・いっしょ・・・ね！・・・えへ」
+Then... tomorrow... we'll... go... together... right? ...eheh."
 
 *「じゃ・・・あした・・・さんにんで・・・いっしょ・・・ね！・・・えへ」*
 
-「何嬉しそうにしてんのよ！アンタは！」
+What are you doing? You are!"
 
 *「何嬉しそうにしてんのよ！アンタは！」*
 
 &nbsp;
 
-満更でもなさそうに、ベアトリスがスージィの頬を突く　やぁ～～　と笑いながらスージィが逃げて行く。
+Beatrice pokes Suzy on the cheek, looking not too full. Suzy runs away, laughing.
 
 *満更でもなさそうに、ベアトリスがスージィの頬を突く　やぁ～～　と笑いながらスージィが逃げて行く。*
 
-独り占めの時間が減ってしまう～～　と少し頬を膨らませているミア。
+Mia's cheeks are slightly puffed up as she says, "I'll have less time all to myself.
 
 *独り占めの時間が減ってしまう～～　と少し頬を膨らませているミア。*
 
@@ -366,19 +366,19 @@
 
 &nbsp;
 
-おはようスーちゃん！と、年少の二人の少女が学校の入口で纏わり付いて来た。
+Good morning Sue! and two young girls came clothed at the entrance of the school.
 
 *おはようスーちゃん！と、年少の二人の少女が学校の入口で纏わり付いて来た。*
 
 &nbsp;
 
-「おはよ・・・レイラ・・・メイベル」
+Good morning... Leila... Mabel.
 
 *「おはよ・・・レイラ・・・メイベル」*
 
 &nbsp;
 
-と交互に二人の頬に自分の頬を擦り合わせるスージィ。
+Suzy takes turns rubbing her cheek against their cheeks.
 
 *と交互に二人の頬に自分の頬を擦り合わせるスージィ。*
 
@@ -386,79 +386,79 @@
 
 &nbsp;
 
-教室に入ると既に室内でコリンが本を読んでいた。
+When I entered the classroom, Colin was already in the room reading a book.
 
 *教室に入ると既に室内でコリンが本を読んでいた。*
 
 &nbsp;
 
-コリンと挨拶を交わしていると、後ろからまた昨日からお馴染みになった気配が近づいて来る。
+As I exchange greetings with Colin, a familiar presence approaches from behind me again from yesterday.
 
 *コリンと挨拶を交わしていると、後ろからまた昨日からお馴染みになった気配が近づいて来る。*
 
 &nbsp;
 
-（あぁ、やっぱり気に入られちゃったのかしらん？普通男の子は気に入った女の子にしかスカート捲りとかしないし…そんな少年の気持ちを鑑みるに、あんまり酷い仕打ちはしたく無いしなぁ……）
+(Oh, maybe he liked her after all? Usually boys only roll up their skirts for girls they like...and considering the boy's feelings, I don't want to treat him too badly. ......)
 
 *（あぁ、やっぱり気に入られちゃったのかしらん？普通男の子は気に入った女の子にしかスカート捲りとかしないし…そんな少年の気持ちを鑑みるに、あんまり酷い仕打ちはしたく無いしなぁ……）*
 
 &nbsp;
 
-そんな事を考えていると、近づいて来たステファンに思い切り後ろからスカートを捲り上げられた。
+As I was thinking this, Stefan approached me and pulled up my skirt from behind as hard as he could.
 
 *そんな事を考えていると、近づいて来たステファンに思い切り後ろからスカートを捲り上げられた。*
 
-ちなみに今日は由緒正しい水色縞パンだ。
+By the way, today it's the venerable light blue striped pants.
 
 *ちなみに今日は由緒正しい水色縞パンだ。*
 
 &nbsp;
 
-「ぅぴゃぁっ！」
+Pyaaah!"
 
 *「ぅぴゃぁっ！」*
 
 &nbsp;
 
-（あふ！やっぱりお尻丸出しにされちゃうと恥ずかちぃかも。あ、あれ？ひょっとしてこれって挨拶なのかな？おはようの挨拶？挨拶代りのスカート捲り？昨日のもサヨナラ代りのスカート捲りだったり？あぁ！純情悪戯少年のしそうな発想だ…あハ。
+(Ahh...I know! I'm still a little embarrassed to have my butt exposed. Oh, what? Is this a greeting by any chance? A good morning greeting? A skirt roll-up in lieu of a good morning greeting? Was yesterday's skirt rolled up in lieu of a good-bye? Ah! It's the kind of idea a pure-hearted prankster boy would have...aha.
 
 *（あふ！やっぱりお尻丸出しにされちゃうと恥ずかちぃかも。あ、あれ？ひょっとしてこれって挨拶なのかな？おはようの挨拶？挨拶代りのスカート捲り？昨日のもサヨナラ代りのスカート捲りだったり？あぁ！純情悪戯少年のしそうな発想だ…あハ。*
 
-しょうがない、ちょと叱っておこうかな？あんまり酷くしないように…デコピンで大丈夫かな…？）
+I'll have to scold him a little bit. (I hope it won't be too bad... maybe a pinprick will do...?)
 
 *しょうがない、ちょと叱っておこうかな？あんまり酷くしないように…デコピンで大丈夫かな…？）*
 
 &nbsp;
 
-そんな思考を刹那で行い、ステファンが逃げの体制に入る直前の額の前に、親指で抑えた中指をスッと出し、軽～～～く、スージィ基準では相当に軽～～～～～～く、中指を弾く。
+He momentarily performs such a thought, and just before Stephan's forehead, just before he enters the escape position, he quickly puts out his middle finger, which is held in place by his thumb, and lightly - quite lightly by Suzy's standards ～～～～～～ - plays his middle finger.
 
 *そんな思考を刹那で行い、ステファンが逃げの体制に入る直前の額の前に、親指で抑えた中指をスッと出し、軽～～～く、スージィ基準では相当に軽～～～～～～く、中指を弾く。*
 
 &nbsp;
 
-直後、パゴォォン！と、とんでもない音が鳴り響き、ステファンが教室の後ろへ吹き飛んで行った。
+Immediately after, pg! and a tremendous sound rang out, and Stefan was blown to the back of the classroom.
 
 *直後、パゴォォン！と、とんでもない音が鳴り響き、ステファンが教室の後ろへ吹き飛んで行った。*
 
 &nbsp;
 
-教室内は机が吹き飛ばされ引っ繰り返り、ステファンが当たった壁が軋み、甲高い悲鳴の様な音を上げていた。
+Inside the classroom, desks were blown away and pulled back, and the walls where Stephan had hit them creaked and made a high-pitched screeching sound.
 
 *教室内は机が吹き飛ばされ引っ繰り返り、ステファンが当たった壁が軋み、甲高い悲鳴の様な音を上げていた。*
 
-生徒達は目を見開き固まって、身動き一つ出来ない。
+The students were wide-eyed and frozen, unable to move an inch.
 
 *生徒達は目を見開き固まって、身動き一つ出来ない。*
 
 &nbsp;
 
-ちょうど教室に入ろうとしていたダーナも、目の前にステファンが飛んで来たのを目撃してしまい、同様に目を見開いて固まっていた。
+Dana, who was just about to enter the classroom, witnessed Stefan flying in front of her and froze with her eyes wide open as well.
 
 *ちょうど教室に入ろうとしていたダーナも、目の前にステファンが飛んで来たのを目撃してしまい、同様に目を見開いて固まっていた。*
 
 &nbsp;
 
-「あ！あう！あっ！・・・ス！ステファン！・・・だいじょぶ！？・・・ぶじ！？・・・だいじょぶ！？・・・ねぇ？・・・だいじょぶ！？・・・あう！」
+Ah! Ah! Ah! Ah! Stefan! Stefan! All right? All right? All right? I'm all right! Okay!
 
 *「あ！あう！あっ！・・・ス！ステファン！・・・だいじょぶ！？・・・ぶじ！？・・・だいじょぶ！？・・・ねぇ？・・・だいじょぶ！？・・・あう！」*
 
@@ -466,63 +466,63 @@
 
 &nbsp;
 
-スージィが大慌てでステファンに駆け寄ってくる。
+Suzy rushes over to Stefan in a panic.
 
 *スージィが大慌てでステファンに駆け寄ってくる。*
 
-もう半泣き状態だ。
+I'm already half crying.
 
 *もう半泣き状態だ。*
 
-あぅあぅ言いながらステファンを抱きかかえた。
+I held Stefan in my arms as I said ahhh.
 
 *あぅあぅ言いながらステファンを抱きかかえた。*
 
 &nbsp;
 
-「あ、あ！・・・だいじょぶ？・・・あっうっ・・・へいき？・・・う」
+Oh, oh! Are you okay? ... ahhh... ahhh... Uh-uh.
 
 *「あ、あ！・・・だいじょぶ？・・・あっうっ・・・へいき？・・・う」*
 
 &nbsp;
 
-エグエグと涙を溜めながら、スージィがステファンの額にそっと手を当てる。
+Eggy and teary-eyed, Suzy gently puts her hand on Stefan's forehead.
 
 *エグエグと涙を溜めながら、スージィがステファンの額にそっと手を当てる。*
 
 &nbsp;
 
-「な、なに？え？どうなったって？え？」
+What? What? What happened? What?
 
 *「な、なに？え？どうなったって？え？」*
 
 &nbsp;
 
-ダーナが我に返った様に状況を確認しようとする。
+Dana comes to her senses and tries to assess the situation.
 
 *ダーナが我に返った様に状況を確認しようとする。*
 
 &nbsp;
 
-「ダーナぁ・・・ステファン・・・だいじょぶ？・・・かな？」
+"Dana... Stefan... are you okay? I'm all right?
 
 *「ダーナぁ・・・ステファン・・・だいじょぶ？・・・かな？」*
 
 &nbsp;
 
-スージィが縋るような目で見てくる。
+Suzy looks at me with clinging eyes.
 
 *スージィが縋るような目で見てくる。*
 
 &nbsp;
 
-「どれ？どうなったって？」
+Which one? What happened?"
 
 *「どれ？どうなったって？」*
 
 &nbsp;
 
-ダーナがスージィに近づき、膝をついてステファンの様子を見ようとした時。
+When Dana approached Suzy and kneeled down to check on Stefan.
 
 *ダーナがスージィに近づき、膝をついてステファンの様子を見ようとした時。*
 
@@ -530,35 +530,35 @@
 
 &nbsp;
 
-カッと目を見開いたステファンが、ガバァッと立ち上がった。
+Stefan's eyes widened with a start and he stood up with a gulp.
 
 *カッと目を見開いたステファンが、ガバァッと立ち上がった。*
 
 &nbsp;
 
-周りの皆が　うおっ　と引くのを余所にステファンはあれ？何があったっけ？とばかりに周りを見渡した。
+While everyone else around him was oohing and aahing, Stefan was just thinking, "What was that? What was there? He looked around as if to say, "What happened?
 
 *周りの皆が　うおっ　と引くのを余所にステファンはあれ？何があったっけ？とばかりに周りを見渡した。*
 
-そして涙目のスージィと目が合うとバッと額を両手で押さえ、顔を見る見る真っ赤にして教室から飛び出して行った。
+Then, when his eyes met Suzy's tearful ones, he clamped his forehead in his hands, his face turning bright red as he ran out of the classroom.
 
 *そして涙目のスージィと目が合うとバッと額を両手で押さえ、顔を見る見る真っ赤にして教室から飛び出して行った。*
 
 &nbsp;
 
-残されたスージィは……。
+The remaining Suzy can be found at .......
 
 *残されたスージィは……。*
 
 &nbsp;
 
-「よ、よかった・・・よかたよぉ～～・・・ぶじ・・・よかたぁ・・・」
+"Good...good...good...good...good...good...good...good...good..."
 
 *「よ、よかった・・・よかたよぉ～～・・・ぶじ・・・よかたぁ・・・」*
 
 &nbsp;
 
-と、ヘナヘナと床に座り込んでしまった。
+I sat down on the floor with a heckler.
 
 *と、ヘナヘナと床に座り込んでしまった。*
 
@@ -568,103 +568,103 @@
 
 &nbsp;
 
-「スーちゃん大丈夫？」
+Sue, are you okay?"
 
 *「スーちゃん大丈夫？」*
 
-「ん・・・みゅ・・・も・・・だいじょぶ・・・むみゅぅ」
+Nmmm...mmmm...mmmm...okay...mmmm...mmmm..."
 
 *「ん・・・みゅ・・・も・・・だいじょぶ・・・むみゅぅ」*
 
 &nbsp;
 
-今、スージィはミアにしがみ付き、その胸に顔を埋めている。
+Now Suzy is clinging to Mia and burying her face in her chest.
 
 *今、スージィはミアにしがみ付き、その胸に顔を埋めている。*
 
-既にスージィにとって、ミアの胸部は癒しポイントとして定着したようだ。
+It seems that Mia's chest has already established itself as a healing point for Suzy.
 
 *既にスージィにとって、ミアの胸部は癒しポイントとして定着したようだ。*
 
 &nbsp;
 
-よしよしとミアがスージィの頭を撫でている。
+Goodness gracious, Mia is stroking Susie's head.
 
 *よしよしとミアがスージィの頭を撫でている。*
 
 &nbsp;
 
-「つめが・・・いたかった・・・かなぁ？」
+"My... claws... hurt, didn't they?"
 
 *「つめが・・・いたかった・・・かなぁ？」*
 
-「スー！それはそんなに問題じゃ無いと思うわ！」
+Sue! I don't think that's such a problem!"
 
 *「スー！それはそんなに問題じゃ無いと思うわ！」*
 
-「ンーー？・・・でも・・・げんこつ・・・は・・・かわいそ・・・だし」
+"Hm? ...but... the... knuckles... are... too... pitiful... and...
 
 *「ンーー？・・・でも・・・げんこつ・・・は・・・かわいそ・・・だし」*
 
-「スーちゃん？そう云う事でもないんじゃないかなぁ？」
+"Sue? I don't think that's what you mean.
 
 *「スーちゃん？そう云う事でもないんじゃないかなぁ？」*
 
-「大体にしてさスー、なんで黙ってスカート捲られたんだ？スーなら避けられたろ？」
+I mean, Sue, why did you let her skirt come up without telling me? Couldn't Sue have avoided that?"
 
 *「大体にしてさスー、なんで黙ってスカート捲られたんだ？スーなら避けられたろ？」*
 
-「あ！やっぱりアンタ露出狂？お尻見せるのが好きなんじゃ！？」
+Oh, you're an exhibitionist, aren't you? I knew it! Maybe you like to show your butt!"
 
 *「あ！やっぱりアンタ露出狂？お尻見せるのが好きなんじゃ！？」*
 
-「ち！ちが！・・・ちがう・・・です！・・・おしり・・・ちがう！・・・もん！」
+Chi! Chi! ...no... no..! . ..butt... . ..no! Mon... mon...
 
 *「ち！ちが！・・・ちがう・・・です！・・・おしり・・・ちがう！・・・もん！」*
 
-「わ、わかったわよ！分ったから落ち着きなさい！」
+Okay, okay, okay, okay! All right, all right, all right, all right, all right, all right!
 
 *「わ、わかったわよ！分ったから落ち着きなさい！」*
 
-「・・・ちがう・・・もん」
+No... no... mon.
 
 *「・・・ちがう・・・もん」*
 
-「でもスーちゃん、捲られてからじゃ遅いと思うよ？」
+But Sue, don't you think it's too late to get wound up?"
 
 *「でもスーちゃん、捲られてからじゃ遅いと思うよ？」*
 
-「・・・でも・・・なにも・・・して・・・ない・・・しかる・・・ちがう・・・おもう・・・です」
+But... I... didn't... do... anything... wrong... I... think...
 
 *「・・・でも・・・なにも・・・して・・・ない・・・しかる・・・ちがう・・・おもう・・・です」*
 
-「あー、そうね、確かにそうね。スーの言う事は正しいと思うわ。だけどねスー考えてみて？コレがスカート捲りだからまだ良いけど…いえ、良くは無いんだけどね。もしも誰かを怪我させるような事だったら？怪我をさせるまで何もしないの？事が起きる前に未然に防ぐって大切な事じゃない？」
+Sue said, "Oh, yes, you're right. I think Sue is right. But think about it, Sue. It's okay if it's just a skirt rip...no, it's not okay, but what if it's something that could hurt someone? What if it's something that could hurt someone? What if you don't do anything until they get hurt? Isn't it important to prevent things before they happen?"
 
 *「あー、そうね、確かにそうね。スーの言う事は正しいと思うわ。だけどねスー考えてみて？コレがスカート捲りだからまだ良いけど…いえ、良くは無いんだけどね。もしも誰かを怪我させるような事だったら？怪我をさせるまで何もしないの？事が起きる前に未然に防ぐって大切な事じゃない？」*
 
-「・・・あ」
+Ah.
 
 *「・・・あ」*
 
-「スーなら出来るだろ？」
+Sue can do it, right?"
 
 *「スーなら出来るだろ？」*
 
-「うん・・・わかた・・・です！・・・つぎから・・・ふせぐ・・・です！！・・・うん！・・・でも・・・コリン・・・しっかり・・・してる・・・すごい！」
+Yes... I understand..! ...from next time... prevention...! Yeah! ...but ... Colin ... you're ... you're ... you're ... you're ... you're ... you're ... you're ... you're ... you're ...
 
 *「うん・・・わかた・・・です！・・・つぎから・・・ふせぐ・・・です！！・・・うん！・・・でも・・・コリン・・・しっかり・・・してる・・・すごい！」*
 
-「だから！アンタが抜けてるだけだってば！」
+I'll tell you what! You're just out of it!"
 
 *「だから！アンタが抜けてるだけだってば！」*
 
-「ぁうっ・・・それ・・・きのうも・・・きいた・・・です・・・ょ？」
+"Oh... that... that... you... heard... yesterday, too?"
 
 *「ぁうっ・・・それ・・・きのうも・・・きいた・・・です・・・ょ？」*
 
 &nbsp;
 
-四人が揃って頷いた。
+All four nodded in unison.
 
 *四人が揃って頷いた。*
 
