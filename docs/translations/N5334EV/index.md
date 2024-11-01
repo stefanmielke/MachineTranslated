@@ -1,4 +1,6 @@
-# Chapters:
+# My Sort of Cheat but Small Fry Female Character
+
+### Chapters:
 
 - [01 Waking up in the Suzy Forest](out/chapter_0001.md)
 - [02 Suzy Surprises](out/chapter_0002.md)
