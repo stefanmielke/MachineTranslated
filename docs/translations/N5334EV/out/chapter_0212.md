@@ -886,5 +886,5 @@ Please accept my best regards!
 
 *どうか皆さま何卒よしなに！*
 
-&nbsp;
+![挿絵(By みてみん)](https://27598.mitemin.net/userpageimage/viewimagebig/icode/i847819/)
 

@@ -766,5 +766,5 @@ We hope you will all take a look!
 
 &nbsp;
 
-&nbsp;
+![挿絵(By みてみん)](https://27598.mitemin.net/userpageimage/viewimagebig/icode/i842837/)
 

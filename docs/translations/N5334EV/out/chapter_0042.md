@@ -25,11 +25,11 @@ Added a floor plan of the Cloud residence.
 
 &nbsp;
 
-&nbsp;
+![挿絵(By みてみん)](https://27598.mitemin.net/userpageimage/viewimagebig/icode/i739316/)
 
-&nbsp;
+![挿絵(By みてみん)](https://27598.mitemin.net/userpageimage/viewimagebig/icode/i700789/)
 
-&nbsp;
+![挿絵(By みてみん)](https://27598.mitemin.net/userpageimage/viewimagebig/icode/i602725/)
 
 &nbsp;
 
