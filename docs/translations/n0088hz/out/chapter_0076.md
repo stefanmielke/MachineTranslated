@@ -202,7 +202,7 @@ He said, "Ahhhh, you just got better, so don't push yourself. You told me to get
 
 &nbsp;
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i717573/)
 
 &nbsp;
 

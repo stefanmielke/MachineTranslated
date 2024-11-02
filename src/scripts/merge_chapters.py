@@ -35,6 +35,8 @@ def merge_files(jp_dir, en_dir, output_dir):
                 # If either line contains '<blank>', write it only once
                 if jp_line.strip() == "<blank>":
                     output_file.write("&nbsp;\n")
+                elif jp_line.strip().startswith("!["):
+                    output_file.write(jp_line.strip() + '\n')
                 elif jp_line.strip() == "----------------":
                     output_file.write("----------------\n")
                 elif jp_line.strip() == "":

@@ -85,7 +85,7 @@ Eh!　Oh, you're that type, huh? That's a shame. Well, I was entertained, though
 
 &nbsp;
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i704427/)
 
 &nbsp;
 

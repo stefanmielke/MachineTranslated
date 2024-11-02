@@ -104,7 +104,7 @@ Yes, sir. Thank you for your concern, my Lord."
 
 &nbsp;
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i717574/)
 
 &nbsp;
 
@@ -318,7 +318,7 @@ Hyan!　Oh, you know what? That--
 
 &nbsp;
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i717575/)
 
 &nbsp;
 

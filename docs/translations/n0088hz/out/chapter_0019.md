@@ -344,7 +344,7 @@ They stare at me, but this is the point where I have to stand my ground. I talk 
 
 *ギロ、と睨まれるがここは踏ん張りどころだ。話しかける。*
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i703531/)
 
 &nbsp;
 

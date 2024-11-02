@@ -38,7 +38,7 @@ The elf child trembled when I spoke to her. Her silver-haired ponytail shook as 
 
 &nbsp;
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i708923/)
 
 &nbsp;
 

@@ -20,7 +20,7 @@ Miss. Are you here for the church?"
 
 &nbsp;
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i701583/)
 
 &nbsp;
 

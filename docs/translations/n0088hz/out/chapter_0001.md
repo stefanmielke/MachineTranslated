@@ -8,7 +8,7 @@
 
 &nbsp;
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i700009/)
 
 （Karina, the main character, tries peddling.)
 

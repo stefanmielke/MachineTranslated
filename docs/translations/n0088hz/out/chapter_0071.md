@@ -124,7 +124,7 @@ I took out 33 bags of lotion. The table was full.
 
 *私は３３袋のローションを取り出した。テーブルがいっぱいになった。*
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i716412/)
 
 &nbsp;
 

@@ -32,7 +32,7 @@ Thank you for ......." I was kind of, you know, not sleeping."
 
 &nbsp;
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i715296/)
 
 &nbsp;
 

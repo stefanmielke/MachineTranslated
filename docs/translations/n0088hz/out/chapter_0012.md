@@ -84,7 +84,7 @@ Also, along the way, a goblin attacked us and we returned safely to the town, ev
 
 &nbsp;
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i701595/)
 
 &nbsp;
 

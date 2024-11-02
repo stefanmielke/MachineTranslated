@@ -167,7 +167,7 @@ The guy was standing in empty air.
 
 &nbsp;
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i704423/)
 
 &nbsp;
 

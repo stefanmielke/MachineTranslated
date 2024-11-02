@@ -218,7 +218,7 @@ She was a beautiful woman with a bandana on her head and shorts that gave her a 
 
 &nbsp;
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i708168/)
 
 &nbsp;
 

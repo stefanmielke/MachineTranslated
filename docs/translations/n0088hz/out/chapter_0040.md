@@ -52,7 +52,7 @@ And in the church was Siesta, a pink-haired succubus sister.
 
 *そして教会にはピンク髪のサキュバスシスター、シエスタがいた。*
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i708917/)
 
 &nbsp;
 

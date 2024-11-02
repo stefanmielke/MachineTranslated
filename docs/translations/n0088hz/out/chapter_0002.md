@@ -293,7 +293,7 @@ A white world. In front of me was a dark-haired, blonde-eyed girl smiling at me.
 
 &nbsp;
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i700010/)
 
 &nbsp;
 

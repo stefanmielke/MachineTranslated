@@ -136,7 +136,7 @@ It was a human-sized church because outsiders would come, but the siesta that gr
 
 &nbsp;
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i785148/)
 
 &nbsp;
 

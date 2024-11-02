@@ -118,7 +118,7 @@ Am I neglected?
 
 &nbsp;
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i700350/)
 
 &nbsp;
 

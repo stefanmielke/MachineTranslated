@@ -44,7 +44,7 @@ And even though it's called a bed, it's still just a box and a blanket.
 
 &nbsp;
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i709500/)
 
 Black dress and over the knee socks. He's stunningly cute, not like a man. ......
 

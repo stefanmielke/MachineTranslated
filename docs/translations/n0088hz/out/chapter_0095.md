@@ -62,7 +62,7 @@ Satitan is forgiven!　Thank God!
 
 &nbsp;
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i722915/)
 
 &nbsp;
 

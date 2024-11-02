@@ -20,7 +20,7 @@ Two golems lined up in front of me. They looked more like knight's armor than th
 
 *ずしん、と目の前に並んだ２体のゴーレム。戦闘用らしく、港で見たゴーレムよりさらに騎士甲冑に近い。身長３ｍの巨人が全身鎧を纏ったような、なかなか味わいのある見た目。……だが、私の敵たり得るかは、別の話。*
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i711281/)
 
 &nbsp;
 

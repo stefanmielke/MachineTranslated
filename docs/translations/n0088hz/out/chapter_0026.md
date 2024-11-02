@@ -46,7 +46,7 @@ We've been waiting for you!　Come on, let's get you out of here!"
 
 &nbsp;
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i705557/)
 
 &nbsp;
 

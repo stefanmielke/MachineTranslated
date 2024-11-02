@@ -54,7 +54,7 @@ She is so whip-smart and sexy. The sisters' clothes are also very flattering. ..
 
 &nbsp;
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i725143/)
 
 &nbsp;
 

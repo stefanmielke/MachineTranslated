@@ -76,7 +76,7 @@ Inside was a silver-haired elf. She was a beautiful elf, a model of what Dia wil
 
 &nbsp;
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i713567/)
 
 &nbsp;
 

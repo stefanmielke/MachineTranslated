@@ -58,11 +58,21 @@ def save_chapter_text(url, output_folder, index):
 
                 paragraphs = div.find_all("p")
                 for paragraph in paragraphs:
-                    text = paragraph.get_text(strip=True)
-                    if not text:
-                        file.write("<blank>\n\n")
+                    # Check if paragraph contains an image
+                    image = paragraph.find("img")
+                    if image:
+                        alt_text = image.get("alt", "image")
+                        img_url = image.get("src")
+                        if img_url:
+                            if img_url.startswith("//"):
+                                img_url = "https:" + img_url
+                            file.write(f"![{alt_text}]({img_url})\n\n")
                     else:
-                        file.write(text + "\n\n")
+                        text = paragraph.get_text(strip=True)
+                        if not text:
+                            file.write("<blank>\n\n")
+                        else:
+                            file.write(text + "\n\n")
 
                 if div.has_attr('class') and 'p-novel__text--preface' in div['class']:
                     file.write("\n----------------\n\n<blank>\n\n")

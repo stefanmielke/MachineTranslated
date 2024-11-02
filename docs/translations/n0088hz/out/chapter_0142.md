@@ -358,7 +358,7 @@ Oh, we don't offer a cooling-off or refund service."
 
 &nbsp;
 
-&nbsp;
+![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i746048/)
 
 &nbsp;
 
