@@ -52,6 +52,7 @@ If you want a new series translated, please open an issue with the series name a
                 - `novel-updates-link`: series URL from Novel Updates.
                 - `source-link`: link to the original source of the series.
                 - `ml-used`: machine translation tool used.
+        - add exclusion folders on `docs/_config.yaml` (copy from other series).
 1. Run `get_chapter_links_from_syosetu.py` to download the chapters on the format expected (if from syosetu, if not, you have to download them).
 1. Copy the `jp` files on the `en` folder, to start with the translation with the original files.
 1. Run `merge_chapters.py` to create the initial files on the `/out` folder.
