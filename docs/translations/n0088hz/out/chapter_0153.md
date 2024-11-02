@@ -1,28 +1,28 @@
-# You can take a little bit of a leap of faith.
+# A Little Bit of Effort Goes a Long Way
 
 ## 多少の無理は通るのよ
 
 &nbsp;
 
-Arrive in the town of Rosetta.
+Arriving in the town of Rosetta.
 
 *ロゼッタの町に着く。*
 
-The town of Rosetta was located at the foot of a mountain, and the streets looked as if they were made of clay bricks and dirt. The overall color is a light reddish brown.
+The town of Rosetta is located at the foot of the mountains, with streets resembling sun-dried bricks and packed earth. Overall, it has a light reddish-brown hue.
 
 *ロゼッタの町は山のふもとにあり、土レンガや土を盛って固めたような街並みが広がっていた。全体的に薄い赤茶色だ。*
 
 &nbsp;
 
-At the gate, I had Aisia disguised as a healer to follow Mr. Arthur, and we were able to enter the town without any problems.
+At the gate, I had Aisia disguise herself as a healer and accompany Arthur-kun, allowing us to enter the town without any issues.
 
 *門ではアイシアにヒーラーに化けてもらってアーサー君を従えさせ、問題なく町に入ることができた。*
 
-I also delivered the letter and got two silver coins postpaid as a reward. Pocket money is nice, isn't it?
+I delivered the letter and received two silver coins as a reward, to be paid later. Pocket money is nice, isn't it?
 
 *手紙も届けて報酬に銀貨２枚を後払いで貰ったよ。お小遣いっていいよね。*
 
-The soldier was reluctant to see the dragon, even though it was smaller, but when I told him that it was a registered follower, he responded, albeit timidly.
+Even though the soldier was a bit hesitant seeing the dragon, he responded cautiously when I informed him that it was a properly registered familiar.
 
 *兵士さんは小さくなったとはいえドラゴンを見て及び腰だったけど、きちんと従魔登録済みのドラゴンだと伝えるとおっかなびっくりだけど対応してくれた。*
 
@@ -30,27 +30,27 @@ The soldier was reluctant to see the dragon, even though it was smaller, but whe
 
 &nbsp;
 
-Well, what did you do about registering as a follower?　I did, in Carcassa. Mr. Healer.
+What? How did I register the familiar? I did it in Calcutta. The healer did.
 
 *え、従魔登録はどうしたかって？　したよ、カルカッサで。ヒーラー氏が。*
 
 &nbsp;
 
-I, or rather, Mr. Healer, am a little bit good with the head of the guild there!
+I, or rather the healer, has a bit of influence with the guild master over there!
 
 *私、というかヒーラー氏はあそこのギルド長にはちょーっと顔効くからね！*
 
-It's a little bit too much to ask.
+A little bit of effort goes a long way.
 
 *多少の無理は通るのよ。*
 
 &nbsp;
 
-I was also able to get a little flexibility in terms of the registration date for the servant registration, so my alibi is perfect.
+I also managed to get a little leeway regarding the registration date of the familiar, so my alibi is perfect.
 
 *従魔登録の登録日についてもちょいっと融通してもらったりしたのでアリバイも完璧だ。*
 
-Totally, the guild card records are surprisingly detailed. Whoever made this is definitely Japanese, like a reincarnated person or a transferee.
+Honestly, the records on the guild card are surprisingly detailed. The person who made this must definitely be a reincarnator or a transmigrator and a Japanese person.
 
 *まったく、意外と細かいんだよなギルドカードの記録。これ作ったやつ絶対転生者とか転移者とかで日本人だぞ。*
 
@@ -58,113 +58,113 @@ Totally, the guild card records are surprisingly detailed. Whoever made this is 
 
 &nbsp;
 
-In.
+So.
 
 *んで。*
 
-I walk around the town of Rosetta with Mr. Dear and Isiah.
+I walk through the town of Rosetta with Dia-kun and Aisia.
 
 *私はディア君とアイシアと一緒にロゼッタの町を歩く。*
 
-Since this is a good opportunity, why don't we ask Isiah, who is from this country, about the sights of the town?
+Since we’re here, I might as well ask Aisia, who is from this country, about the highlights of the town.
 
 *折角だしこの国出身のアイシアに町の見所を尋ねてみようじゃないか。*
 
 &nbsp;
 
-Isiah, is there anything to see in Rosetta?
+“Aisia, does Rosetta have any attractions?”
 
 *「アイシア、ロゼッタの町ってなんか見所ある？」*
 
-It is one of the larger cities in the country, but not nearly as large as the capital. Yes, it is one of the larger towns in the country, but compared to the capital, it is almost nothing. If I had to say, I would say that it's near the border, so it's easy to get liquor from the Kingdom of Pavelkant.
+“Hmm, not really. It is indeed one of the larger towns in this country, but compared to the capital, there’s almost nothing. If I had to say, being near the border, it’s easier to get alcohol from the Pavelcanto Kingdom.”
 
 *「んー、そんなないですね。たしかにこの国では大きい方の町ですが、首都と比べたらほぼないです。しいて言えば、国境付近だからパヴェルカント王国のお酒が手に入りやすい、くらいかと」*
 
 &nbsp;
 
-I see, and that is not so unusual for those of us from Pavelkant.
+I see, and that’s not particularly rare for us who came from Pavelcanto.
 
 *なるほど、んでそれもパヴェルカントから来た私達にとっては特に珍しいモノでもないと。*
 
 &nbsp;
 
-The whole red clay scene is nice because it makes me feel like I'm in a different town."
+“The overall reddish-brown scenery gives a nice feeling of being in a different town, though.”
 
 *「全体的に赤土っぽい光景は、やっぱ違う町に来たなーって感じでいいんだけど」*
 
-It's a basic part of the country, and if you stay here, you'll get tired of seeing it.
+“That’s a basic feature of this country, so if you stay here long, you’ll quickly get tired of it.”
 
 *「それ、この国の基本なところなので、この国に滞在するならすぐ見飽きると思いますよ」*
 
 &nbsp;
 
-Oh, so that's how it is.
+Is that so? I guess that’s how it is.
 
 *そうか、そんなもんなのか。*
 
-In addition, the capital city is generally dwarf-sized, so taller people have to bend down to get through doors and other places, which is cramped.
+By the way, the capital is mostly built for dwarf sizes, so tall people have to bend down every time they go through doors, which can be cramped.
 
 *ついでに言うと首都の方はだいたいドワーフサイズになっているため、身長の高い人はドアとかを潜るたびかがむ必要が出てきて窮屈なんだとか。*
 
-He said that if it is just me, there seems to be no particular inconvenience.
+It seems like it wouldn’t be particularly inconvenient for someone my height.
 
 *私くらいなら特に不都合はなさそうとのこと。*
 
 &nbsp;
 
-I think I'll just stop by the Adventurers' Guild to fulfill the delivery request and then go check out the Merchants' Guild.
+“For now, let’s stop by the Adventurers' Guild to complete the delivery request and then check out the Merchants' Guild.”
 
 *「とりあえず冒険者ギルドに寄って配達依頼達成させて、商人ギルドでも覗いてみようかなぁ」*
 
-As a peddler, it would be more profitable to buy Dwarven 'juice' here and sell it back to the Kingdom of Pavelkant."
+“As a traveling merchant, it might be more profitable to buy dwarf ‘juice’ here and sell it back in the Pavelcanto Kingdom.”
 
 *「行商人としてはここでドワーフの『ジュース』を仕入れてパヴェルカント王国へ戻って売る、ってほうが利益が出るんじゃないかと」*
 
-I can't do that because I don't have a license to drink. Even if it's safe in Dwarf country, I'm going to get arrested in Pavelkant."
+“That’s impossible since I don’t have a liquor license. It might be safe in the dwarf kingdom, but I’d probably get arrested in Pavelcanto.”
 
 *「それはお酒の免許ないから無理だね。ドワーフの国ではセーフでもパヴェルカントで逮捕されちゃいそう」*
 
-Oh, that's right. Excuse me, please use the exit."
+“Oh, right. Sorry for the oversight.”
 
 *「あ、そうでした。すみません差し出口を」*
 
 &nbsp;
 
-In the land of dwarves, the drink you can drink up is 'just flavored water,' right?
+In the dwarf kingdom, drinkable alcohol is just ‘flavored water,’ right?
 
 *ドワーフの国では飲み干せるお酒は『ただの味付きの水』だっけね。*
 
-Well, that's what I would have bought it for.
+Well, it’s fine to buy that too.
 
 *まぁそれはそれで買っておいてもいいけども。*
 
 &nbsp;
 
-But, as Isiah said, it's all about the juice here, so maybe we can buy some Pavelkant 'juice' here and then distribute it around the country!"
+“Oh, but as Aisia said, since it’s ‘juice’ here, it might be a good idea to buy plenty of Pavelcanto’s ‘juice’ and distribute it in this country!”
 
 *「あ、でもアイシアの言う通りここでは『ジュース』なんだから、ここでパヴェルカントの『ジュース』をたっぷり買っておいて、それをこの国でばらまくとかはアリかも！」*
 
-Oh, that's a good idea, Sir!
+“Oh, that’s a great idea, my lord!”
 
 *「おお、それは良い考えですあるじ様！」*
 
 &nbsp;
 
-If it is for bribes, we are not afraid to make duplicates and give them away for free.
+If it’s for bribery, I wouldn’t mind making duplicates and giving them away for free.
 
 *賄賂用ということであれば複製品を作ってタダで渡すというのもやぶさかではない。*
 
-If you're not selling it, it's safe to reproduce it!
+If I’m not selling it, making duplicates is safe!
 
 *売るんじゃないなら複製してもセーフ！*
 
-And since they disappear into the stomach as soon as they are presented, there is no evidence left behind!
+Besides, it would disappear into stomachs immediately after being gifted, so there would be no evidence left!
 
 *それに贈ってすぐ胃袋へ消えていくのだから、証拠も残らないってなもんよ！*
 
 &nbsp;
 
-(But you'd have to be a god to know the difference between a copy and a reproduction.)
+(However, unless you’re a god, you wouldn’t be able to tell the difference between a duplicate and the original.)
 
 *（ただしそもそも神様でもなきゃ複製品かどうかの違いは判らない）*
 
@@ -172,35 +172,34 @@ And since they disappear into the stomach as soon as they are presented, there i
 
 &nbsp;
 
-So, just to be safe, I asked Isiah, a half-dwarf and a strong drinker, to buy some liquor, or rather juice, for a bribe, and we decided to spend the night in this town.
+So, to be safe, I decided to have Aisia, who is a half-dwarf and good with alcohol, buy some alcoholic beverages, or rather juice, for bribery, and we decided to stay in this town for one night.
 
 *というわけで、念には念を入れてハーフドワーフでお酒にも強いアイシアに賄賂用の酒、もといジュースを買ってきてもらうことにしたので、この町で一泊することにした。*
 
 &nbsp;
 
-I don't need to get lodging at ...... yeah, I guess. It's just for one night. It's more trouble to bring dragons and find a nice place to stay.
+As for accommodation… well, I don’t think it’s necessary. It’s just one night. It’s more troublesome to find a good inn that allows dragons.
 
 *宿は……うん、取る必要ないかなぁ。一泊だし。ドラゴン連れ込んでいい宿を探す方が面倒くさい。*
 
-Let's say we saved money by staying in the field.
+I’ll just say we camped out to save money.
 
 *野宿して節約しましたとか言っとこう。*
 
 &nbsp;
 
-Well, there is no particular characteristic of the town, so let's pass by Rosetta town quickly after just one night and go on to the next town.
+Well, since it’s a town without any particularly notable features, let’s just pass through Rosetta in one night and aim for the next town.
 
 *まぁ特にそれらしい特徴のない町、ということでロゼッタの町は一泊だけでサクッと通り過ぎて次の町を目指そう。*
 
-The purpose of this trip is to acquire a "sacred object," so our goal is to get to the center of the country, the capital for the time being.
+The purpose of this trip is to find the ‘sacred artifact,’ so for now, we’ll head toward the center of this country, the capital.
 
 *一応今回の目的は『神器』なので、目指すのはとりあえずこの国の中央、首都だね。*
 
 &nbsp;
 
-I heard that there is a hometown of Isia and Sati along the way, so let's save a lot of fun for there.
+I hear that there’s also Aisia and Sati-tan’s hometown along the way, so I’ll save some fun for that part.
 
 *途中にはアイシアとサティたんの故郷もあるらしいので、色々お楽しみはそこまでとっておこう。*
 
 &nbsp;
-

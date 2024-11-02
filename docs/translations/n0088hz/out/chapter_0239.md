@@ -1,136 +1,136 @@
-# It's not good for kids' education!
+# It might be bad for children's education, but!!
 
 ## 子供の教育に悪いだろうがッ！！
 
 &nbsp;
 
-I can't believe how much fire wine there is! I didn't know there was so much fire wine.
+"Wow, the dwarven connections are amazing! I can't believe there's this much fire liquor!"
 
 *「いやー、ドワーフの伝手すげーにゃー。火酒こんなにあるなんて」*
 
-Come on, come on, come on, come on, come on, come on, come on, come on, come on, come on.
+"Come on, drink up!"
 
 *「ほらほら飲んで飲んで」*
 
-I'm Misha and my name is Misha, too!　I'm Misha, too, and our names are similar!　I feel so close to you!"
+"Oops, thank you, Mii-chan! My name is similar to Misha's! I feel a sense of closeness!"
 
 *「おっとっと、ありがとうニャ、ミーちゃん！　私もミーシャで名前が似てるにゃー！　親近感にゃあ！」*
 
 &nbsp;
 
-and treated Misha to a dwarven brew as promised in advance.
+As promised beforehand, I treated Misha to dwarven liquor.
 
 *と、事前の約束通りドワーフの酒をミーシャにご馳走した。*
 
 &nbsp;
 
-"...... Hey, he's pouring for the queen. ......"
+"…Hey, that guy is making the queen serve drinks…"
 
 *「……おいアイツ女王に酌させてんぞ……」*
 
-Well, spoilers will follow.
+"Well, spoilers will come later, so it's fine."
 
 *「まぁネタバレは追々ってことだから」*
 
-I'd say you sisters have good taste in that area.
+"I can only say that my sisters have good taste in that regard."
 
 *「そのあたりは姉さん達もいい趣味してる、としか言いようがねぇな」*
 
 &nbsp;
 
-It seems to be my rule to have at least one drink with them before a spoiler. It's not an absolute rule. Dia-kun can't drink alcohol.
+At least it seems to be a rule of mine to drink together once before any spoilers. It's not absolute, though. Dia-kun can't drink alcohol, after all.
 
 *少なくともネタバレ前に一度飲み交わすのがマイルールらしい。絶対ってわけじゃないけど。ディア君とかお酒飲めないからね。*
 
-You think I can tell who you really are by drinking alcohol?　You don't have to do that, but you can determine who the Five Elders are with plenty of time to spare, can't you?　I don't have to tell you that. It's a hobby of the wives!
+You can tell someone's true nature by drinking, huh? But isn't it easy to gauge the Five Elders without that? I’ll keep that to myself since it's a hobby of the ladies!
 
 *お酒を飲めば本性が分かるんだよって？　そんなことしなくても五大老余裕で見定められるじゃん？　というのは言わないでおく。奥様達の趣味だからね！*
 
 &nbsp;
 
-Masilo-san, you were also served by Mee and his friends, weren't you?"
+"Well, Mashiro-san was also being served drinks by Mii-chan, right?"
 
 *「まぁマシロさんもミーちゃん達にお酌されてたよね？」*
 
-"Oh, yeah, that's right. ......"
+"Now that you mention it…"
 
 *「そういやそうだった……」*
 
 &nbsp;
 
-Mashiro looks uncomfortable as he recalls that moment, ugh.
+Mashiro-san looks awkward as he recalls that moment.
 
 *その時のことを思い出してうう、と気まずそうなマシロさん。*
 
 &nbsp;
 
-Yes, yes, here's a snack!"
+"Here you go, snacks!"
 
 *「はいはい、おつまみですよー」*
 
-I'm in heaven.　There are drinks and snacks, too. ...... Aisia-chan, will you be my wife?"
+"Nyaa, is this heaven? To have both liquor and snacks… Aishia-chan, will you be my wife?"
 
 *「にゃぁー、ここは天国かニャ？　お酒もツマミもあるにゃんてぇ……アイシアちゃん、私の嫁にならにゃー？」*
 
-I am devoted to You, body, mind, and soul.
+"I have already devoted my body, heart, and soul to my master."
 
 *「私、あるじ様に身も心も魂も捧げてるので」*
 
 &nbsp;
 
-By the way, Misha and his friends have offered to pay for everything at today's welcome party, so don't hesitate to have a drink. I'll make copies too, so feel free to eat and drink as you like.
+By the way, today’s welcome party for Misha is being fully covered by Mii-chan and the others, so feel free to drink as much as you like. I’ll also copy without hesitation, so enjoy your food and drink.
 
 *ちなみに今日のミーシャ歓迎会はミーちゃん達が全部出すと言ってくれているので遠慮なく飲んでもらって構わんよ。私も遠慮なくコピーすっから、好きに飲み食いしてくれ。*
 
-But the smell of fire wine is quite strong. I feel like I'm going to get drunk just from the smell.
+However, the smell of fire liquor is quite strong. Just the scent might get me tipsy.
 
 *しかし火酒の匂い結構強いな。匂いだけで酔っちゃいそうだよ。*
 
 &nbsp;
 
-Hey, hey, let's see your God-pleasing ass, shall we?"
+"Hey, hey, can you show me your butt to please the gods?"
 
 *「ねぇねぇ、神様を喜ばせるお尻見せてー？」*
 
-I can't help it. Just a little bit. ...... it!
+"Mu, I guess I have no choice. Just a little, okay? …Here it is!"
 
 *「むぃ、しかたねーにゃぁ。ちょっとだけにゃよー？……それー！」*
 
 &nbsp;
 
-Misha exposed her perky, raw ass when Meechan begged her to do so.
+Mii-chan asked for it, and Misha playfully exposed her bare bottom.
 
 *ミーちゃんにおねだりされて、ミーシャはぷりんと生尻を晒した。*
 
 &nbsp;
 
-'Oooh, now that's a God-pleasing ass ......!'
+"Oh, this is the butt that pleases the gods…!"
 
 *「おぉー、これが神を喜ばす尻……！」*
 
-I'm sure she's in great shape. Nice flesh too. ......"
+"Indeed, it has a nice shape. The meat is well-proportioned…"
 
 *「確かにいい形してるねぇ。肉付きもいい……」*
 
-It's nice to the touch, too."
+"It feels nice to touch."
 
 *「触り心地もいいね」*
 
-I'd like to recreate this butt. I want to use it as a pillow."
+"I want to replicate this butt. I want to use it as a pillow."
 
 *「これは再現してみたい尻。枕にしたい」*
 
-'In the hole ...... after we get to know each other better!　Hmmm."
+"The inside of the hole… well, let's get to know each other better first! Hehehe."
 
 *「穴の中……は、もっと仲良くなってからね！　ふふふ」*
 
 &nbsp;
 
-The five of us flopped and touched Misha's ass. Can you reproduce that ass ......!
+The five of us began to pat Misha's butt. Can we really replicate that butt…!?
 
 *5人でぺたぺたとミーシャの尻を触る。再現できるのか、その尻……！？*
 
-This is going to be a major project.
+This seems like it could turn into a major project.
 
 *これは一大プロジェクトになりそうだな。*
 
@@ -140,23 +140,23 @@ This is going to be a major project.
 
 &nbsp;
 
-What would happen if we copied the entire buttocks?
+What would happen if I copied the entire butt?
 
 *尻をまるっとコピーしたらどうなるんだろう？*
 
-No, it's out of the question if you deliver it to God or something, but if you copy Misha's ass, there's a chance you can touch it anytime you want ......?
+Well, if it’s for delivering to the gods, that would be a no-go, but if I copied Misha's butt, I might have the chance to touch it anytime…?
 
 *いや、神様に納品するとかだとアウトだけどさ、ミーシャの尻をコピーしたらいつでも触り放題の可能性……？*
 
 &nbsp;
 
-No, if you copy the whole person in the first place, not just the buttocks, you'll get ......
+But if I could copy not just the butt but the whole person…
 
 *いやそもそも尻だけじゃなく人を丸ごとコピーしたら……*
 
 &nbsp;
 
-Can you go to ......!　A copy person!　What about souls and stuff? ......
+…Could it work!? A copied human!? What would happen to the soul…?
 
 *……いけるのか！？　コピー人間！？　魂とかはどうなるんだろう……*
 
@@ -164,197 +164,196 @@ Can you go to ......!　A copy person!　What about souls and stuff? ......
 
 &nbsp;
 
-And just as I was wondering whether I should make a copy of Misha, Dia-kun came in after her bath. Red cheeks with a slight upturn. His silver hair, which he always wears in a ponytail, is down, and he is wiping it with a towel. He is wearing a simple one-piece dress.
+While I was pondering whether to create a copy of Misha, Dia-kun came in after his bath. His cheeks were slightly flushed. His silver hair, usually in a ponytail, was down and he was drying it with a towel. He wore a simple dress.
 
 *と、私がミーシャのコピーを作ろうか悩んでいるところで、お風呂上がりのディア君がやってきた。ほんのり上気した赤い頬。いつもポニテにしてる銀髪を下ろした状態でタオルで拭いている。服はシンプルなワンピースだ。*
 
-He's twice as cute after his bath. ...... He smells good, kun kun.
+He looks even cuter after a bath… I can smell a nice scent, sniff sniff.
 
 *お風呂上りで可愛さ倍増してる……良い匂いすんぞくんくん。*
 
 &nbsp;
 
-Hey, you called Misha, didn't you?
+"Oh, you called for Misha-san."
 
 *「あれ、ミーシャさん呼んだんですね」*
 
-I'm ready to go to the bathroom. Oh, Mr. Masiello, my bath is empty."
+"Yeah. Oh, Mashiro-san, the bath is free now!"
 
 *「うん。あ、マシロさんお風呂空いたよー」*
 
-"Whoa, let me come in then. Do you want to come in with me, Misha?"
+"Oh, then I'll go in. Misha, do you want to join?"
 
 *「おっ、じゃあ入らせてもらおう。ミーシャも一緒に入るか？」*
 
-I'm not going to do that because I'll sober up, hiccup."
+"I'll pass, I don't want to sober up, hic."
 
 *「酔いが覚めちゃうからやめとくにゃー、ひっく」*
 
 &nbsp;
 
-And Misha, fluttering her hand with a cup in her hand, noticed Mr. Dear.
+Misha, waving her cup, noticed Dia-kun.
 
 *と、コップを手にひらひらと手を振るミーシャが、ディア君に気が付いた。*
 
 &nbsp;
 
-Dia-chan!　Come here!
+"Dia-chan! Come over here!"
 
 *「ディアちゃん！　こっちくるにゃ！」*
 
-What?"　Yes, ...... wapu!"
+"Huh? Yes… whoa!?"
 
 *「え？　はい……わぷっ！？」*
 
-Good boy, good boy!　Good girl, you did your best. Dia-chan is great, she did everything she could for Karina like that!
+"Alright, good girl! You did well, Dia-chan. You're amazing for putting in all your effort for that Karina!"
 
 *「よぉーしよしよし！　いい子にゃ、がんばったにゃ。ディアちゃんは偉いにゃ、あんなカリーナのために全力を尽くしたにゃ！」*
 
 &nbsp;
 
-And suddenly he started hugging and stroking her. Hey, take over there. You're mine!　I'm the only one who can bury you in my tits!
+Suddenly, she hugged him and started to pet him. Hey, switch places! Dia-kun is mine!! Only I can bury Dia-kun in my chest!!
 
 *と、突然抱きしめてなでなでし始めた。おいそこ代われ。ディア君は私のだぞ！！　ディア君をおっぱいに埋めて良いのは私だけなんだぞ！！*
 
 &nbsp;
 
-"That was great, good boy, good boy!"
+"You did great, good girl!"
 
 *「立派だったにゃぁ、いい子いい子！」*
 
-Mugu, puhah, mi, Misha-san, suffer......"
+"Mugh, phew, M-Misha-san, it's… hard to breathe…"
 
 *「むぐ、ぷはっ、み、ミーシャさん、苦し……」*
 
-Misha, Dear, you'll choke!"
+"Misha, Dia-kun is going to suffocate!"
 
 *「ミーシャ、ディア君が窒息しちゃうでしょ！」*
 
-"Oops, sorry about that."
+"Oh, sorry about that."
 
 *「おっとすまんにゃ」*
 
 &nbsp;
 
-I pull him off my tits and hug him. Yes, yes, come here.
+She pulled him away from her chest and hugged him to her. Alright, come over here.
 
 *ぐいっとおっぱいから引き離し、こっちに抱きしめる。はいはい、こっちおいでー。*
 
 &nbsp;
 
-What are you doing? Are you going to smear Misha all over Dear after your bath?
+"Seriously, are you trying to dirty Dia-kun with Misha after his bath?"
 
 *「まったく、お風呂上りのディア君をミーシャで汚す気？」*
 
-~~"
+"~~"
 
 *「～～ッ」*
 
-Hey Karina, Deere is choking, I'll let you go."
+"Hey Karina, Dia-chan looks like he’s about to suffocate, let him go!"
 
 *「おいカリーナ、ディアちゃんが窒息しそうにゃ、離してやるにゃ」*
 
-Just five more seconds!　And I'll make sure he breathes in!"
+"Just five more seconds! I’ll make sure he can breathe properly!"
 
 *「あと５秒だけ！　息継ぎもしっかりさせるし！」*
 
 &nbsp;
 
-I'm releasing Mr. Dear from my chest. Wow, he's bright red and cute. There's a different kind of shyness than after a bath or almost suffocating.
+I released Dia-kun from my chest. Wow, he’s bright red and cute. There’s a different kind of embarrassment now compared to just after the bath or almost suffocating.
 
 *ディア君を胸から解放する。わぁ真っ赤で可愛い。お風呂上りや窒息しかけてたのとは違う照れがあるよ。*
 
 &nbsp;
 
-...... my boobs are better than Misha's!"
+"…My breasts are better than Misha's, right!?"
 
 *「……ミーシャのより私のおっぱいのがいいよね！？」*
 
-I'm not going to say anything about that. No comment."
+"Th-that kind of thing, um, no comment."
 
 *「そ、そういうのは、その。ノーコメントで」*
 
-"What is it?　Is it a match?　I'll take it!　Look at those beautiful tits without the need for a bra!
+"What’s that? A challenge? I’ll accept! Behold these beautiful breasts that don’t need a bra!!"
 
 *「なんにゃ？　勝負かにゃ？　受けて立つニャ！　このブラいらずの美乳を見るがいいにゃ！！」*
 
-Wait, don't take it off!"
+"Wait, don’t take them off!?"
 
 *「ちょっ、脱がないでください！？」*
 
-Orac!　That's not good for the kid's education!
+"Hey! It might be bad for children's education, but!!"
 
 *「オラッ！　子供の教育に悪いだろうがッ！！」*
 
-Aah!
+"Ow!?"
 
 *「あだぁ！？」*
 
-I was like, "Oh, no!　Mr. Masiello, why are you coming after me?
+"Ouch! Mashiro-san, why are you hitting me too!?"
 
 *「いだっ！　マシロさんなんで私まで！？」*
 
 &nbsp;
 
-Me and Misha getting hit with a thump, thump, thump.
+I and Misha were being hit repeatedly.
 
 *ゴツンゴツンと殴られる私とミーシャ。*
 
 &nbsp;
 
-"Karina, you must be drunk from the smell of firewhiskey, too.　Come on, let's take a bath to sober up. Come on Misha, if you want to take off your clothes, you can do it in the bathroom.
+"Karina, are you getting drunk just from the smell of firewater? Come on, let's get in the bath to sober up. Misha, you too. If you want to strip, do it in the bath."
 
 *「カリーナ、お前も火酒の匂いで酔っ払ってんじゃねぇの？　ほら、酔い覚ましに風呂入んぞ。ミーシャも来い、脱ぎてぇなら風呂場で脱げや」*
 
-What?"　I'd like to mark you more Dear. ......"
+"Ehh? But I want to mark Dia-kun a bit more…"
 
 *「えー？　もっとディア君にマーキングしたいんだけど……」*
 
-I get it. ......, Masilo has always been so serious."
+"Fine, nya… Seriously, Mashiro’s always been the serious type."
 
 *「わかったにゃぁ……ったく、マシロは昔から真面目だにゃー」*
 
-I want to hear more of that kind of thing. Tell me about the old Mr. Masilo, Misha."
+"Oh, I want to hear more about that! Tell me stories about Mashiro-san in the old days, Misha."
 
 *「あ、そういうのもっと聞きたい。昔のマシロさんの話してよミーシャ」*
 
-What?　What can I do, just a little bit?
+"Ehh? Well, I guess I can… just a little, nya."
 
 *「えー？　しょうがないにゃぁ、ちょっとだけにゃよー？」*
 
 &nbsp;
 
-And we were dragged by Masilo to the bathroom.
+And so, we were dragged off to the bath by Mashiro-san.
 
 *と、私達はマシロさんに引きずられて風呂場へと連れていかれた。*
 
-The bathing scene is cut!
+The bath scene is cut!
 
 *入浴シーンはカットだ！*
 
 &nbsp;
 
-"Woooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo!　Gachi-dekay-buro-ni-yaaaahhhh!!!"
+"Whoa!!! This bath is huuuge, nyaaa!!!"
 
 *「すげーーー！！！　ガチでデケー風呂にゃあああーーーーー！！！」*
 
-"...... Hey Misha!　Wash up before you go in there!　I'll beat your ass! ...... I'm paying for this bath and the rent for the room, what about Misha?"
+"…Hey, Misha! Wash yourself before you get in!! I'll smack your butt!! …By the way, I pay rent for using this bath and room, but what about Misha?"
 
 *「……おいミーシャ！　入る前に身体洗えッ！！　ケツぶっ叩くぞ！！……つーかアタシはこの風呂入るのと部屋に家賃払ってんだが、ミーシャはどうなるんだ？」*
 
-I thought, "Well, I'll give you a free room while you're at Terra Realvy. If you want to make a room, you have to pay me something.
+"I’m thinking of letting her stay for free while she's in Terral Ruby. But if she wants a room built, she’ll have to pay something."
 
 *「まぁテラリアルビーにいる間くらいはタダにしておいてあげようかなって。部屋作るならなんか払ってもらうけど」*
 
-'Yeah, I guess that's appropriate. ...... Hey Misha!　Don't jump in!　I'll smack your ass!
+"Yeah, that sounds fair… Hey, Misha! No diving! I'll smack your butt!!"
 
 *「ああ、それが妥当かなぁ……おいミーシャ！　飛び込むんじゃねぇ！　ケツぶっ叩くぞ！！」*
 
 &nbsp;
 
-...... Cut it!
+…Cut to black!!
 
 *……カットだッ！！*
 
 &nbsp;
-

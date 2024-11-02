@@ -1,4 +1,4 @@
-# "What?"
+# "Huh?"
 
 ## 『は？』
 
@@ -6,177 +6,176 @@
 
 &nbsp;
 
-I ask Braid-senpai about the new alchemy kingdom while letting Misha help me stir the pot around and around.
+While having Misha help stir the pot, I ask Blade-senpai about the New Alchemy Kingdom.
 
 *ミーシャにも鍋をグルグル混ぜるの手伝わせつつ、ブレイド先輩に新生錬金王国について聞く。*
 
 &nbsp;
 
-So, what do you mean by the new alchemy kingdom?"
+"So, what does the New Alchemy Kingdom mean?"
 
 *「そんで、新生錬金王国ってどういうことです？」*
 
-It's like, "Hey, let's rebuild the alchemy kingdom," he said. In a manner of speaking, the upper echelons of the original alchemy kingdom are the main players."
+"It means we're trying to rebuild the Alchemy Kingdom. It's mainly the original upper management of the Alchemy Kingdom leading the charge."
 
 *「どうもこうも、錬金王国を作り直そうって感じだな。一応は元々の錬金王国の上層部が主になっての話だな」*
 
 &nbsp;
 
-Hoh, the original upper management. I guess that makes it sound like a decent recovery.
+Oh, so it's the original upper management. That makes it seem like a proper reconstruction.
 
 *ほう、元の上層部が。となるとまともな復興って感じなのかなぁ。*
 
 &nbsp;
 
-And we're kind of hired to help them out. Like I said, they pay pretty good, you know?"
+"And we were hired to help with that. Like I said earlier, the pay is pretty good, you know?"
 
 *「んで、俺らはその手伝いに雇われって感じだな。さっきも言ったが、かなり金払いがいいぜ？」*
 
-I wonder why they don't just give the money away to C-rank adventurers and buy something to use for reconstruction?"
+"That's a bit strange, though. Wouldn't it be better to buy something useful for the reconstruction rather than just throwing money at C-rank adventurers?"
 
 *「それはちょっと不思議ニャね。Ｃランク冒険者に金ばら撒くより、何か復興に使うモン買った方がよくね？」*
 
-Ha ha, it's the other way around, Rikaze. If you treat C-rank adventurers like us well, you'll attract other people, won't you?　After all, it is said that God was angry and went on a rampage, and if you don't do something like that, you won't get the manpower.
+"Haha, that's the opposite, Retsufuu. If you treat C-rank adventurers like us well, others will come flocking too, right? After all, there's a story that the gods got angry and caused a ruckus, so we need to do something like that to gather manpower."
 
 *「はは、そこは逆だぜ烈風。俺らみてぇなＣランク冒険者を厚遇すれば、他の奴らも集まってくるだろ？　なにせ神様が怒って暴れたってぇ話だ、そのくらいしなきゃ人手が集まらねぇって事さ」*
 
 &nbsp;
 
-What a surprise. There is a Chinese legend that says, "First things first. By treating the mediocre first mover well, more talented people will come to him and say, "Then I will be treated better! Then, more excellent people will come to him.
+Wow. There's a Chinese saying, "Start with the humble," which means that by treating an ordinary person well, more talented individuals will think, "If they're treated well, I should be treated even better!"
 
 *なんと。中国の故事で「先ず隗より始めよ」　というのがある。平凡な隗さんを厚遇することでもっと優秀な人が「なら自分はもっと厚遇される！」と集まる、ってやつだ。*
 
-Isn't that exactly the strategy?　You've done it, newborn alchemy kingdom!
+Isn't that exactly that strategy? Well played, New Alchemy Kingdom!
 
 *まさにその戦略じゃあないか！　やりおるな、新生錬金王国！*
 
 &nbsp;
 
-I'm sure that's true if it's a place where God is angry with you. It's so smart!　Who the hell thought of that?
+"Seriously? If it's a place where the gods got angry, then that makes sense. I mean, that's really smart!! Who came up with that idea?!"
 
 *「マジか、確かに神様が怒った場所ってなったらそうもなるにゃ。つーかめっちゃ頭いいにゃ！！　一体誰が考えたニャ！？」*
 
-I hear it was the new king who came up with this idea."
+"Apparently, it was the new king who thought of this."
 
 *「なんでもこれを考えたのは新しい王様らしいぞ」*
 
-"Wow, a king. Well, the future of this country might be bright.
+"Oh, the king, huh? That might mean a bright future for this country."
 
 *「へぇー王様が。そりゃこの国の未来も明るいかもしれないね」*
 
 &nbsp;
 
-What kind of king is this?
+I wonder what kind of king he is.
 
 *一体どんな王様なんだろう。*
 
 &nbsp;
 
-Oh. He's the king of the new alchemical kingdom, so he calls himself the True God of Chaos."
+"Ah. The king of the New Alchemy Kingdom calls himself the True Chaos God."
 
 *「ああ。新生錬金王国の王様ってことで、真・混沌神を名乗ってる」*
 
-What about?"
+"Huh?"
 
 *『は？』*
 
 &nbsp;
 
-...... Ah. Hmm. Mm.
+...Ah. Hmm. Yeah.
 
 *……あー。うーん。うん。*
 
-I take back what I said before. The future of this country may be bleak!
+I take back what I said. The future of this country might be dark!!
 
 *前言撤回。この国の未来は暗いかもしらんねぇ！！*
 
 &nbsp;
 
-What's wrong?　What's the matter, Karina, you suddenly got a headache?"
+"Huh? What's wrong, Karina? Suddenly holding your head."
 
 *「ん？　どうしたカリーナ急に頭抱えて」*
 
-'Uh, no, I mean. ...... senpai, let's get out of this country right now!"
+"Ah, no, um... Senpai, we need to escape this country right now!"
 
 *「あー、いや、その。……先輩、今すぐ逃げよう、この国から！」*
 
-What?　I'm at work, okay? I'm at work, okay?"
+"Huh? What are you talking about all of a sudden? I'm at work here."
 
 *「は？　なんだよいきなり。俺は仕事中だぜ？」*
 
-Let's just run away!　He said it's not worth our lives. Right?
+"Just run! Nothing is worth your life. Okay!?"
 
 *「いいから逃げよう！　命には代えられないって。ね！？」*
 
-......Eh, it's that bad?"
+"...Wait, is it really that bad?"
 
 *「……え、そんなヤバいのか？」*
 
 &nbsp;
 
-I nodded my head.
+I nod repeatedly.
 
 *こくこくこくと頷く私。*
 
-I mean, God's "What? I had a "Huh?
+I mean, the god's "Huh?" came even faster than my reaction just now!!
 
 *つーかさっき私が反応するよりも早く神様の『は？』があったし！！*
 
 &nbsp;
 
-Karina-chan."
+"Karina-chan"
 
 *『カリーナちゃん』*
 
 &nbsp;
 
-Yikes.
+Oh no. I can almost hear the sound effect of the god getting angry.
 
 *やっべ。神様のビキッビキッて効果音が聞こえてきそう。*
 
-And time stands still.
+And time seems to have stopped.
 
 *そして時間止まってる。*
 
 &nbsp;
 
-"......"
+"…"
 
 *「……」*
 
-'This is a quest from God. Kill this true god of chaos or whatever he is, or rather, kidnap him with spatial magic and hand him over to me. The deadline is three days. If you succeed, I will raise 10,000 SP.
+"This is a quest from the god. Capture that True Chaos God and bring him in using spatial magic. The deadline is three days. If you succeed, you'll receive 10,000 SP."
 
 *『神様からのクエストです。その真・混沌神とかいうやつを殺――ああいや、空間魔法で拉致って引き渡しなさい。期限は三日。成功したら１万ＳＰ上げます』*
 
-"...... hi"
+"…Okay."
 
 *「……ハイ」*
 
 &nbsp;
 
-I mean, didn't you ask God in church!　Why are you talking about the true God of Chaos!　God is having a fantastic eruption!
+By the way, didn't you consult the god at the church!? Why are you talking about the True Chaos God!? The god is furious and ready to erupt fantastically!?
 
 *というか、教会で神様にお伺い立てなかったのかよ！？　なんで真・混沌神とか言ってんの！？　神様激おこファンタスティック大噴火なんだが！？*
 
 &nbsp;
 
-"......, by the way, if I fail ......?"
+"…By the way, what happens if we fail…?"
 
 *「……ちなみに失敗したら……？」*
 
-'A new brave will be summoned. Please befriend them as your seniors, okay?　After that country is destroyed again.'
+"A new hero will be summoned. Please be friendly with them as a senior, okay? After that country falls again."
 
 *『新しい勇者が召喚されることでしょう。先輩として仲良くしてあげてくださいね？　その国がまた滅んだ後に』*
 
 &nbsp;
 
-From God's point of view, he is not willing to allow any chaos god other than his lover, even if he has a true or neo god.
+It seems that the god has no intention of forgiving any Chaos God other than a lover, even if they have titles like True or Neo.
 
 *神様的には真とかネオとかついても恋人以外の混沌神を許す気は無いらしい。*
 
-Please take a moment to learn a little bit about the breadth of mind of the Five Great Elders, God. ......
+Please take a little inspiration from the open-mindedness of the Five Elders, God…!
 
 *五大老の心の広さをちょっとだけ見習ってください、神様……！*
 
 &nbsp;
-

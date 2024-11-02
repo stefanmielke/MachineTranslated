@@ -1,250 +1,250 @@
-# They must be making a lot of money.
+# It must be profitable for sure
 
 ## きっと儲かってるに違いない
 
 &nbsp;
 
-I went to the waiting room, which was a separate players' waiting room and quite spacious.
+When I went to the waiting room, it was a spacious individual player lounge.
 
 *控室に行くと、そこは個別の選手控室で結構広かった。*
 
-There is even a carpet and a bed in the room, which looks like it could be used as a hotel. There are even fruits on the table.
+There were carpets and even beds, making it a well-equipped room that seemed suitable for staying overnight like a hotel. There were even light snacks and fruits on the table.
 
 *絨毯やベッドまでおいてあり、このままホテル代わりに泊まることもできそうなしっかりした部屋だ。テーブルに軽食のフルーツまでおいてあるよ。*
 
 &nbsp;
 
-Good work, sister."
+"Thank you for your hard work, big sister."
 
 *「お疲れ様です、お姉さん」*
 
-Thank you for your hard work, Mister Aruji!"
+"Thank you for your hard work, my lord!"
 
 *「お疲れ様ですあるじ様！」*
 
 &nbsp;
 
-So, Dia, it appears that you were included because you are a party member. Aisia is my slave, so I treat her as my property as well.
+So, it seems that Dia-kun was allowed in as a party member. Aisia is my slave, so she is treated the same way as property.
 
 *で、ディア君はパーティーメンバーということで入れた模様。アイシアは私の奴隷なので所有物扱いで同様。*
 
 &nbsp;
 
-Now, it seems that the main competition starts here, so I'm going to do my best to win!
+"Alright, it seems like the main event starts from here, so let's do our best to aim for victory!"
 
 *「さーて、ここから本戦らしいから、優勝目指して頑張るよー」*
 
-What was that?　Was that a qualifier earlier?"
+"Huh? Was the earlier part the preliminaries?"
 
 *「あれ？　先ほどのって予選だったんですか？」*
 
-I didn't know much about it because I just entered a tournament that looked big enough for me to win, thinking that Aruji-sama could win anything. I didn't know that.
+"I just randomly entered what seemed like a big tournament, thinking my lord could win anything, so I didn't know the details either. So that was the case."
 
 *「あるじ様なら何でも勝てるだろうと適当に大きそうな大会にエントリーしただけだったので、私も詳しくは知りませんでした。そうだったんですね」*
 
 &nbsp;
 
-It seems I was the only one who qualified, but I'm sure it was because I joined on short notice. All the other participants must have already made it through the qualifying round.
+It seems that only my group had preliminaries, but it must be because we joined at the last minute. The other participants must have already cleared the preliminaries.
 
 *予選があったのは私のところだけだったみたいだけど、きっと急遽参加したからだろう。他の参加者はみんな予選を既に突破していたに違いない。*
 
 &nbsp;
 
-...... Well, there are many things you don't know about this kind of thing without someone like a guide, aren't there?
+...Hmm, it's hard to understand these things without a guide.
 
 *……うーん、案内人みたいな人がいないとこういうの分からないこと多いよねぇ。*
 
-Maybe I should have brought Mr. Masiello even if I had to ask him to come.
+Maybe I should have insisted on bringing Mashiro-san along.
 
 *無理言ってでもマシロさん連れてきた方がよかったかもしれないなぁ。*
 
 &nbsp;
 
-But all I can do is win!　Even if there's a king or something, I'm going to win!　And I have 82 gold coins at stake."
+"But anyway, what I can do is just win! Even if a king comes out as an opponent, I will definitely show that I can win! After all, there are 82 gold coins at stake!"
 
 *「けどまぁ、私にできることはとにかく勝つことだけ！　たとえ相手に王様とか出てきても、絶対勝ってみせるからね！　金貨８２枚もかかってるし」*
 
-Yes, I am sure you can beat King Barbaros! I am sure that you will be able to defeat King Barbaros!"
+"Yes. I'm sure my lord can defeat King Barbaros!"
 
 *「はい。あるじ様ならきっとバルバロス王にも勝てます！」*
 
-I agree. I am sure your sister will win. But be careful, because I hear that when King Barbaros sees a strong woman, he invites her to become his concubine."
+"That's right. I'm sure you can win, big sister. But please be careful, as it seems King Barbaros invites strong women to be his concubines."
 
 *「そうですね。お姉さんならきっと勝てるでしょう。でも気を付けてくださいね、バルバロス王は強い女を見ると妾に誘ってくるそうなので」*
 
 &nbsp;
 
-I see. I'll have to be careful with that. I'll have to be careful not to let them take you away from me.
+I see. I need to be careful about that. I mustn't let Dia-kun be taken away.
 
 *なるほど。それは気を付けないといけないな。ディア君をとられないように。*
 
-Don't let the mysterious beautiful girl, Dia, who won overwhelmingly with her dragons at the tamer competition, be taken away from you!
+The mysterious beautiful girl who dominated the Dragon Tamer tournament and achieved overwhelming victory, I must not let them take Dia-kun away!!
 
 *テイマー大会でドラゴンを従え圧倒的勝利した謎の美少女、ディア君をとられないように！！*
 
 &nbsp;
 
-"Well, if you're playing against the king, you have to act like you're weak and win with a lucky punch."
+"Hmm, when facing a king, I should pretend to be weak and win with a lucky punch, right?"
 
 *「うーん、王様相手にしたら弱いフリしてラッキーパンチで勝つ、みたいな演技しなきゃね」*
 
-I hope that fools you. ......
+"I hope that can work..."
 
 *「それで誤魔化せるといいんですが……」*
 
-If I can't fake it, that's the time to do it. It will be easy for you to get away with it. I'll go to ...... and gather some information in preparation for the next match.
+"If it doesn't work, then it doesn't. My lord would probably find it easy to escape... Shall we gather some information just in case for the next matches?"
 
 *「ごまかせなかったらその時はその時ですね。あるじ様なら逃げ切るのも簡単でしょうし。……次以降の試合に備えて、一応情報収集しておきますか？」*
 
 &nbsp;
 
-I know it's a little late for that, but I think I should ask for .......
+It feels a bit late for that... but maybe it's better to ask.
 
 *今更、という感じもあるが……頼んでおいた方が良いかな。*
 
-Information is important!
+Information is important after all!
 
 *情報は大事だもんな！*
 
 &nbsp;
 
-'Yes, I'll ask for it. Please do me a favor, Isiah."
+"That's right, I'll ask you to do that. Please, Aisia."
 
 *「そうだね、お願いしようかな。頼むよアイシア」*
 
-Yes!　Leave it to me!"
+"Yes! Leave it to me!"
 
 *「はい！　お任せください！」*
 
-By the way, sis, how many more games do we have to win to win the championship?"
+"By the way, big sister, how many matches do I need to win to become the champion?"
 
 *「ところでお姉さん、あと何試合勝てば優勝なんですか？」*
 
-I don't know, but if we beat them all, we win. Yeah."
+"I don't know, but well, if you defeat everyone, you'll be the champion. Yeah."
 
 *「わかんないけど、まぁ全員倒せば優勝だよ。うん」*
 
 &nbsp;
 
-I picked up a piece of fruit that was left in the waiting room. I heard that this kind of service is available for contestants in the finals. This is a nice tournament. They must be making a lot of money. I munched on it.
+I picked up a piece of fruit that was placed in the waiting room. It seems there are services like this for main event participants. What a nice tournament. It must be profitable for sure. Munch munch.
 
 *と、控室に置いてあったフルーツを手に取る。本選出場者向けにこういうサービスもあるとか。いい大会だなぁ。きっと儲かってるに違いない。もぐもぐ。*
 
 &nbsp;
 
-...... sister, that's not poisoned or anything, is it?"
+"...Big sister, this doesn't have any poison in it, right?"
 
 *「……お姉さん、それ毒とかはいってないですよね？」*
 
-It's okay. I scanned it with spatial magic, but it's just another plain old muskrat."
+"Don't worry. I scanned it with spatial magic, and this is just regular muscat."
 
 *「大丈夫だよ。空間魔法でスキャンしたけど、これもフツーのマスカットだ」*
 
 &nbsp;
 
-I picked up one of the large grapes and ate it with a crunch. Mmmm, it's sweet. The juice soaks into my throat.
+I plucked a large one and took a bite. Hmm, sweet. The juice spreads down my throat.
 
 *大粒のそれを１つもぎ、パクっと食べる。うーん、甘い。果汁がのどに染渡る。*
 
-I used spatial magic to cut the red apple into eight pieces, and gave Dia a slice as well.
+I used spatial magic to cut a red apple into eight pieces and gave a slice to Dia-kun.
 
 *赤いリンゴを空間魔法で８分割にパカッと切り分け、ディア君にも一切れあげた。*
 
 &nbsp;
 
-Amu. It's ...... shaky and delicious. These are pretty good ones."
+"Nom. ...It's crunchy and delicious. This is quite a good one."
 
 *「あむ。……シャクっとしてて美味しいですね。これ、かなりいいやつですよ」*
 
-Really?"
+"Is that so?"
 
 *「そうなの？」*
 
-Yes, it is. I think it is a luxury item, the kind that is feasted on by royalty and such. ......Maybe there are royalty at the convention. I think that's what they have in the anteroom.
+"Yes. I think it's a high-quality item served to royalty. ...Perhaps there are royals participating in the tournament. The fruits in the waiting room might be leftovers from them."
 
 *「はい。王族とかに饗される類の高級品だとおもいます。……もしかしたら、大会に王族が出てるのかもしれませんね。控室に置いてあるのは、そのお零れではないでしょうか」*
 
-"Aruji-sama, may I have a slice?"
+"My lord, could I have a piece too?"
 
 *「あるじ様、私にも一切れいただけますか？」*
 
-"Okay. Here you go."
+"Sure. Here, ahh."
 
 *「いいよ。はいあーん」*
 
 &nbsp;
 
-She brings the apple to Isiah's mouth and eats it with a squeak.
+When I fed it to Aisia, she crunched into the apple.
 
 *アイシアの口に運んであげると、しゃくっとリンゴを食べる。*
 
 &nbsp;
 
-I'm sure you'll be able to find it at ....... It's so good!　Master, you should make a copy of this for the pantry!"
+"...It's, it's so delicious! My lord, this is something we should copy and store in the food storage!"
 
 *「……っ、す、すごく美味しいです！　あるじ様、これ食料保管庫にコピーしておくべきやつです！」*
 
-I'm not so sure. Well, if you don't sell it, I guess it's okay. Yeah."
+"Is it that good? Well, if I'm not selling it, then it's fine. Yeah."
 
 *「それほどかぁ。まぁ、売らないならいいかな。うん」*
 
-"Heh, you can eat all you want of this......After all, Aruji-sama's base is the best......!　And if you eat it with Aruji-sama's hand-grabbing, it's twice as tasty!"
+"Yay, an all-you-can-eat feast... My lord's base is the best...! And having eaten it directly from my lord's hand makes it even more delicious!"
 
 *「ふへ、これを食べ放題……やはりあるじ様の拠点は最高ですね……！　しかもあるじ様手づからのあーんで食べたら、美味しさも倍々というものです！」*
 
-Haha, thanks."
+"Ahaha, thanks."
 
 *「あはは、ありがとね」*
 
 &nbsp;
 
-Let's get all the Five Elders to eat it. ...... No, they might all be used to eating it. Like Queen Mee or something.
+I should let everyone from the Five Elders taste it too... No, they might be used to it. After all, there's Queen Mi-chan.
 
 *五大老のみんなにも食べさせてあげよう。……いや、みんななら食べ慣れてるかもしれないな。ミーちゃん女王様とかだし。*
 
 &nbsp;
 
-I think people would make magical tools to grow these things."
+"If it's everyone, they might create magical tools to grow things like this."
 
 *「みんななら、こういうのを育てる魔道具とか作ったりしそうだよね」*
 
-With magical tools,?" ...... Sure, you could do it with the right environment for your base. We don't have to take into account storms, pests, etc."
+"With magical tools, huh? ...Indeed, if we utilize the environment of the base well, it seems possible. We wouldn't have to worry about storms or pests."
 
 *「魔道具で、ですか？……確かに、拠点の環境をうまく使えばできそうですね。嵐とか害虫とかを考慮しなくていいですし」*
 
-"Fully automated farm with magical tools...... ants."
+"An entirely automated farm with magical tools... That sounds good."
 
 *「魔道具による全自動農場……アリだな」*
 
 &nbsp;
 
-It's against my personal rules to make from seeds, fruits I got here today, but if I can get good seeds from Mee-chan's contacts, that's possible.
+If I were to grow it from seeds, using the fruits I got today would be a personal rule violation, but if I could get good seeds through Mi-chan's connections, then that would be acceptable.
 
 *種から作るとなると今日ここで手に入れた果物を、というのは私的にルール違反だが、ミーちゃんの伝手でいい種を仕入れるならそれはアリだ。*
 
 &nbsp;
 
-"A field in a stronghold... ...... I think we're going to have a country inside the stronghold one of these days."
+"A farm at the base... It seems like a country could be established within the base soon."
 
 *「拠点に畑かぁ……そのうち拠点の中に国ができちゃいそうだね」*
 
-It would be easy if you wanted to make it, but I wouldn't recommend it because you are too dependent on your sister.
+"It would be easy to create if we wanted to, but since there's a tendency to rely too much on big sister, I wouldn't recommend it."
 
 *「作ろうと思えば簡単に作れるでしょうが、お姉さんに依存しすぎなところがありますからおすすめはしません」*
 
 &nbsp;
 
-And Deere-kun, you answer seriously. If you say so, I'll stop.
+Dia-kun answered seriously. If Dia-kun says so, then I should refrain.
 
 *と、真面目に回答してくれるディア君。ディア君がそういうならやめとこう。*
 
-I can't take responsibility if I make it that big. I don't want to. And I'm only willing to enclose it to the extent that I can love it.
+If I make it that big, I won't be able to take responsibility. I don't want to take responsibility. I only want to enclose it to the extent that I can be adored.
 
 *私もそこまで大きくしてしまったら責任取れない。取りたくない。私が愛でられる範囲までしか囲い込む気はないしね。*
 
 &nbsp;
 
-Or, Kalina, the player. Please prepare for the next match!　Oh, this will be the last match of the day!"
+"K-Karina-san. Please prepare for the next match! Ah, this will be the last match of the day!"
 
 *「か、カリーナ選手。次の試合の準備をお願いします！　あ、本日最後の試合になります！」*
 
@@ -256,35 +256,35 @@ The staff came to call me.
 
 &nbsp;
 
-Hmm?"　Oh, it was a two-day tournament, wasn't it? I see.
+"Huh? Ah, so it was a tournament split over two days. I see, I see."
 
 *「ん？　あー。２日にわけるタイプの大会だったんだね。そっかそっか」*
 
-Yes. Please feel free to use this room today. Win or lose, yes, you are free to use it for the night."
+"Yes. Please feel free to use this room today. Whether you win or lose, you can use it freely for the night."
 
 *「はい。本日はこの部屋をご自由にお使いください。勝っても負けても、はい、一晩はご自由にお使いくださって大丈夫なので」*
 
-I see. Well, I guess I'll go to ...... for the main game!"
+"I see. Well then, I'm off... to the main event!"
 
 *「そっか。じゃ、いってくるかな……本戦に！」*
 
-'Well, I'm off to gather information. I'll leave a note via the base as appropriate with the information, so please check back!"
+"Then I will go gather information. I will leave notes through the base as needed, so please check them!"
 
 *「では私は情報収集に行ってきます。情報は適宜拠点経由でメモを置いておきますので、確認してくださいね！」*
 
-I'll be cheering from the bleachers!"
+"I'll be cheering from the audience!"
 
 *「僕は観客席から応援してますね！」*
 
 &nbsp;
 
-Dea and Isiah left the room as I did.
+Dia-kun and Aisia also left the room along with me.
 
 *私にあわせて、ディア君とアイシアも部屋を出た。*
 
 &nbsp;
 
-A match?　Well, it's still the first game of the finals!　I won easily.
+A match? Well, it's still the first match of the main event! I won easily.
 
 *試合？　まぁまだ本選の第一試合だしね！　あっさり勝たせてもらったよ。*
 
@@ -294,21 +294,18 @@ A match?　Well, it's still the first game of the finals!　I won easily.
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-And please keep up the good work on the new one for Kakuyomkong 9!
+Please also check out my new work for Kakuyomu Con 9!
 
 *カクヨムコン９向けの新作もよろしくね！*
 
-"How a Dungeon Deliverer Wants to Be a Lady Someday Becomes a Real Lady."
+"Until the Dungeon Streamer Who Wants to Be a Young Lady Becomes a Real Young Lady"
 
 *『いつかお嬢様になりたい系ダンジョン配信者が本物のお嬢様になるまで』*
 
 https://kakuyomu.jp/works/16817330667768391252
 
 *https://kakuyomu.jp/works/16817330667768391252*
-

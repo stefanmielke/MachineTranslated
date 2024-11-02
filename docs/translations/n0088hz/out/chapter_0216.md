@@ -1,212 +1,212 @@
-# That's even better!
+# That's even more convenient!!
 
 ## それは尚更好都合ッ！！
 
 &nbsp;
 
-Okay, let's continue. Let's do it!"
+"Alright, let's continue. Shall we do this!"
 
 *「よし、じゃあ続きだ。やろうか！」*
 
-Oh, I'm coming at you!"
+"Come at me then!"
 
 *「おう、かかってくるにゃあ！」*
 
 &nbsp;
 
-Misha is waiting for us, hunched over.
+Player Misha crouches down and waits for me.
 
 *ミーシャ選手はぐっと腰を落としてこちらを待ち受けている。*
 
-Oh, are you sure?　I'm sorry for giving up the lead. Well, it doesn't make a difference either way.
+Oh, is it okay? You're giving me the first move. Well, it doesn't really matter either way.
 
 *おや、いいのかい？　先手をこちらに譲ってしまって。まぁどっちでも変わらんか。*
 
 &nbsp;
 
-Here we go: ...... and oh my!"
+"I'm coming... here I go!"
 
 *「いくぞ……とぉー！」*
 
-I'm not sure what to do about it, but I'm sure I'll be able to find a way! ...... is so heavy!"
+"You're wide open!! ...Wait, it's heavy!?"
 
 *「隙だらけニャ！！……って重ッ！？」*
 
 &nbsp;
 
-I hit him slowly and Misha tried to pay for it with his arm, but he couldn't back away at all.
+As I slowly swing my fist, Player Misha tries to deflect it, but she can't push me back at all.
 
 *私がゆっくり殴り掛かるとミーシャ選手はそれに合わせて腕を払おうとしたが、全く退けることができない。*
 
-But as expected of a winner who has survived this far, he grabs my arm and tries to throw me as it flows - but this doesn't work either.
+But as expected from someone who has made it this far, she tries to grab my arm and throw me in a fluid motion—however, that doesn't work either.
 
 *でもさすがここまで勝ち残っただけのことはあり、そのまま流れるように私の腕を掴んで投げようとする――が、これも動かない。*
 
 &nbsp;
 
-It doesn't even move!　What the hell is this?　A big rock!
+"You're not budging at all!? What the heck is this!? A boulder!?"
 
 *「ビクともしねぇ！？　なんにゃこれ！？　大岩！？」*
 
-'Hmph, that's what happens when you have a strong torso.'
+"Ha, this is what happens when you have a solid core."
 
 *「フッ、体幹がしっかりしてるとこうなるのだよ」*
 
-It's too heavy!　It's too heavy to be possible no matter how you look at it!　How fat are you under your clothes?
+"No way!? It looks way too heavy to be true!? How much weight are you hiding under that outfit!?"
 
 *「嘘にゃ！？　どう見てもありえなさすぎる重さにゃ！？　服の下どんだけデブってんのにゃ！？」*
 
 &nbsp;
 
-I'm not fat!　Gothic Lolita dresses are heavy, though!
+Hmph, I'm not fat! The Gothic Lolita dress is just a bit heavy, you know!
 
 *ふ、太ってねぇし！　ゴスロリドレスは重量重めだけどよぉ！*
 
 &nbsp;
 
-I caught Misha while using a combination of spatial magic, and put him on his stomach on his knees while air chairing him.
+I used spatial magic to catch Player Misha while sitting in an air chair, resting my stomach on her knees.
 
 *私は、空間魔法を併用しつつミーシャ選手を捕まえ、空気椅子しながらその膝の上に腹を乗せた。*
 
 &nbsp;
 
-What's going on?　What's going on?　I can't move!
+"Bu-nyah!? Wh-what's going on!? I can't move!?"
 
 *「ぶにゃ！？　ど、どうなってんのにゃ！？　動けねぇ！？」*
 
-"Huh, I'm perfectly jointed, so I won't be able to move so easily."
+"Hehehe, since I've perfectly locked your joints, you won't be able to move so easily."
 
 *「フフフ、関節を完璧にキメてるからそう簡単には動けまい」*
 
-That's not true either!　It feels like I'm being tied up with a rope!
+"That's a lie!? It feels like I'm tied up with ropes!?"
 
 *「それも嘘にゃ！？　ロープで縛られてる感覚にゃよ！？」*
 
 &nbsp;
 
-Good instincts, but they don't seem to know what this position is all about.
+You're quite perceptive, but it seems you don't understand what this position really means.
 
 *勘のいいやつめ、だが、この体勢が一体どういうものかは分かっていないようだ。*
 
-Me in the air chair. Misha player on his stomach on top of it with his tummy on his stomach and both hands held in my left hand. Her buttocks are pointing to the right.
+I'm sitting in an air chair. On top of that, Player Misha is lying on her stomach with her belly resting on my left hand, her hands gripping mine. Her rear is facing to the right.
 
 *空気の椅子に座っている私。その上に腹ばいにおなかを乗せて、両手を私の左手に握られているミーシャ選手。尻を右側に向けている。*
 
 &nbsp;
 
-...... I hope you got the idea. Yes, it's butt-pennying!
+...Do you understand now? Yes, it's a spanking on the bottom!!
 
 *……お判りいただけただろうか。そう、お尻ぺんぺんですねぇ！！*
 
 &nbsp;
 
-Hey, you, what are you doing?
+"Hey wait, what are you planning to do!?"
 
 *「おいまてテメー、何する気にゃ！？」*
 
-"What's up with the butt-splitting?"
+"It's just a spanking on the bottom, you know?"
 
 *「お尻ぺんぺんだけど？」*
 
-"Nyandemo?
+"Why?!"
 
 *「にゃんで？！」*
 
-I'll get..!　My ass!　Because I want to smack it!
+"Because I want to spank your butt!!"
 
 *「私がッ！　尻を！　叩きたいからだッ！！」*
 
 &nbsp;
 
-As I said it, I pesh!　and slapped her buttocks. Misha's cat tail flicked.
+Saying that, I go smack!! on her rear. Player Misha's cat tail twitched.
 
 *言いながら、私はぺしーん！！　と尻を叩く。ミーシャ選手の猫尻尾がビックンとはねた。*
 
 &nbsp;
 
-"Gina!"
+"Migya!?"
 
 *「みぎゃ！？」*
 
-"I'm through spats, but this is quite ......!　Nice flesh on the buttocks."
+"Though it's through spats, this is quite...! You've got a nice backside there."
 
 *「スパッツごしだけど、これはなかなか……！　臀部の良い肉付きだねぇ」*
 
-No, don't do that. ......
+"St-stop it...!"
 
 *「や、やめっ……ッ」*
 
-OLAUGH!　Second shot!
+"Here it comes!! Second hit!!"
 
 *「おらァッ！！　二発目ッ！！」*
 
-Nyahhh!"
+"Nyahhh!?"
 
 *「にゃぁあああー！？」*
 
 &nbsp;
 
-Bash!　and slap his buttocks again. Misha's ass, which has only ears and a tail as a cat, is no different from that of the human race, except for the tail. The plump, elastic flesh rippled under my slap.
+Smack!! I hit her rear again. Player Misha, with only her ears and tail being cat-like, has a backside just like a human's. The plump, elastic flesh rippled from my slap.
 
 *ばしーんっ！！　と、再度尻を叩く。耳と尻尾だけ猫なミーシャ選手の尻は、尻尾以外は人族のそれと変わらない。ぷるんと弾力のある肉が私の平手打ちに波打った。*
 
 &nbsp;
 
-Oh, hey!　Stop it!　Stop it!　Hey, ref!　He's kidding, give him a foul like you said!
+"Hey! Stop it! Please stop!? Hey, referee! This person is messing around, declare a foul as promised!!"
 
 *「お、おいッ！　やめるにゃ！　やめてくれにゃ！？　おい審判！　こいつふざけてるにゃ、宣言通り反則とってやれにゃ！！」*
 
-'Ha ha, what are you talking about Misha. This posture has a weak point: if you freeze in this position, I can only attack with my right hand!　And the only area of attack for the right hand is the buttocks!　Yes, this is the inevitable butt slap, and the only way to accumulate damage while this solidification technique is still effective is to slap the buttocks!　That's what I mean, so this is a serious attack, so don't stop me, ref!"
+"Hahaha, what are you saying, Misha? This position has its weaknesses, and while I'm holding you like this, I can only attack with my right hand! And the attack range of my right hand is only your butt! So, this is an inevitable spanking, and I have no choice but to accumulate damage while this hold is effective!! So this is a serious attack, so please don't stop me, referee!?"
 
 *「はっはっは、何を言ってるんだミーシャ。この姿勢は弱点があって、これで固めると私は右手でしか攻撃ができない！　そして右手の攻撃範囲には尻しかない！　そう、これは必然の尻叩きで、この固め技が有効なうちにダメージを蓄積させるために尻を叩くしかないのだッ！！　そういうことなのでこれは真面目な攻撃だから止めないでね審判！？」*
 
 &nbsp;
 
-When I insist on more explanation, the judge hesitates with a grunt.
+As I make my lengthy explanation, the referee hesitates.
 
 *私が説明多めに主張すると、審判はうぐっと逡巡する。*
 
 &nbsp;
 
-"......, continue."
+"...C-continue."
 
 *「……ぞ、続行ッ」*
 
-Here we go!
+"Alright, here we go!"
 
 *「よしきた！」*
 
-Stop!　Stop it!　My parents are here to watch this tournament!
+"St-stop!? Please stop! My parents are watching this tournament, you know!?"
 
 *「や、やめ！？　やめてくれにゃ！　この大会、親も見に来てるんだニャ！？」*
 
-That's even better!
+"That's even more convenient!!"
 
 *「それは尚更好都合ッ！！」*
 
-
+"Bu-nyahhhhhhhhhhh!!!"
 
 *「ぶにゃああああああーーーーーー！！！」*
 
 &nbsp;
 
-Bash!　and slaps his buttocks a third and fourth time.
+Smack!! I spank her for the third and fourth times.
 
 *ばしーん！！　と三度目、四度目と尻を叩いていく。*
 
-I can't believe I'm showing such an abomination at a tournament where even parents like that come to watch!　It's embarrassing, isn't it!
+To expose such a disgraceful act at a tournament where even parents are watching! How embarrassing, right!?
 
 *そんな親御さんまで見に来てる大会で、こんな醜態を晒すなんてねぇ！　恥ずかしいねぇ！？*
 
 &nbsp;
 
-You'll remember this later, nyaaah!"
+"Y-you better remember this later!!"
 
 *「て、てめえっ、後で覚えてろにゃああ！？」*
 
 &nbsp;
 
-Misha, red-faced and teary-eyed, howls.
+Player Misha, her face bright red and teary-eyed, roars.
 
 *ミーシャ選手、顔真っ赤で涙目になりながら吼える。*
 
@@ -214,13 +214,10 @@ Misha, red-faced and teary-eyed, howls.
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(It got a little long, so I'm splitting it up. I'll continue tomorrow!)
+(Since it got a bit long, I'll split it. The continuation will be tomorrow!)
 
 *（ちょっと長くなっちゃったので分割。続きは明日！）*
-

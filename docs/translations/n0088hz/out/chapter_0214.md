@@ -1,182 +1,182 @@
-# Semifinals, VS Misha the Cat Beastmaster
+# Semifinals, VS Cat Beastman Misha
 
 ## 準決勝、ＶＳ猫獣人ミーシャ
 
 &nbsp;
 
-I'm so lucky!　I'm so lucky!　I can't believe that it's not Master Barbaros or General Garou, but such a weak-looking female ningen!
+"Nyah-hah-hah!! I'm so lucky! Instead of Lord Barbaros or General Garou, I get to face such a weak-looking female human!"
 
 *「にゃーっはっはっは！！　私は運がいいにゃ！　バルバロス様やガロウ将軍じゃなくて、こんな弱そうなメスニンゲンだなんてにゃあ！！」*
 
 &nbsp;
 
-I was the one who won easily against those two," said Misha, in front of me.
+In front of me, who had easily defeated those two, Misha said that.
 
 *と、その二人に楽勝で勝った私を前に、ミーシャ選手はそう言った。*
 
-Misha is a rather human-like type of beastman, with a slightly cat-like face but only cat ears and a tail. She is dressed lightly, with a tube top on top and a skirt and spats on the bottom.
+Misha is a type of beastman that is relatively close to humans, with a slightly cat-like face and just cat ears and a tail. She is dressed lightly, wearing a tube top on top and a skirt with spats on the bottom.
 
 *ミーシャ選手は、わりと人間に近いタイプの獣人で、顔が少し猫っぽくありつつ猫耳としっぽが生えているのみ。身軽な格好で、上はチューブトップ、下はスカートでスパッツ。*
 
 &nbsp;
 
-And they were boots and horizontal striped knee socks.
+And she had boots and striped knee-high socks.
 
 *そして、ブーツと横縞ニーソだった。*
 
 &nbsp;
 
-It was striped kneecaps!
+Striped knee-high socks!!!
 
 *縞ニーソだった！！！*
 
 &nbsp;
 
-"Oh my god ...... you're wearing knee socks!　This is ...... a formidable opponent!"
+"What a thing... she's wearing knee-highs!! This is... a formidable opponent!"
 
 *「なんてことだ……ニーソを履いているだと！！　これは……強敵だな！」*
 
-I don't know what's going on, but you should be afraid!　I don't know what's going on, but you should be terrified!"
+"Nyah-hah-hah-hah! I don't really understand, but you should be trembling in fear!"
 
 *「にゃーっはっはっははは！　良く分からないけど恐れおののくがいいにゃ！」*
 
 &nbsp;
 
-They must be strong in their own right because they have survived this far.
+Having made it this far, she must be reasonably strong.
 
 *ここまで勝ち残っただけあってそれなりに強いのだろう。*
 
-But it is still easy for me to win. If I only win.
+But even so, it would be easy for me to win. Just to win.
 
 *が、それでも私が勝つのは簡単だ。勝つだけなら。*
 
 &nbsp;
 
-How do we take the socks away from ...... while inciting shame?　That's the conundrum.
+...How to provoke her shame while snatching her socks...! That is the difficult question.
 
 *……どうやって、羞恥を煽りつつ靴下を奪い取るか……！　それが難問だ。*
 
-This is certainly the most difficult foe of the tournament, as Isiah said, no doubt!
+This is definitely the toughest opponent in this tournament, just as Aisia said!
 
 *これは確かにアイシアの言った通り、この大会一番の難敵で間違いない！*
 
 &nbsp;
 
-Well, from Aisia's point of view, she didn't say anything about socks because "Aruji-sama, you are kind to women ......".
+Well, Aisia didn't mention the socks part, reasoning that "my master is kind to women..."
 
 *まぁアイシア的には「あるじ様、女性にお優しいので……」という理由で、靴下云々は言ってなかったけど。*
 
-The name Misha is a common name for Cat-Beastmen.
+Also, it seems that the name Misha is quite common among cat beastmen.
 
 *尚、ミーシャという名前は猫獣人に良くある名前らしい。*
 
 &nbsp;
 
-Let the games begin!
+"Match start!!"
 
 *「試合開始！！」*
 
-'First move, first move, first move, first move, first move!
+"First strike wins, nyahーーーーーーーーーー！！！"
 
 *「先手必勝にゃぁーーーーーーーーーー！！！」*
 
 &nbsp;
 
-And then, Misha comes running zigzagging at a very high speed to close the distance.
+With that, Misha dashed towards me in a zigzag at an incredible speed.
 
 *と、ミーシャ選手がものすごい速度でジグザグに走りながら距離を詰めてくる。*
 
-Right or left, no, up, but down!　I stopped Misha, who was trying to dive under my crotch, by pinching him between my legs.
+Right or left, no, up, only to feign down!! I stopped Misha, who was trying to slip under my legs, by pinching her with my feet.
 
 *右か左か、いや、上、とみせかけて下だッ！！　私の股下を潜ろうとしてきたミーシャ選手を、私は足で挟んで止めた。*
 
 &nbsp;
 
-Ginyah!"
+"Ginya!?"
 
 *「ぎにゃ！？」*
 
-"Curse you, anomalous Frankensteiner!"
+"Take this, irregular Frankensteiner!!"
 
 *「くらえ、変則フランケンシュタイナー！！」*
 
 &nbsp;
 
-Then I jumped with Misha in between my legs. As if we were doing a trapeze, I did a backflip in mid-air with Misha between my legs. I used the momentum to slam Misha's head into the ground.
+And while still pinching her, I jumped with Misha. Like doing aerial acrobatics, I performed a backflip in mid-air while still holding Misha with my legs. With that momentum, I slammed Misha's head into the ground.
 
 *そして挟んだままミーシャ選手ごとジャンプ。空中ブランコをするかのように、私は空中でミーシャ選手を足に挟んだままバク転。その勢いでミーシャ選手の頭を地面に叩きつけてやった。*
 
 &nbsp;
 
-Pggiiiight!　I'm going to go-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee!"
+"Pugyeh! It, it hurtsーーーーーnyahーーーーー!!!"
 
 *「ぷぎぇっ！　い、いってーーーーーにゃぁーーーーー！！！」*
 
-"Oh, you're as sturdy as you'll get in the semifinals."
+"Oh, as expected of someone who made it to the semifinals, you're tough."
 
 *「お、さすが準決勝までくるだけのことはある、頑丈だね」*
 
-"Ohhh, you're going to keep up with my speed, you're going to do it too. ......!"
+"Ow, you can keep up with my speed, huh...!"
 
 *「あおぅ、お前も私のスピードについてくるとはやるにゃぁ……！」*
 
 &nbsp;
 
-He escaped from me and stood up, but he seemed dizzy and unsteady on his feet.
+She managed to escape and stand up, but she looked unsteady on her feet.
 
 *私から逃れて立ち上がるも、フラフラと足元が覚束ない様子。*
 
-An obvious opportunity. But I dare to look at it.
+An obvious chance. But I deliberately chose to watch.
 
 *明らかなチャンス。だが私は、あえてそれを眺めてみる。*
 
 &nbsp;
 
-"There you go, get yourself back on your feet.　I'll wait for you."
+"Come on, get back on your feet quickly. I'll wait for you."
 
 *「ほぉーら、早く立て直しな？　私は待っててあげるから」*
 
-The skirt is a little too loose, but it's not too loose.　I'm not going to let go of you!　Stop!
+"Hah, that confidence will be your downfall... Wait, why are you lifting my skirt!? Let go! Stop!"
 
 *「ハッ、その余裕が命取り……ッて、なんでスカートめくるにゃ！？　ちょ、離すにゃ！　やめ！」*
 
-"You're wearing spats inside, that's fine, it doesn't diminish anything."
+"You're wearing spats underneath, it's fine, it won't decrease anything."
 
 *「中にスパッツ履いてんじゃん、いいじゃん減るもんじゃなし」*
 
-I'm being looked around so much!　I'm losing my energy!"
+"Everyone is watching me!! My motivation is dropping!!"
 
 *「めっちゃ周りに見られてるにゃ！！　気力が減るにゃぁあ！！」*
 
 &nbsp;
 
-He hit me and I avoided him and kept my distance.
+She tried to punch me, so I dodged and created some distance.
 
 *殴ってきたので避けて距離を取る。*
 
-And just to be sure, I checked, they were knee-socks. It wasn't some body hair masquerading as knee-socks!　You did it, Misha, you're mine!
+And just to confirm, yes, she was indeed wearing knee-highs. It wasn't body hair disguised as knee-highs! Good job, Misha, you're my prey!
 
 *そして念のため確認したが、ちゃんとニーソだったぜ。ニーソに見せかけた体毛とかじゃなかったぜ！　やったねミーシャちゃん、君は私の獲物だよ！*
 
 &nbsp;
 
-I think I'll start by ...... sliding those spats down."
+"First, I think I'll pull down those spats."
 
 *「まずは……そのスパッツずり降ろしてやろうかなぁ」*
 
-What are you up to, oma......?
+"What are you... what are you planning, nyah!?"
 
 *「おま……な、なにを企んでるにゃ！？」*
 
 &nbsp;
 
-Holding her skirt down, that one also distances herself. --What am I up to?
+While holding down her skirt, she also created some distance. --What am I planning?
 
 *スカートを押さえつけながら、あちらも距離を取る。――私がなにを企んでるかって？*
 
 &nbsp;
 
-Of course, it's obvious, to enhance the taste of your socks with shame!
+It's obvious, to heighten the taste of your socks with shame, of course!!
 
 *決まってんじゃん、羞恥でお前の靴下の味を高める事、だよォッ！！*
 
@@ -184,81 +184,81 @@ Of course, it's obvious, to enhance the taste of your socks with shame!
 
 &nbsp;
 
-Carina. Fight seriously."
+"Karina, focus on fighting seriously."
 
 *「カリーナ選手。真面目に戦いなさい」*
 
 &nbsp;
 
-I was warned by the referee.
+I was scolded by the referee.
 
 *って、審判から注意されてしまった。*
 
 &nbsp;
 
-I said, "...... Oh man, if I fought seriously, I'd be killed in an instant, Mr. Referee. So I had no choice but to make it more exciting?　Right?"
+"...Oh come on, if I fought seriously, it would be an instant kill, referee. So I have to do this to keep things exciting, right?"
 
 *「……やだなぁ、私が真面目に戦ったら瞬殺ですよ審判さん。だから盛り上げるために仕方なく？　ね？」*
 
-That would be disrespectful to your opponent. Next time, if you fight seriously, I will call a foul on you.
+"That's disrespectful to your opponent. If you fight unseriously again, I will call a foul."
 
 *「それは相手に失礼だろう。次不真面目に戦うようであれば、反則をとるぞ」*
 
 &nbsp;
 
-Geez, Misha, what a strong opponent to have the judges on your side: ......!
+Grr, you Misha, to have the referee on your side, what a formidable opponent...!!
 
 *ぐぬぬ、おのれミーシャ、審判を味方につけるとはなんという強敵……！！*
 
-Fighting and humiliating while being serious ...... No, no, no, no!　You must be judged unserious at the sock-grabbing stage!
+Fighting seriously while humiliating her... No, that's not good!? I would definitely be judged as fighting unseriously at the stage of snatching her socks!?
 
 *まじめに戦いつつ辱めて……いやだめだっ！？　靴下を奪う段階で不真面目判定されるに違いないぞ！？*
 
 &nbsp;
 
-I said, "...... Damn, you saved my life, Misha. I'll give you a real fight from here."
+"...Tch, you just got lucky, Misha. From here on, I'll fight seriously."
 
 *「……くっ、命拾いしたなミーシャ。ここからは本気で戦ってあげよう」*
 
-"What?　You didn't mean it, did you?
+"Huh? You weren't serious before, nyah?"
 
 *「は？　テメー本気じゃなかったってのかニャ？」*
 
 &nbsp;
 
-As I said, I don't want a sock until I weigh it against losing 820 gold coins, me!
+I don't want to lose 820 gold coins just for the sake of socks!!
 
 *さすがに金貨８２０枚を失うことと天秤にかけてまで靴下が欲しいわけでもないんだよ私は！！*
 
 &nbsp;
 
-God Wants It?"
+"God, I want you!"
 
 *『神様は欲しいですが？』*
 
 &nbsp;
 
-Oh, God!　Please don't suddenly interrupt me!　This money includes Mr. Dia and Mr. Masilo's portion, so it's not just my money!
+God!! Please don't interrupt suddenly! This money includes Diar-kun and Mashiro-san's share, so it's not just my money, it's not okay!!
 
 *神様ぁ！　急に割り込まんといてください！　このお金はディア君とマシロさんの分も含まってて私だけのお金じゃないからダメなんですよッ！！*
 
 &nbsp;
 
-'Oh, well, I'll put 820 gold coins, no, 1000 gold coins on Misha's socks as a bonus!
+"Oh, then I'll add 820 gold coins, no, 1000 gold coins as a bonus for Misha's socks!!"
 
 *『あ、じゃあミーシャちゃんの靴下には金貨８２０枚、いえ、金貨１０００枚をオマケに付けてあげるんで！！』*
 
-I knew things had changed. I can lose here ......!"
+"Things have changed. I can afford to lose here...!"
 
 *「やっぱり事情が変わった。私はここで負けてもいい……！」*
 
-'Hey, what's with this guy? Too emotionally unstable. ...... Is it the day of the month?"
+"What the heck is wrong with this person? She's too emotionally unstable... Is it that time of the month?"
 
 *「な、なんなんにゃコイツ。情緒不安定すぎる……月の日かにゃ？」*
 
 &nbsp;
 
-Misha players who don't hear God's voice won't understand.
+Misha, who can't hear God's voice, wouldn't understand.
 
 *神様の声が聞こえていないミーシャ選手には分からんだろうね。*
 
@@ -268,23 +268,21 @@ Misha players who don't hear God's voice won't understand.
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(Notice below)
+(Announcement below)
 
 *（以下お知らせ）*
 
 &nbsp;
 
-Volume 1 of Ato Goji is entered,
+The first volume of "Ato wa Go Jiyuu ni Douzo!" has been entered into the
 
 *あとごじの１巻がエントリーされてる、*
 
-Voting is now open for the November 2023 edition of the Ranobe News Online Awards!
+Light Novel News Online Award November 2023 survey voting starts!!
 
 *ラノベニュースオンラインアワード2023年11月刊のアンケート投票開始！！*
 
@@ -294,11 +292,11 @@ https://ln-news.com/articles/118386
 
 &nbsp;
 
-The title of the book version is "The rest is up to you! -God beat the last boss in the tutorial, so I'll live as long as I want!
+The book title is "Ato wa Go Jiyuu ni Douzo! ~Since the God Defeated the Final Boss in the Tutorial, I'm Going to Live Freely~"!
 
 *書籍版タイトルは『あとはご自由にどうぞ！～チュートリアルで神様がラスボス倒しちゃったので、私は好き放題生きていく～』です！*
 
-If we can get a good score here, there could be a lot of developments ......!
+If we can achieve good results here, there might be various developments...!
 
 *ここで好成績がとれれば、色々展開が……あるやも！？*
 
@@ -307,4 +305,3 @@ If we can get a good score here, there could be a lot of developments ......!
 Thank you for your support!
 
 *応援よろしくお願いします！*
-

@@ -1,4 +1,4 @@
-# Lost memories (just a drunk) ●Illustrations
+# Lost Memories (Just a Drunk) ●Illustrations Included
 
 ## 失われた記憶（ただの酔っぱらい）　●挿絵アリ
 
@@ -6,37 +6,37 @@
 
 &nbsp;
 
-My name is Karina!　I was drinking with senior adventurers and gathering information!
+I’m Karina! I was pouring drinks for senior adventurers and gathering information!
 
 *私カリーナ！　先輩冒険者相手にお酌して情報収集してたの！*
 
-A generous senior adventurer offered to buy me a drink, even though I was poor, and I enjoyed it.
+The generous senior adventurer treated me to some drinks, so I enjoyed them deliciously.
 
 *気前のいい先輩冒険者は貧乏な私にもお酒を奢ってくれたので美味しくいただいたの。*
 
 &nbsp;
 
-As a result, I'm hungover now and my head is fucking burning.
+As a result, I’m now hungover and my head hurts like hell.
 
 *結果、今二日酔いで頭がクソいてぇんだワ。*
 
 &nbsp;
 
-"......, my balls hurt ......!"
+“...My head hurts...!”
 
 *「……あったま痛ぇ……！」*
 
 &nbsp;
 
-Then I squint at the morning sun coming in.
+And I squint at the morning sun streaming in.
 
 *そして差し込む朝日に目を細める。*
 
-Uh, ...... what happened yesterday after all since then?
+Ah... what happened after that yesterday?
 
 *あー……昨日結局あれからどうなったんだっけ？*
 
-As I recall, after the Adventurer's Guild was knocked out at the end of business hours or something like that, let's see, ......
+If I remember correctly, after being kicked out of the adventurers' guild because it was closing time, um...
 
 *確か、営業時間終了とかで冒険者ギルドを叩き出されてから、えーっと……*
 
@@ -44,35 +44,35 @@ As I recall, after the Adventurer's Guild was knocked out at the end of business
 
 &nbsp;
 
-~~~~~~
+～・～・～
 
 *～・～・～*
 
 &nbsp;
 
-I've had enough to drink!　Hey Karina, I'll show you a place I know!　Come on!
+“Damn it, I’m not done drinking! Hey Karina, I’ll introduce you to a familiar place! Come on!”
 
 *「えぇい、飲み足りねぇ！　おいカリーナ、馴染みの店を紹介してやる！　こい！」*
 
-Hei, Braid senior!　I'll go with you!
+“Yes, Blade-senpai! I’ll accompany you!”
 
 *「へいブレイド先輩！　お供しやす！」*
 
-What? Wait a minute, Blade!　You're not at the Shun Lai Pavilion, are you!　Hey Shildon, let's stop Blade!　He's sleeping!
+“Wait, hold on, Blade! It’s not the Shunrai Inn, is it!? Hey, Shildon, stop Blade! Oh, he’s sleeping!”
 
 *「えっ、ちょっとまってブレイド！　まさかシュンライ亭じゃないよね！？　おいシルドン、ブレイドを止めるぞ！　って寝てるし！」*
 
-"Gugah ...... I'll stop ...... it!"
+“Gugah... I’ll stop him... ugh.”
 
 *「ぐがー……俺が止める……ッ　ふごっ」*
 
-Hey!　At least let me go!　That's no place for a girl to go!"
+“Hey! At least let me go! That’s not a place for girls!”
 
 *「おい！　せめて離せぇ！　女の子の行く店じゃないからあそこは！」*
 
 &nbsp;
 
-~~~~~~
+～・～・～
 
 *～・～・～*
 
@@ -80,37 +80,37 @@ Hey!　At least let me go!　That's no place for a girl to go!"
 
 &nbsp;
 
-Hmmm, so I left Sekko and Shildon and went to a place called Shun Lai Tei and indulged in a drink with a ...... beautiful lady and ...... uh.... ...
+Hmm, so I left Sekko and Shildon behind and went to the Shunrai Inn... got drunk with a beautiful lady... and, um...
 
 *うーん、そうしてセッコーとシルドンを置いてシュンライ亭ってところに行って……綺麗なお姉さんと飲みふけって……えーっと……*
 
 &nbsp;
 
-I don't know why I'm naked!　I'm wearing underwear and one sheet to be exact!
+Wait, why am I naked!? Well, technically I’m wearing just my underwear and a sheet!
 
 *って、なんでか私裸だ！？　正確には下着とシーツ一枚羽織ってるけど！*
 
-And next to him is Braid-senpai, who is also wearing only a pair of pants!
+And next to me is Blade-senpai, also just in his underwear!
 
 *そして隣には同じくパンツ一丁のブレイド先輩！*
 
 &nbsp;
 
-What, that!　Nande!
+Huh, what!? Why!?
 
 *えっ、あれ！？　ナンデ！？*
 
-Don't tell me you've had it on the first day of a girl's life!　Eeeeeeeeee!　And my head is also itching!　woop......
+Could it be that on my first day as a girl, I actually did it!? Waaaaah!? And my head hurts so much! Ugh...
 
 *ま、まさか女の子人生１日目にして、致してしまったのか！？　うぇええええ！？　って頭もいてぇええええーーー！　うぉえっぷ……*
 
 &nbsp;
 
-Oh, I see you're awake.
+“Oh, looks like you’re awake.”
 
 *「おや、起きたようだねぇ」*
 
-"Ogu ...... hmm?"
+“Ugh... huh?”
 
 *「おぐぅ……ん？」*
 
@@ -120,87 +120,87 @@ Oh, I see you're awake.
 
 &nbsp;
 
-When I looked in the direction of the voice, I saw an older woman with blonde hair tied up and puffing on a kiseru. She was wearing a chic black dress that showed off her curves perfectly. She had the air of a woman who knows what she's doing, and she looked so cool. She was too good to be true!
+When I looked towards the voice, there was a lady with her blonde hair tied up, puffing on a kiseru. She wore a chic black dress that perfectly outlined her body. She exuded an aura of a capable woman, and she was cool. This was an incredibly lovely lady!
 
 *声のした方を見ると、金髪を結い上げて、キセルをぷかぷかふかしているお姉さまが居た。体のラインがバッチリ出るシックな黒ドレス。デキる女という空気をまとっていてカッコいい。これはもう素敵すぎるお姉さまである！*
 
-And noteworthy are its ears and tail. It's a fox!　A beastie!　Wow, I've never seen it before!　It's so otherworldly!
+And what’s noteworthy are her ears and tail. A fox! A beast person! Wow, I’ve never seen one before! This feels so much like another world!
 
 *そして注目すべきはその耳としっぽ。狐だ！　獣人！　うわぁ初めて見た！　異世界っぽいぃいい！*
 
 &nbsp;
 
-Oh, man, I'm getting excited. I ask, once I've mended the surface to appear calm.
+Oh no, I’m getting excited. I tried to calm myself down on the surface and asked.
 
 *やべ、興奮してきた。私は一旦、表面上は落ち着いたように取り繕って尋ねる。*
 
 &nbsp;
 
-"...... um, you are ......"
+“Um, who are you...?”
 
 *「……えーっと、あなたは……」*
 
-Owner of Shunrai Pavilion. Harumikazuchi. From the looks of it, he doesn't even remember yesterday's spree. ......"
+“I’m the owner of the Shunrai Inn. Harumikazuchi. From the looks of it, you don’t remember last night’s ruckus at all...”
 
 *「シュンライ亭のオーナー。ハルミカヅチさ。その様子だと昨日のどんちゃん騒ぎも覚えてないみたいだねぇ……」*
 
 &nbsp;
 
-Harumikazuchi exhales smoke in disgust.
+Hoo, Harumikazuchi exhaled smoke with an exasperated look.
 
 *ふーッ、と呆れたように煙を吐くハルミカヅチ。*
 
-Oh my gosh, you are so beautiful and pretty with such movement. I'm going to fall in love with her. She would definitely look good in a china dress or something.
+Oh dear, even that action is beautiful. I might fall in love. She would definitely look good in a cheongsam.
 
 *あらやだ、そんな動作も綺麗で美人だわ。惚れそう。チャイナドレスとか絶対似合う。*
 
 &nbsp;
 
-I mean, um, did I do something ...... by any chance?"
+“Um, did I, by any chance, do something...?”
 
 *「って、あの、ひょっとして私、なにかしちゃいました……？」*
 
-I'll tell you what, I'll just rip his stuffed shirt off and charge him for it. I'd like to see you and Braid get your stuffed animals and charge them for it."
+“Oh, you certainly did. I had to strip you and Blade over there and charge you for it.”
 
 *「そりゃもう。そこのブレイドと纏めてみぐるみ引っぺがして請求するくらいにはね」*
 
 &nbsp;
 
-Oh, you were naked because you were stripped down.
+Ah, so the reason I was naked was that I was stripped.
 
 *あ、裸だったのって身ぐるみ引っぺがされたからなのか。*
 
-If it's ......, is it still lethal?　Safe?　Harumikazuchi says, "Oh my goodness," as I look at Blade with a scornful look on my face.
+...Then I haven’t done anything yet? Safe? As I looked at Blade with a puzzled expression, Harumikazuchi said, “Oh dear.”
 
 *……ならまだ致してない？　セーフ？　私がいぶかしげな顔でブレイドを見てると、ハルミカヅチがやれやれと言う。*
 
 &nbsp;
 
-Don't worry. Blade didn't touch you. I don't know if he did while you were sleeping."
+“Don’t worry. Blade didn’t touch you. I don’t know what happened while you were asleep, though.”
 
 *「安心しな。ブレイドはお前さんに触ってないよ。寝てる間は知らないけど」*
 
-Oh, really?　Good!"
+“Oh, is that so? That’s a relief.”
 
 *「あ、そうなんですか？　よかったー」*
 
 &nbsp;
 
-I had my underwear on, so I guess that area is safe. Yoshi!
+Since I was still wearing my underwear, that part should be fine. Good!
 
 *下着は付けていたのでその辺は無事だろう。ヨシ！*
 
 &nbsp;
 
-'Yes, that's right. Yesterday's should have been Blade-senpai's treat, so please just return my clothes!"
+“By the way, yesterday’s drinks were on Blade-senpai, so please return at least my clothes!”
 
 *「そうだ。昨日のはブレイド先輩の奢りのはずなので、私の服だけでも返してください！」*
 
-Your clothes cost another. Here, I'm holding your socks.
+“Your clothes are charged separately. Look, you’re holding my sock.”
 
 *「アンタの服は別の代金になってるよ。ほら、アンタの握ってるアタシの靴下」*
 
-Eh. Uh, ......."
+“Huh? Oh...”
 
 *「えっ。あー……」*
 
@@ -210,143 +210,143 @@ I just realized that I was clutching a black sock in my right hand.
 
 *今気が付いたけど、私は右手に黒い靴下を握りしめていた。*
 
-Apparently, I had drunkenly asked this fox lady for a sock.
+It seems I drunkenly asked this fox lady for a sock.
 
 *どうやら私、酔った勢いでこの狐人のお姉さまに靴下くださいとお願いした模様。*
 
-I'll make it into an offering to the gods, in exchange for clothes because I don't have any money, or something.
+I must have said something about offering it as a sacrifice to the gods, or exchanging it for clothes since I had no money.
 
 *神様に捧げる供物にする、お金がないから服と交換で、とかなんとかで。*
 
-(By the way, the universal ID is in the storage space, so it's safe.)
+(By the way, my universal ID is safely stored in my inventory.)
 
 *（ちなみに万能身分証は収納空間の中なので無事だ）*
 
 &nbsp;
 
-I got some old clothes in change because the tailoring was so good. I'll give you back your temporary guild card, which is worthless. I'll also return your temporary guild certificate, which is worth nothing.
+“It was surprisingly well-made, so I prepared some second-hand clothes as change. It’s a service. Also, I’ll return your temporary guild certificate; it’s worthless anyway.”
 
 *「案外いい仕立てだったから、お釣りで古着も用意しておいたよ。サービスさね。あと仮ギルド証も返しとくよ、何の価値もないし」*
 
-......
+“...Thanks.”
 
 *「……どもっす」*
 
 &nbsp;
 
-I wore old clothes ...... and they are a bit stiff. I mean, it kind of rubs a lot.
+I put on the second-hand clothes... hmm, they feel a bit stiff. And they’re rubbing against me a lot.
 
 *私は古着を着た……むむ、ちょっとゴワゴワとする。というかなんかめっちゃ擦れる。*
 
-Ugh, and I feel some kind of foreign body in my waist, or rather, in my bellybutton. ...... Oh, wasn't chastity supposed to be safe?
+Ugh, and there’s something strange around my waist, no, between my legs... Huh, I thought my chastity was safe?
 
 *うぐ、そしてなんか腰に、いやおまたに異物感。……あれー、貞操は無事だったはずでは？*
 
 &nbsp;
 
-"Oh, are you all right?　I'm sorry, I didn't know it was your first one and I ate it."
+“Oh, are you okay? Sorry, I didn’t know it was your first time.”
 
 *「ああ、大丈夫かい？　悪いね、初物だと知らずに食っちまって」*
 
-Eh."
+“Huh?”
 
 *「えっ」*
 
 &nbsp;
 
-Mr. Harumikazuchi smiles with a giggle.
+Harumikazuchi chuckled softly.
 
 *クスクスと笑うハルミカヅチさん。*
 
-Uh, hmm. You mean?
+Ah, umm. So?
 
 *あー、うーん。つまり？*
 
 &nbsp;
 
-Does that mean my first time is with Mr. Harumikazuchi!"
+“Are you saying my first time was with you, Harumikazuchi-san?!”
 
 *「私の初めてはハルミカヅチさんってことですか！？」*
 
-I said, "Yes, I'm sorry about that. I'm a little sorry about that part--"
+“Yeah, I feel a bit bad about that—”
 
 *「そうだね。そこはちょっと悪かったと――」*
 
-Yay!!! ！！！！"
+“I did it—!!!”
 
 *「やったーーーーー！！！！」*
 
 &nbsp;
 
-Goodbye unicorn!　Leave the virgin kitchen!
+Goodbye unicorn! Virgin hunters, be gone!
 
 *さよならユニコーン！　処女厨は去れ！*
 
-Hello Bicorn!　I look forward to working with you for many years to come!
+Hello, bicorn! I look forward to a long relationship from now on!!
 
 *こんにちはバイコーン！　今後末永く宜しく！！*
 
 &nbsp;
 
-Such a beautiful woman and a hajimete graduate....how great!
+To graduate with such a beautiful lady as my first is the best!!
 
 *こんな美人さんでハジメテ卒業とか最高かよぉ！！*
 
-The best of another worldoooooooooooooooooooooooooooooooooooooooooooooooooooooooo ！！！！！　Thank you Godoooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo ！！！！！
+Another world is the best—!!! Thank you, gods—!!!
 
 *異世界最高ーーーー！！！！！　神様ありがとーーーーーーー！！！！！*
 
 &nbsp;
 
-'Oh, but I was so drunk I don't remember any of it!　Oh noooooo!!!!"
+“Oh, but I don’t remember anything because I was drunk! Noooo—!!!”
 
 *「あ、でも酔っぱらってたせいで全く覚えてない！　やだーーーー！！！」*
 
-......, what was that thing you did yesterday?"
+“...Was that really your true self yesterday?”
 
 *「……なんだい昨日のアレは素だったのかい？」*
 
 &nbsp;
 
-Apparently, this tension had done it again last night.
+It seems I also caused a ruckus with this energy last night.
 
 *どうやら昨晩もこのテンションでやらかしていたらしい。*
 
 &nbsp;
 
-Oh, um, by the way, how do you feel about ......?"
+“Um, by the way, what exactly happened...?”
 
 *「あ、あの、ちなみにどういう感じに……？」*
 
-Hmm?"　Oh, yeah. My store is a bar on the first floor, and we have a stage there. ...... (giggles) ...... more ......"
+“Hm? Oh, well, our place has a bar on the first floor, and there’s a stage there... (mumbles)... and then...”
 
 *「ん？　あー、そうだねぇ。ウチの店は１階が飲み屋になってて、そこに舞台もあるんだが……（ゴニョゴニョ）……さらに……」*
 
-"Nah ...... that's such an embarrassing thing to do!"
+“Wha... you did something so embarrassing!?”
 
 *「なっ……そ、そんな恥ずかしい事を！？」*
 
-I'm ashamed to admit that I've done some terrible things when I think back on them. ......
+“Thinking back, I also did something outrageous... ah, how embarrassing.”
 
 *「思い出すとアタシもとんでもないことしたねぇ……ああ、恥ずかし」*
 
 &nbsp;
 
-I'm a terrible person, I was yesterday!　Drinking is scary!
+What a disaster I was yesterday! Alcohol is scary!!
 
 *とんでもねぇな昨日の私！　お酒って怖い！！*
 
-But thanks to such a beautiful sister and ...... so, memory, revive my memory!
+But thanks to that, I got to be with such a beautiful lady... damn it, memories, come back to me!
 
 *でもおかげでこんな綺麗なお姉さまと……くそう、記憶、蘇れ私の記憶！*
 
 &nbsp;
 
-Nuh, nuh, nuh, I can't remember at all. ...... What a waste.
+Ugh, ugh, I can’t remember anything... what a waste.
 
 *ぬ、ぬ、ぬぐぅぅ、全く思い出せない……なんと勿体ない。*
 
-...... I guess I'll have to moderate my drinking.
+...I need to drink in moderation.
 
 *……お酒は程々にしないとだな。*
 
@@ -354,51 +354,50 @@ Nuh, nuh, nuh, I can't remember at all. ...... What a waste.
 
 &nbsp;
 
-The first thing that comes to mind is that I'm not saying I want to return them. Oh, by the way, my clothes were given to me by a very important person. ...... I'm not asking you to give them back, but may I say goodbye for the last time?"
+“Oh, by the way, my clothes were a gift from someone important to me... I won’t ask you to return them, but can I say goodbye to them one last time?”
 
 *「あっ。そういえば私の服、大事な人から貰った服なんですよ……返せとは言わないんで、ちょっと最後にお別れ言っても良いですかね」*
 
-Hmm?　I wouldn't mind that much."
+“Hm? That’s fine.”
 
 *「ん？　それくらいなら構わないよ」*
 
 &nbsp;
 
-When I say this, Harumikazuchi brings me clothes. Clothes that I could say were a part of me, so to speak, that God made together with this body.
+Saying that, Harumikazuchi brought my clothes to me. It could be said that this was a part of me, created by the gods along with this body.
 
 *そう言うと、ハルミカヅチが服を持ってきてくれる。神様がこの身体と併せて作ったいわば私の一部だったと言ってもいい服。*
 
-I hold on tight. I embrace.
+I hugged them tightly. I embraced them.
 
 *私は、ぎゅうっと抱え込む。抱きしめる。*
 
 &nbsp;
 
-Thank you for all you've done for me. ...... I will never forget you!"
+“Thank you for everything... I won’t forget you!”
 
 *「いままでありがとう……君の事は忘れないよ！」*
 
 &nbsp;
 
-When you hide it with your body, yes, it is a duplicate. A copy is born in the storage space.
+Even if I hid it with my body, yes, a copy was born in my storage space.
 
 *身体で隠したところで、はい複製。収納空間内にコピー爆誕。*
 
-Then, the original and the duplicate were replaced, just in case.
+Then I swapped the original with the copy.
 
 *そんで一応オリジナルと複製を入れ替え。*
 
 &nbsp;
 
-Well, it's a good tailored dress. It can't be helped. I don't feel good to wear stiff clothes.
+Wow, it’s such well-made clothing. I can’t help it. Wearing stiff clothes feels uncomfortable.
 
 *いやー、良い仕立の服だもんな。仕方ないな。ゴワゴワした服を着るのは気分が悪いもんなー。*
 
-I'll change my clothes later.
+I’ll change back later.
 
 *後で着替え直しとこっと。*
 
 &nbsp;
 
 &nbsp;
-

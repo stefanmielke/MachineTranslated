@@ -1,4 +1,4 @@
-# Ruthless Agents (Bebay Perspective)
+# Cold-Blooded Agent (Bibei's Perspective)
 
 ## 冷酷なエージェント（ビーベイ視点）
 
@@ -8,45 +8,45 @@
 
 &nbsp;
 
-My name is Beebey. I am the leader of the "Shining Sword" and a mercenary from the Holy Land hired by the Ghidoraga Empire.
+I am Bibei. The leader of the "Shining Sword" and a mercenary from the Holy Kingdom employed by the Gidrag Empire.
 
 *僕はビーベイ。『輝く剣』のリーダーにして、ギドラーガ帝国に雇われた聖国出身の傭兵だ。*
 
-However, I am the only mercenary. The "Shining Sword" itself was made up of agents of the Empire, except for me. They were strong, yet loyal to me, their leader.
+However, I am the only mercenary. The "Shining Sword" consists entirely of agents from the Empire besides me. They are quite strong and, at the same time, loyal to me as their leader.
 
 *ただし傭兵なのは僕だけ。『輝く剣』自体、僕以外は帝国のエージェント達だ。彼らは中々に強く、それでいてリーダーの僕に忠実だった。*
 
-It felt good to have them in my life, as if I were a ruthless agent myself. Once a day I would get a massage, which was also very pleasant.
+Being in charge of them made me feel as if I had become a cold-blooded agent myself, which was quite pleasant. I receive a massage once a day, and that also felt very good.
 
 *彼らを従えていると、まるで僕も冷酷なエージェントになったかのようで気分が良かった。日に一度マッサージをしてもらうのだが、これも大変気持ちが良かった。*
 
-The only thing I was a little unhappy about was the lack of ...... women.
+…The only slight dissatisfaction was the lack of women.
 
 *……女がいないのだけは少し不満だったが。*
 
 &nbsp;
 
-Now, the request to me was to destroy the dungeon.
+Now, the task assigned to me is the destruction of a dungeon.
 
 *さて、そんな僕への依頼内容は、ダンジョンの破壊。*
 
 &nbsp;
 
-This is what it takes to save the world, apparently.
+This apparently is necessary to save the world.
 
 *これは世界を救うための必要なことらしい。*
 
-Dungeons are evil entities that suck up the world's energy and lead it to destruction.
+Dungeons are evil entities that absorb the world's energy and lead it to ruin.
 
 *ダンジョンは世界のエネルギーを吸い上げ、滅びに導く悪しき存在。*
 
-The destruction of dungeons is essential to protect the world - so they say.
+To protect the world, destroying the dungeon is essential――so they say.
 
 *世界を守るために、ダンジョンの破壊は必要不可欠――だそうだ。*
 
 &nbsp;
 
-When he successfully completes his work, he is promised the title of "hero" in the empire and the luxurious life that goes with it.
+Upon successfully completing this job, I am promised the title of "Hero" within the Empire and a luxurious lifestyle to match.
 
 *見事仕事をやり遂げた暁には帝国における『勇者』の称号と、それに見合う贅沢な生活を約束されている。*
 
@@ -54,15 +54,15 @@ When he successfully completes his work, he is promised the title of "hero" in t
 
 &nbsp;
 
-I infiltrated the kingdom of Pavelkant for this job and gained a position within the Adventurers' Guild.
+I infiltrated the Pavelkant Kingdom for this job and gained a position within the Adventurers' Guild.
 
 *僕はこの仕事のためにパヴェルカント王国に潜入し、冒険者ギルド内での地位を得た。*
 
-All to destroy the dungeon.
+Everything is for the purpose of destroying the dungeon.
 
 *すべてはダンジョンを破壊するためだ。*
 
-That's why I treated the beastly bastards so amiably. It was really hard work.
+For that reason, I even treated the beastmen kindly. It was truly a struggle.
 
 *そのために獣人の畜生共にも愛想よく接してやったのだ。本当に苦労した。*
 
@@ -70,53 +70,53 @@ That's why I treated the beastly bastards so amiably. It was really hard work.
 
 &nbsp;
 
-In this way, I finally succeeded in getting everyone to the depths of the dungeon the other day.
+After much effort, I finally succeeded in bringing everyone to the depths of the dungeon the other day.
 
 *そうこうして、先日ようやく皆をダンジョンの奥底へ連れて行くことに成功した。*
 
-Nevertheless, the core of the dungeon was protected by wards.
+That said, the core of the dungeon was protected by a barrier.
 
 *とはいえダンジョンのコアは結界に守られていた。*
 
 &nbsp;
 
-Now Cargo. What do we do from here?"
+"Well then, Cargo. What should we do from here?"
 
 *「さてカーゴ。ここからどうすればいいんだ？」*
 
-Oh. Beebey just watch. Migo, Chino."
+"Ah. Bibei just needs to watch. Migo, Chino."
 
 *「ああ。ビーベイは見てるだけでいい。ミゴ、チノ」*
 
 &nbsp;
 
-The twin men, Migo and Chino, together took out their magical tools.
+The twin brothers, Migo and Chino, took out magical tools together.
 
 *双子の男、ミゴとチノが揃って魔道具を取り出した。*
 
-As I worked my way through the rummaging at the wards, the wards faded and disappeared.
+They fiddled with the barrier, and it became thin before disappearing.
 
 *結界のところでゴソゴソと作業すると、結界が薄くなり、消えた。*
 
-It seems to be a magical tool that temporarily disables warding.
+It seems to be a magical tool that temporarily disables barriers.
 
 *一時的に結界を無効にする魔道具らしい。*
 
 &nbsp;
 
-Then Joe would set off the time bomb and that would be the end of it."
+"After that, Joe will set the timed bomb, and that will be it."
 
 *「あとはジョーが時限爆弾を仕掛けて終わりだ」*
 
-I'm not so sure. Now I'm a brave man too. Why don't you just go to ...... and detonate it right away?"
+"Hah, this is easy. With this, I’m a hero too. …But why aren’t we blowing it up right away?"
 
 *「はぁ、楽なもんだな。これで僕も勇者か。……でもなんですぐ爆発させないんだ？」*
 
-The dungeon is a living thing, and sometimes it's in bad shape. "Dungeons are living things," he said. Besides, if we were to destroy it now, we would be buried alive.
+"The dungeon is a living thing; there are times when it’s not in good condition. It can’t be destroyed unless it’s the right time. Besides, if we blow it up now, we’ll be buried alive."
 
 *「ダンジョンは生き物でな、調子の悪い時があるんだ。その時でないと壊せないんだ。それに、仮に今壊したとしたら俺たちは生き埋めになるぞ」*
 
-I see. Well, I guess I'll just have to do it then."
+"I-I see. Then I guess we have no choice."
 
 *「そ、そうなのか。それじゃあ仕方ないな」*
 
@@ -124,13 +124,13 @@ I see. Well, I guess I'll just have to do it then."
 
 &nbsp;
 
--- and, well, that's how we were supposed to finish our mission, make sure the dungeon was destroyed, and then head back to the empire.
+――So, with that, we were supposed to finish our mission and head back to the Empire after confirming the dungeon was destroyed.
 
 *――と、まぁそんなこんなで僕たちは任務を終え、ダンジョンが破壊されるのを確認してから帝国へと向かうことになっていた。*
 
 &nbsp;
 
-And yet.
+Yet, that’s when it happened.
 
 *それなのに、だ。*
 
@@ -138,57 +138,57 @@ And yet.
 
 &nbsp;
 
-Everyone!　Listen up!　A bomb has been planted in the dungeon!"
+"Everyone! Listen! A bomb has been planted in the dungeon!"
 
 *「皆！　聞いてくれ！　ダンジョンに爆弾が仕掛けられていた！」*
 
-What, a bomb?
+"What? A bomb!?"
 
 *「何、爆弾が！？」*
 
 &nbsp;
 
-At the Adventurers' Guild, the guildmaster said something like that.
+In the Adventurers' Guild, the Guild Master said such a thing.
 
 *冒険者ギルドで、ギルドマスターがそんな事を言い出したのだ。*
 
 &nbsp;
 
-Hey, hey, then we need to get the hell out of here!"
+"Hey, hey, we need to escape quickly then!"
 
 *「おいおい、それなら早く逃げないと！」*
 
-Don't worry, the bomb's already been disarmed. You guys!　We'll find the culprits!　It's the Imperials who are suspicious!"
+"Don’t worry, the bomb has been disarmed. You all! We’re going to find the culprit! It’s suspiciously those from the Empire!"
 
 *「案ずるな、爆弾は解除済みだ。お前ら！　犯人を捜すぞ！　怪しいのは帝国の奴らだ！」*
 
 &nbsp;
 
-So, the first thing I did was to be interrogated by the masked men who were there.
+Thus, we were first subjected to an interrogation from those present.
 
 *そんなわけで、まずはそこにいた面子から取り調べを受けることになった。*
 
-We, the "Shining Sword," too. There is no doubt that adventurers with a record of being doorkeepers are the culprits, and there are only so many of them.
+We, the "Shining Sword," were included. There was no doubt that the adventurer with the door guard's record was the culprit, and the number of suspects was limited.
 
 *僕達『輝く剣』もだ。扉番の記録のある冒険者が犯人であることは間違いなく、その数は限られているのだ。*
 
 &nbsp;
 
-I thought the guys from The Shining Sword were from the Empire?"
+"Were the members of the 'Shining Sword' from the Empire?"
 
 *「『輝く剣』の連中は帝国出身だったっけか？」*
 
-No. (I'm) from the Holy Land. （I'm from the Holy Land."
+"No. (I am) from the Holy Kingdom."
 
 *「いや。（僕は）聖国出身だよ」*
 
-Oh, yes, I did."
+"Oh, right."
 
 *「おお、そうだったな」*
 
 &nbsp;
 
-I, the leader of the guild, responded. This made the interrogation much easier, and the others, who were better spoken, easily slipped through the guildmaster's interrogation.
+So I, the leader, answered that way. This made the interrogation significantly easier, and the smooth-talking others easily slipped past the Guild Master's questioning.
 
 *と、リーダーの僕がそう答える。これだけで随分取り調べは簡単になり、口の上手い他の連中はあっさりとギルドマスターの取り調べをすり抜けた。*
 
@@ -198,33 +198,33 @@ I, the leader of the guild, responded. This made the interrogation much easier, 
 
 &nbsp;
 
-But it seems true that the bomb we planted has been disarmed.
+However, it seems that the bomb we set was indeed disarmed.
 
 *だが、僕たちの仕掛けた爆弾が解除されたのは本当らしい。*
 
-This would make it impossible to destroy the dungeon.
+This means we cannot destroy the dungeon.
 
 *これではダンジョンが破壊できないではないか。*
 
 &nbsp;
 
-"Hey, what do we do?　We can't destroy the dungeon with this."
+"Hey, what do we do? We can’t destroy the dungeon like this."
 
 *「おい、どうする？　これじゃダンジョンを破壊できないぞ」*
 
-......No choice, let's go set it up again."
+"…We have no choice; let’s set it up again."
 
 *「……仕方ない、もう一度仕掛けに行こう」*
 
-We don't have much time before the next new moon, but do you want to wait another month?"
+"We don’t have much time until the next new moon; should we wait another month?"
 
 *「次の新月まで時間がないが、もう１ヶ月待つか？」*
 
-No." A lot will be taken care of next new month. On the contrary, this time it will be quicker."
+"No. They will take various countermeasures by next month’s new moon. It would actually be quicker this time."
 
 *「いや。来月の新月には色々と対策されるだろう。逆に今回の方が早い」*
 
-The people here must not know that the dungeon weakens at the new moon," he said. If so, it would be natural to dive just before the new moon.
+"These folks here probably don’t know that the dungeon weakens during the new moon. If that’s the case, it would be natural to dive in just before the new moon."
 
 *「ここの連中は新月にダンジョンが弱まるとは知らないはずだ。であれば、新月直前に潜れば自然だろう」*
 
@@ -232,7 +232,7 @@ The people here must not know that the dungeon weakens at the new moon," he said
 
 &nbsp;
 
-Thus, we decided to dive into a monster-filled dungeon just before the new moon.
+Thus, we decided to dive into the monster-infested dungeon just before the new moon.
 
 *かくして僕たちは新月直前のモンスター溢れるダンジョンへと潜ることにした。*
 
@@ -240,7 +240,7 @@ Thus, we decided to dive into a monster-filled dungeon just before the new moon.
 
 &nbsp;
 
-As a result, we had that nightmarish experience.
+As a result, we ended up having that nightmarish experience.
 
 *その結果、僕達はあの悪夢のような体験をすることになったのだ。*
 
@@ -250,19 +250,16 @@ As a result, we had that nightmarish experience.
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
 &nbsp;
 
-(Next time, a nightmare () experience.
+(Next time, a tale of a nightmare experience.
 
 *（次回、悪夢（）の体験談。*
 
-(To be honest, this time I was just stalling for time because I ran out of stock.)
+To be honest, I apologize for this being a time filler due to running out of stock!)
 
 *尚、正直に言うと今回はストック切れによる時間稼ぎですすみません！）*
-

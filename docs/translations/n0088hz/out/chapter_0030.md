@@ -1,4 +1,4 @@
-# Let's go to the port town of Velarde!
+# Let's Go to the Port Town of Verald!
 
 ## 港町ヴェーラルドへ行こう！
 
@@ -6,59 +6,59 @@
 
 &nbsp;
 
-The road to getting a beautiful slave girl was far, far away and steep. ......
+The road to getting a beautiful girl slave was far and rugged...
 
 *美少女奴隷ちゃんゲットへの道のりは遥か遠く険しいものだった……*
 
-I can't believe that the lumberjacks are enclosed to make money. ...... If this happens, I'll just have to take another request.
+Even making money is tough when lumberjacks are banned... In that case, I have no choice but to take on another request.
 
 *お金稼ぎするにも、木こりが封じられるだなんて……こうなったら別の依頼を受けるしかあるまい。*
 
-Hmmm, do we have a request to take down?　Kobolds and wolves and slimes ...... abusive fire horses?　The horse is on fire? Is there anything like that?
+Hmm, I wonder if there are any monster subjugation requests? Kobolds, wolves, slimes... rampaging fire horses? Is the horse on fire? Is that a thing?
 
 *うーん、討伐依頼とかあるかな？　コボルトにウルフにスライム……あばれ火馬？　燃えてるのか馬が。そういうのもあるんだ？*
 
 &nbsp;
 
-I thought Miss Karina had asked Miss Harumikazuchi to do some shopping for you."
+"By the way, Karina, weren't you asked by Sister Harumikazuchi to do some shopping?"
 
 *「そういやカリーナちゃん、ハルミカヅチ姐さんに買い物頼まれてるんじゃなかった？」*
 
-Oh. That reminds me."
+"Oh. Now that you mention it, that's right."
 
 *「あ。そういえばそうでした」*
 
 &nbsp;
 
-Oh, man, I almost forgot. I almost forgot what I did!
+Oh no, I almost forgot. How could I let that slip!
 
 *やっべ、うっかり忘れかけてた。私としたことが！*
 
-If that is the case, I would like to accept a delivery request to the port town of Velarde, where I can purchase the lotion that Sati-tan taught me, including peddling.
+In that case, I want to take on a delivery request to the port town of Verald, where I can stock up on the lotion that Sati-chan told me about, including for my merchant activities.
 
 *となると、行商も含めてサティたんに教えてもらったローションを仕入れられる町――港町ヴェーラルド方面の配達依頼でも受けたい所存。*
 
 &nbsp;
 
-I mean, how can you carry a backpack that big, with all that camping gear in it, and still have room to carry anything on top of it?　I'm not worried about the weight.
+"Wait, with that huge backpack on your back, and camping gear packed in, do you really have room to carry anything else? I'm not worried about the weight, though."
 
 *「って、あんだけデカいリュック背負って、野営道具も入れて、その上で何か運ぶ余裕あるのか？　重さ的には心配してないんだけど」*
 
-'Oh, um, ...... yeah, can't we buy one of those carts you used in the lumberjacks?'
+"Ah, um... I wonder if I could buy a cart used by lumberjacks?"
 
 *「あっ、えーっと……そうだ、木こりで使った荷車って１台買えないですかね」*
 
-Give me a large copper coin and I'll negotiate with you. Maybe a medium silver coin, but not a large silver coin.
+"If you give me a large copper coin, I might negotiate for you. It should be around a medium silver coin, and it shouldn't be more than a large silver coin."
 
 *「大銅貨１枚くれたら交渉してやっても良いぞ。多分中銀貨１枚くらい、高くても大銀貨はしないはずだ」*
 
 &nbsp;
 
-Thanks. I'll ask for it now that I'm a lumberjack and my pocketbook is warm.
+That's great. I should order it while I have some money from lumberjacking.
 
 *ありがたい。木こりで懐が温かい今のうちに頼んでおこう。*
 
-It's not really necessary because of the storage magic, but it's hard to answer the question, "Then how did you transport all this stuff?" I would have no trouble with having a cart. I would have no trouble with a cart.
+I don't really need a cart since I have storage magic, but if someone asks, "Then how did you carry this?" it would be hard to answer. Having a cart shouldn't be a problem for me.
 
 *収納魔法があるので本当は必要ないが、「ならこの荷物はどうやって運んだんだ？」と突っ込まれたら答え難い。私に荷車があって困ることはないだろう。*
 
@@ -68,169 +68,169 @@ It's not really necessary because of the storage magic, but it's hard to answer 
 
 &nbsp;
 
-So, I paid one medium silver coin and Braid senior's reward was also one large copper coin to purchase one cart. Thanks to his negotiation, we also received a free rope and a cloth to protect us from the rain, so we were very happy.
+So, I paid one medium silver coin and one large copper coin for a cart, thanks to Blade-senpai's negotiation skills, I also got some rope and a rain cover as a bonus, so I'm quite pleased.
 
 *そんなわけで、中銀貨１枚、ブレイド先輩の報酬も大銅貨１枚支払って荷車を１台購入。先輩の交渉のおかげでロープと雨除けの布もオマケしてもらえたのでホクホクだ。*
 
-With this, you can say "I used this to transport most things".
+With this, I can say, "I used this to carry most things."
 
 *これがあれば大抵のものは「これを使って運びました」と言えるだろう。*
 
 &nbsp;
 
-I mean, this cloth alone would normally cost about 2 silver coins, right?　Are you sure?
+By the way, this cloth alone seems like it would normally cost about two silver coins, right? Is that okay?
 
 *ってか、この布だけでも普通に銀貨２枚くらいしそうなんだけど？　いいの？*
 
 &nbsp;
 
-I told him that she was a young lady who was going to be a great merchant in the future and that he should sell his debt to her while he still could. Of course he knew about the woodcutter's story, and he usually agreed with me.
+"Since you're going to be a great merchant in the future, I told him it would be good to build some goodwill now. He already knew about the lumberjack story, so he accepted it without issue."
 
 *「将来大商人になるお嬢様だから、今のうちに恩売っておくといいぞって言ってやったんだよ。あいつも当然木こりの話は知ってたし、普通に納得してくれたわ」*
 
 &nbsp;
 
-Quite a senior, good negotiator.
+As expected of senpai, a master negotiator.
 
 *流石先輩、交渉上手。*
 
-I have to earn a lot of money to keep my seniors from being liars!
+I have to earn a lot to avoid making senpai a liar!
 
 *先輩を嘘つきにしない為にも、いっぱい稼がなきゃね！*
 
 &nbsp;
 
-Oh, you're going to stay in the field on the way, aren't you? We'll be camping out along the way, won't we?　Better get some scavenger slime ready."
+"Ah. You're going to camp on the way, right? You should also prepare a scavenger slime."
 
 *「あ。道中野宿とかすんだろ？　スカベンジャースライムも用意しといたほうがいいな」*
 
-"Oh, I'll have to get all those little things, too."
+"Ah, yeah, I need to gather some small items too."
 
 *「あー、その辺の小物も揃えないとっすね」*
 
-I'll help you out. "I'll help you out. Do you need clothes or anything?"
+"While we're at it, I'll help you out. Buy various things. Do you need clothes?"
 
 *「ついでだ、手伝ってやる。色々買っとけ。服とかは要るか？」*
 
-I'm fine with that. We have stock."
+"Oh, I'm fine on that front. I have a stock."
 
 *「あ、そっちは大丈夫っす。ストックあるんで」*
 
 &nbsp;
 
-As for the clothes, it's all about replication.
+I can replicate clothes, so it's not a problem.
 
 *服については複製でどうとでもなるからね。*
 
-In fact, since the first time Sister Harumikazuchi stripped me of my clothes, I've been saving the originals and wearing duplicates. When I wear it down, I just copy it!
+In fact, after being stripped by Sister Harumikazuchi at the beginning, I've been wearing replicas while keeping the original safe. Once I wear them out, I just copy them!
 
 *実際最初にハルミカヅチお姉様に身ぐるみはがされてから、私はオリジナルを保存して複製品を着てるし。着潰したらコピーするだけさ！*
 
 &nbsp;
 
-'Well, then, small stuff and food. The climate in Velarde is not so different from here. ...... Follow me, I know a good place."
+"Then, it's small items and food. The climate in Verald is similar to here, so... alright. Follow me, I know a good shop."
 
 *「じゃ、小物とか食料だな。ヴェーラルドなら気候もここらと変わらないし……よし。ついて来い、いい店を知ってる」*
 
 &nbsp;
 
-So, taken by the caring senior Braid, we went shopping for various things.
+So, led by the caring Blade-senpai, we went shopping.
 
 *で、面倒見のいいブレイド先輩に連れられ、そのまま色々とお買い物だ。*
 
-We spent a lot of lumberjack rewards to buy personal scavenger slime, tents, and so on. Incense to ward off demons (better than nothing) and cooking utensils were also purchased.
+Using my lumberjack rewards generously, I bought personal scavenger slimes, tents, and even incense to ward off monsters (it's just a comfort, but better than nothing), as well as cooking utensils.
 
 *木こり報酬をふんだんに使い、個人用スカベンジャースライムやらテントやらも購入。魔物除けのお香（気休め程度だがないよりマシ）とか、調理器具もだ。*
 
 &nbsp;
 
-Hey Karina, can I trade this for a bottle of booze?"
+"Hey, Karina, can I trade this for a bottle of alcohol?"
 
 *「おいカリーナ、これ、酒１本と交換でもいいか？」*
 
-It's fine. I'd rather have an empty backpack. ...... is that just one bottle of sake?　It's a frying pan!
+"Sure. In fact, it helps that my backpack is lighter... Wait, is it really just one bottle of alcohol!? That's a frying pan!?"
 
 *「いいっすよ。むしろリュックが空いて助かるっす……って、それ酒１本でいいんすか！？　フライパンっすよ！？」*
 
-"Oh, two bottles, then. And if you add this one and this one, we'll make even.
+"Ah, then make it two bottles. If you throw in this and that, it'll be even."
 
 *「あ、じゃあ２本で。んでこれとこれも付けてもらえばトントンじゃね」*
 
-"Oooh, oil is good too?　Seriously?　Ohhhh thank you!"
+"Whoa, can I really get good oil too? Seriously? Thank you so much!"
 
 *「うぉぉ、油もいいの？　マジで？　あああありがとうございます！」*
 
 &nbsp;
 
-Sometimes we barter with each other in this way, and we get a good deal and free up space in our backpacks. You're a great shopper, senpai.
+In this way, we exchanged items and gathered everything at a good deal, and my backpack started to have some empty space. Wow, senpai is really good at shopping.
 
 *そんな風に物々交換する事もあり、なんやかんやお得に揃えていくしリュックに空きスペースもできていく。スゲー、買い物上手じゃん先輩。*
 
 &nbsp;
 
-I would not normally buy so many unless I had a horse-drawn carriage. But you can do magic to make the logs lighter, can't you?"
+"Normally, you wouldn't buy this much unless you had a cart. But with your magic to lighten logs, you should manage somehow, right?"
 
 *「本来は馬車持ちでもなきゃこんな沢山買ったりしないもんなんだが。丸太を軽くする魔法が使えるお前なら何とかなんだろ？」*
 
-I'm sure you'll be able to find a way to get a good deal on a new house. I'm sure your standard of living is going to improve a lot. ......, or perhaps you're more suited to being a merchant than an adventurer?"
+"Yeah. Hehe, my standard of living is going to go way up... By the way, senpai, aren't you more suited to being a merchant than an adventurer?"
 
 *「っすね。うぇへへ、生活水準めっちゃアップしますわこれ……ってか先輩、冒険者より商人の方が向いてるんじゃないっすか？」*
 
-I just know a lot of people here. And this is the only town where I have a good face."
+"Are you stupid? I just know a lot of people. My connections are only in this town."
 
 *「バカか、知り合いが多く居るだけだよ。顔が利くのはこの町だけだしな」*
 
 &nbsp;
 
-I was poked. Well, it's true that senpai is too good-natured to be a merchant.
+I got nudged. Well, it's true that senpai is too kind-hearted to be cut out for being a merchant.
 
 *小突かれた。まぁ確かに先輩は人が好過ぎて商人には向かないかぁ。*
 
-If Sati-tan gets a hold of me, I'm going to be picked off my ass the next day.
+If Sati-chan got involved, she'd probably strip me of everything by the next day.
 
 *サティたんにかかったら翌日尻の毛まで毟られそうだ。*
 
 &nbsp;
 
-Your good looks were a factor in getting me a good deal."
+"Your good looks also helped you get a good deal."
 
 *「お前の顔が良いのもお得に買えた要因だぞ」*
 
-She said, "Well!　Beautiful women are a bargain!　Mm-hmm."
+"Wow! Being beautiful is such an advantage! Hehehe."
 
 *「まぁ！　美人ってお得だわ！　うふふふふ」*
 
-He said, "So, come to think of it, is that beautiful woman going to offer you a request for an escort?　I'll take it."
+"And speaking of which, is that beauty going to post a request for a bodyguard? I could take it if you want."
 
 *「んで、そういえばその美人は護衛依頼を出すのか？　受けても良いぞ」*
 
 &nbsp;
 
-Hmm, I'd feel comfortable requesting them if they were seniors, though: ......
+Well, I could trust senpai and the others to take the request...
 
 *ん、先輩たちなら安心して依頼できるけども……*
 
 &nbsp;
 
-I'll go alone this time. I have some things I want to do."
+"Hmm, as tempting as it is, I think I'll try going alone this time. I have a few things I want to do."
 
 *「んー、折角ですが、今回は一人で行ってみますわ。ちょっとやりたい事もあるし」*
 
-I see. Normally I would stop you, but it's you. Come home safe."
+"I see. Normally, I would stop you, but it's you after all. Just make sure to come back safely."
 
 *「そうか。普通なら止めるとこだけど、お前だしなぁ。無事に帰って来いよ」*
 
-I'm so grateful for everything you've done for me!　Aazus!"
+"Got it, thanks for everything!"
 
 *「うっす、色々お世話になりました！　あざーっす！」*
 
 &nbsp;
 
-So, with a large backpack full of liquor on the cart, along with my delivery order, I left Solashidore, the first town I visited.
+So, with the delivery request's cargo and a large backpack filled with alcohol loaded onto the cart, I left the first town, Sorashidore.
 
 *そんなわけで、配達依頼の荷物と併せて酒の詰まった大きなリュックを荷車に載せ、私は最初の町、ソラシドーレを後にしたのであった。*
 
-I used my merchant guild certificate for the first time!　Yay!
+I used the merchant guild's guild card for the first time! Yay!
 
 *初めて商人ギルドのギルド証使っちゃったよ！　いえーい！*
 
@@ -244,131 +244,131 @@ I used my merchant guild certificate for the first time!　Yay!
 
 &nbsp;
 
-This Solacidore Demachi record must be noon today. Too early, must be a fake."
+"This record of leaving Sorashidore is from noon today. That's too early; it must be a fake."
 
 *「このソラシドーレ出町記録は本日の昼だな。早すぎる、偽物だろう」*
 
-AHIN......!"
+"Ah-hin...!?"
 
 *「あひん……！？」*
 
 &nbsp;
 
-My name is Karina!　I'm at the gate of the port town of Velarde!
+I'm Karina! Right now, I'm at the gate of the port town of Verald!
 
 *私カリーナちゃん！　今、港町ヴェーラルドの門に居るの！*
 
-I didn't hear that!　I can't believe that the merchants guild guild card records the entry and exit of towns, including the date!
+I didn't know! The merchant guild's guild card records the date of entry and exit from the town!
 
 *聞いてないよ！　商人ギルドのギルドカードでは町の入出に日付込みの記録が記録されてるなんて！*
 
 &nbsp;
 
-"A guild certificate from the Merchant's Guild?　How could it possibly be forged?"
+"Is that a merchant guild's guild card? Is it possible for it to be forged?"
 
 *「商人ギルドのギルド証だぞ？　偽造なんてありえるか？」*
 
-'It's right in front of you in reality. The ...... load matches the one on the guild certificate. The numbers are fine."
+"It's right in front of you... The cargo matches the guild card. The quantity is also fine."
 
 *「現実に目の前にある。……積み荷はギルド証のものと一致しているな。数も問題ない」*
 
-"You're the Adventurers' Guild, aren't you?　You're in on it, too, aren't you?
+"Isn't this from an adventurer guild request? So, are you also involved in that?"
 
 *「冒険者ギルドの依頼物だろう？　そちらもグルということか」*
 
-Either way, it's a big problem. We can't make a decision. Hey, we'll check with the top and the guilds.
+"Either way, this is a big problem. We can't make a judgment. Hey, contact the higher-ups and the guild—"
 
 *「どちらにせよこれは大問題だ。我々では判断が付けられない。おい、上とギルドに問い合わせ――」*
 
-"Hello, everyone!　Look this way, look this way!
+"Everyone! Please, look over here!"
 
 *「み、皆様ぁ！　こちらを、こちらをご覧くださいぃ！」*
 
 &nbsp;
 
-I held up a five-yen coin counterfeit hypnotic ID card. The eyes of the soldiers who had surrounded me and were talking with me became kind.
+I held up my five-yen coin fake hypnosis ID. The soldiers surrounding me softened their expressions.
 
 *私は五円玉の偽造催眠身分証をかざす。私を取り囲んで話をしていた兵士の皆さんの目が優しくなった。*
 
 &nbsp;
 
-You said, "...... Oh, what the heck. If you could just get that out of the way from the beginning. Okay, we'll give you permission to come in too."
+"...Ah, I see. If you had shown that from the beginning. Alright, you are permitted to enter the town."
 
 *「……ああ、なんだ。最初からそれを出してくれれば。よし、こちらも入町許可を」*
 
-Oh, no, no, no, no, no, no, no, no, no, no, no, no, no, no!　That can wait until next time. I'm leaving for now!"
+"Ah, wait, wait! That's fine for now. I'm going back for a bit!"
 
 *「ああああまってまって！　それは今度でいいです。一旦帰るんで！」*
 
-"Mm?　But it's work. ......"
+"Hmm? But it's work..."
 
 *「む？　しかし仕事だしな……」*
 
-Chooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo!　ID, somehow in spare of this ID!"
+"Attention! Please, based on this ID, somehow let me through!"
 
 *「ちゅーーーもーーーーく！　身分証、この身分証に免じてどうにか！」*
 
-I see. Okay."
+"I see. Understood."
 
 *「そうか。わかった」*
 
 &nbsp;
 
-Oh, man!　This is so bad. Oh, I was so surprised. I was in a big hurry.
+That was close! That was really close. Ah, I was surprised. I was super panicking.
 
 *っぶねー！　あっぶねーよこれ。あー、ビックリした。超焦ったぁ。*
 
-No, you know, we're going to take to the sky, right?　You look for the port town of Velarde from the sky, right?　You go there, right?　You try to get in through the gate with dignity, right?　You showed your guild card, right?　This is it.
+You see, I was going to teleport to the sky, right? Then I was going to search for the port town of Verald from the sky, right? I was going to go, right? I was going to try to enter through the gate confidently, right? I showed the guild card, and this happened.
 
 *いやね、空へ転移するじゃん？　空から港町ヴェーラルドを探すじゃん？　行くじゃん？　堂々と門から入ろうとするじゃん？　ギルド証見せたじゃん？　これよ。*
 
 &nbsp;
 
-I mean, they said that there was a record on the guild certificate about the luggage as well.
+Also, it seems there was a record of the cargo on the guild card.
 
 *てか、荷物についてもギルド証の方に記録があったらしい。*
 
-Wow, what a high-tech feature!　What about the merchant guild's guild certificate?　Taxation!
+Wow, that's some high-tech feature! The merchant guild's guild card! Is it for tax purposes!?
 
 *いやぁ、ハイテクな機能ついてんなぁ！　商人ギルドのギルド証はよぉ！　税金対策かよぉ！？*
 
 &nbsp;
 
-Good thing there was a fake ID. I'm glad I didn't return it to God. I guess you should keep important items.
+I'm glad I kept that fake ID. I'm so relieved I didn't return it to the gods. After all, it's important to keep essential items.
 
 *あってよかった偽造身分証。神様に返納しないで良かったよぉ。やっぱり重要アイテムはとっておくもんだね。*
 
 &nbsp;
 
-I've done nothing wrong. I didn't do anything wrong. ......
+"Damn it, what should I do? I haven't done anything wrong..."
 
 *「っくぅー、どうすっよこれ。私何も悪いことしてないのにぃ……」*
 
 &nbsp;
 
-I can't enter the town like this. No, you can enter on your own if you want to, but as long as your entry and exit are recorded, you can't use your guild card or ID card inside.
+At this rate, I can't enter the town. Well, I could force my way in, but since there's a record of entry and exit, I wouldn't be able to use the guild card or ID inside.
 
 *このままじゃ町に入れない。いや、入ろうと思えば勝手に中に入ることもできるんだけど、入退で記録がされる以上中でギルド証が、身分証が使えないという事だ。*
 
-No, let's think backwards here. I'm glad I didn't go into town without permission and use my guild card and then make a fuss about it. I'm glad I didn't have to make a fuss about it.
+No, let's think of it the other way around. I'm glad I didn't get caught for "illegal entry!" after entering the town and using the guild card.
 
 *いや、ここは逆に考えよう。勝手に町の中に入ってギルド証を使った結果、「違法侵入だ！」と騒がれなくてよかったんだ、と。*
 
 &nbsp;
 
-...... no choice, I'll just kill time for 5 days or so."
+"...I guess I have no choice but to kill some time for about five days."
 
 *「……仕方ない、５日くらい時間潰すかぁ」*
 
 &nbsp;
 
-In short, the problem was that the time was too early, and there is no problem if you wait until a normal, uncomfortable time.
+In short, the problem was that I arrived too early, and if I just wait until it feels like a normal time, there won't be any issues.
 
 *要するに、時間が早すぎたのが問題だったのであり、普通に違和感のない時間になるまで待機すれば何の問題もない。*
 
 &nbsp;
 
-Well, I'll just think of it as a vacation and take it easy.
+Well, I’ll take it as a vacation and relax.
 
 *ま、休暇だと思ってのんびりしよっと。*
 
@@ -377,4 +377,3 @@ Well, I'll just think of it as a vacation and take it easy.
 &nbsp;
 
 &nbsp;
-

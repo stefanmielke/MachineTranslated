@@ -1,186 +1,186 @@
-# I like tea cookies and stuff.
+# I like tea cookies and such
 
 ## お茶のクッキーとか好き
 
-Guided by the sisters (1 pancake for guidance + honey), we came to the blacksmith shop.
+Under the guidance of the sister (with a fee of one pancake + honey), we arrived at the blacksmith's.
 
 *シスターの導き（案内料ホットケーキ１枚＋蜂蜜）により、私達は鍛冶屋へやってきた。*
 
-I wish I could learn some blacksmithing skills while I'm at it.
+I was thinking it would be nice if I could learn some blacksmithing skills while I was at it.
 
 *ついでに鍛冶スキルでも覚えられたらなぁ、とか思ったりしちゃって。*
 
 &nbsp;
 
-When I think of a blacksmith, I have an image of a blacksmith hammering tons and tons of metal to make armaments.
+When it comes to blacksmiths, I have the image of them hammering metal to create weapons and armor, but I wonder what it's really like.
 
 *鍛冶屋といえば、トンテンカンカンと金属をハンマーで叩いて武具を作るイメージだけども、実際のところどうなんだろう。*
 
 &nbsp;
 
-What about you, Isiah?　Don't you know much about Dwarves?"
+"What about it, Aisia? Don't dwarves know a lot about that?"
 
 *「どうなのアイシア？　ドワーフならそこんとこ詳しくない？」*
 
-There are two main types of forging. The forging process is similar to baking bread. Well, it is just like baking bread.
+"There are generally two main aspects. The forging part is mostly as you said, master. You put the materials in the furnace, heat them up, then hammer and knead them to shape them. It's kind of like making bread."
 
 *「大きく分ければ２つあって、鍛造の方は大体あるじ様のおっしゃる通りです。炉に素材を入れ熱し、柔らかくした後に叩いて練って、上げて形を作ります。まぁ、パン作りみたいなものですね」*
 
 &nbsp;
 
-Oh, I guess I equated blacksmithing with bread.
+Oh, so you compared blacksmithing to bread-making.
 
 *おう、鍛冶とパンを同列にしちゃったか。*
 
 &nbsp;
 
-Look, they both knead the dough to make it uniform, and they both use furnaces, right?"
+"Well, both involve kneading the dough to make it uniform, and they both use a furnace, right?"
 
 *「ほら、どちらも生地をこねて均一にしますし、炉を使うじゃないですか？」*
 
-I'm sure!　That's a good one, Isiah."
+"That's true! You make a good point, Aisia."
 
 *「確かに！　上手いこと言うねぇアイシア」*
 
-'Ehehe, only because it's bread!
+"Hehe, because it's bread!"
 
 *「えへへ、パンなだけに！」*
 
 &nbsp;
 
-There is a difference between baking and melting and baking and hardening, though.
+There is a difference between baking and melting, though.
 
 *焼いて溶かすのと、焼いて固めるのとで違いはあるけれどね。*
 
-And here, Deere tilted his head and said, "Hmm.
+At this point, Dia-kun tilted his head and said, "Hmm..."
 
 *と、ここでディア君が「んー」と首を傾げた。*
 
 &nbsp;
 
-Can they actually show us what they do, like where they do the blacksmithing?"
+"Is it possible to actually see blacksmithing in action?"
 
 *「鍛冶をしているところとか、実際に見せてもらえたりするものでしょうか？」*
 
-I think it might be difficult to see the weapons you forge and stuff, but I think the other casting guy can show you if you ask." You buy alcohol from Sati, don't you?　If the blacksmith is a dwarf, I can get a little for the price of the liquor."
+"It might be difficult to observe the forging of weapons, but for the casting part, I think you could ask to see it. You buy alcohol from Sati, right? If the blacksmith is a dwarf, you might be able to get a little something in exchange for some alcohol."
 
 *「鍛造する武器とかの見学は難しいかもしれませんが、もうひとつの鋳造の方なら、頼めば見せてもらえると思いますよ。サティからお酒買ってますよね？　鍛冶師がドワーフなら、お酒を対価にすれば少しくらいはいけます」*
 
-I see. So if you're a dwarf, you can catch it with booze."
+"I see. So dwarves can be lured with alcohol."
 
 *「なるほど。ドワーフだとお酒で釣れるのか」*
 
-And in a town like this, there are always one or two blacksmiths whose masters are dwarves.
+"And in towns like this, there are usually one or two blacksmiths run by dwarves."
 
 *「そしてこういう町にはドワーフが親方な鍛冶屋が１、２件は必ずあるものなのです」*
 
-I see, very Dwarf-like!"
+"I see, that's very dwarf-like!"
 
 *「なるほど、すごくドワーフっぽい！」*
 
 &nbsp;
 
-What a perfect theory. Our Isiah is excellent.
+What a perfect theory. My Aisia is impressive.
 
 *なんて完璧な理論なんだ。うちのアイシアは優秀だな。*
 
 &nbsp;
 
-By the way, what's your analogy for casting?"
+"By the way, what would you compare casting to?"
 
 *「ちなみに鋳造の方は例えるとなんなの？」*
 
-Hmmm. Is it cookies?　There is a difference between pouring them into a mold and hollowing them out with a mold, but you can make a lot of the same things."
+"Hmm. Maybe cookies? There are differences between pouring into a mold and cutting out with a mold, but you can make a lot of similar things."
 
 *「んー。クッキーですかね？　型に流しこむのと、型でくりぬくのの違いはありますが、同じようなのがいっぱい作れます」*
 
-I see. I like tea cookies."
+"I see. I really like tea cookies!"
 
 *「なるほど。私、お茶のクッキーとか好きー」*
 
 &nbsp;
 
-So, we immediately decided to inquire at a suitable weapons shop. The idea was to see a weapons shop, buy something there, and get some information about dwarven blacksmiths.
+So, we decided to quickly look for a suitable weapon shop. The plan was to check out the weapon shop, buy something there, and gather information about the dwarf blacksmith.
 
 *というわけで、早速適当な武器屋を尋ねてみることになった。武器屋を見て、そこで何か買ってついでにドワーフの鍛冶屋の情報を仕入れようという魂胆である。*
 
-And while we're at it, let's get Isiah a weapon. I had her with a mithril knife the other day in the dungeon, but I didn't really use it.
+And while we're at it, let's get Aisia a weapon. I had her use a mithril knife in the recent dungeon, but she didn't really use it.
 
 *ついでにアイシアの武器を手に入れてしまおう。先日のダンジョンではミスリルナイフを持たせていたけど、特に使うことはなかったし。*
 
 &nbsp;
 
-I should have asked before we went to the dungeon, but what kind of weapon did Isiah use?"
+"I should have asked before going to the dungeon, but what kind of weapon does Aisia use?"
 
 *「ダンジョン行く前に聞くべきだったんだけど、アイシアってどんな武器使うんだったの？」*
 
-Is it me?　Um, an instrument."
+"Me? Um, I use a musical instrument."
 
 *「私ですか？　えーっと、楽器ですね」*
 
 &nbsp;
 
-What's that? I wonder if they hit him with a guitar. That's rock 'n' roll.
+What’s that? Does she hit things with a guitar? That's rock!
 
 *なにそれ。ギターでぶん殴ったりするんだろうか。ロックだなぁ。*
 
 &nbsp;
 
-I can only make a sound that demons don't like and put up wards. I'm a bard, so I don't have much fighting to do.
+"I mostly use it to create barriers with sounds that monsters dislike. Since I'm a bard, I don't really fight much."
 
 *「魔物が嫌う音で結界を張ったりするくらいですねぇ。吟遊詩人なので、そもそも戦うことがあんまりないといいますか」*
 
-Oh, that's true."
+"Oh, that's true."
 
 *「あ、それはそうだね」*
 
-I can only use a knife as a weapon. I hope you can buy me a small shield and a knife for dismantling."
+"They don't sell instruments at weapon shops, and I can only use knives at best. If you could buy me a small shield and a dismantling knife, that would be great."
 
 *「武器屋じゃ楽器は置いてませんし、私じゃ武器はナイフ程度しか使えません。小盾と解体用のナイフでも買っていただければと」*
 
 &nbsp;
 
-So would it be better to make instruments with woodworking skills or something rather than buying them from an arms dealer? Hmmm.
+In that case, it might be better to make an instrument with woodworking skills rather than buying it at a weapon shop. Hmm.
 
 *となると、武器屋で買うより木工スキルとかで楽器作ったほうが良いんだろうか。ふーむ。*
 
 &nbsp;
 
-'Um, Miss Isiah. 　It's an important tool of the trade, and your sister Carina healed it for you."
+"Um, Aisia. As a bard, isn't it not very good to defend with a shield? It's an important tool for your trade, and Karina-oneechan just fixed it for you."
 
 *「あの、アイシアさん。吟遊詩人としてはそもそも盾で防御するのもあまりよくないのでは？　大事な商売道具ですし、折角カリーナお姉さんが治してくれたんですし」*
 
-I don't like it, Dear Sir. There is no problem there because Aruji-sama can fix it as much as he wants. Isn't that right?"
+"Oh, come on, Dia-sama. That's exactly why the master can fix it as much as he wants, so there's no problem at all. Right?"
 
 *「やだなぁディア様。そこはあるじ様がいくらでも直せるからこそ、何の問題もありません。でしょう？」*
 
-Oh, yeah. Well, I'll fix it."
+"Ah, yeah. Well, I can fix it."
 
 *「あ、うん。まぁ治すけど」*
 
 &nbsp;
 
-I think there's something a little strange about the nuance of "cure" in Isiah's words. I don't think so.
+Aisia's nuance of "fixing" seems a bit off. No, let's not think about it.
 
 *なんかアイシアの『治す』のニュアンスちょっとおかしいような。いやよそう。*
 
 &nbsp;
 
-'I, too, would like a sub-weapon. You bought the mithril knife as a peddler's item, right?　If only I had some kind of weapon I could use when I run out of magic."
+"I also want a sub-weapon. I bought the mithril knife as a product, right? If I could have a weapon to use when my magic runs out..."
 
 *「僕もサブウェポンが欲しいですね。ミスリルナイフは行商品として買ったんですよね？　魔力切れしたときに使える武器なりがあれば」*
 
-I see. Well, if I find a good one, I'll buy it. I'll use the money for living expenses, so my budget is about four gold coins.
+"I see, I see. Well, if there's something good, let's buy it. I'll use my living expenses for that, so the budget is about four gold coins."
 
 *「なるほどなるほど。ま、良いのがあったら買っちゃおう。生活費の方使うからね、予算は金貨４枚くらいで」*
 
 &nbsp;
 
-I think 4 gold coins is a pretty good budget to have for now.
+For a basic setup, I think four gold coins is quite a budget.
 
 *とりあえずで揃えるには金貨４枚はかなりの予算だと思う。*
 
-However, I heard that even this may not be enough for full-body armor or the like.
+However, it seems that this might not be enough for full-body armor.
 
 *もっとも、全身鎧とかだとこれでも足りないかもしれないらしいけど。*
 
@@ -188,17 +188,17 @@ However, I heard that even this may not be enough for full-body armor or the lik
 
 &nbsp;
 
-'Oh, yes, both of you! ...... You must protect your feet!　The feet!"
+"Oh, by the way, both of you! ...Make sure to protect your feet! Your feet!"
 
 *「あ、そうだ二人とも！……足は絶対守ってね！　足は！」*
 
-Then let's buy some sturdy boots, too. Let's do that."
+"Then let's buy sturdy boots. That sounds good."
 
 *「では頑丈なブーツも買いましょう。そうしましょう」*
 
 &nbsp;
 
-Yeah, that would be a good idea. If the boots are sturdy and unbreathable, they'll be even more God-fearing because they'll be stuffy. It's also possible to have only the feet in star mode at all times. Yeah, that's a good idea.
+Yeah, that sounds reasonable. Sturdy boots that are not breathable would be even more to the liking of the gods since they would get sweaty. Having just the feet in star mode all the time is also an option. Yeah.
 
 *うん、それならアリだな。頑丈で通気性の悪いブーツなら蒸れるから尚更神様好みになるだろうし。足だけ常時スターモードというのもアリだな。うん。*
 
@@ -206,7 +206,6 @@ Yeah, that would be a good idea. If the boots are sturdy and unbreathable, they'
 
 &nbsp;
 
-And so, we went shopping at the weapon shop and got some information about dwarven blacksmiths. Next time, we'll hit the dwarven blacksmiths. Whew!
+With all that said, we went shopping at the weapon shop and gathered information about the dwarf blacksmith. Next time, we will charge into the dwarf blacksmith for an interview. Hoo hoo!
 
 *そんなこんなで、武器屋で買い物をしてドワーフの鍛冶屋についての情報を得た私たちであった。次回、ドワーフの鍛冶屋へ突撃取材だぜ。ふぅっふー！*
-

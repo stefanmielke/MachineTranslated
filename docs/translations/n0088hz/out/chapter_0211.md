@@ -1,60 +1,60 @@
-# I can't help you now.
+# There's nothing I can do now
 
 ## 今更どうしようもないね
 
 &nbsp;
 
-That's how I realized I had done it. ......
+That's why I realized what I had messed up...
 
 *そんなわけで私がやらかしてしまっていたことに気付いたわけだが……*
 
 &nbsp;
 
-Yup. Isiah is right, there's certainly nothing we can do about it now!
+Yeah. Just as Aisia said, there's really nothing I can do now!
 
 *うん。アイシアの言う通り、確かに今更どうしようもないね！*
 
-I can't change the fact that I beat the king, and if I lose, my 82 gold coins are gone. I have no choice but to go on winning ......!
+The fact that I defeated the king can't be changed, and if I lose, I'll lose 82 gold coins. I have no choice but to keep advancing...!!
 
 *王様を倒した事実は変えられないし、負けたら金貨８２枚がパァだもの。私は勝ち進むしかない……ッ！！*
 
 &nbsp;
 
-Menoue gave up at this point!　Kalina is on a roll!
+"Here, Menowe has given up! Karina's rampage cannot be stopped!!"
 
 *「ここでメノウェ選手がギブアップ！　カリーナ選手の快進撃が止まらなぁいッ！！」*
 
-"Damn!　I can't believe my magic spear protube didn't even graze my clothes!"
+"Ugh! My magic spear Protube didn't even graze her clothes!!"
 
 *「くっ！　我が魔槍プロチューブが服にかすりもしないとは！！」*
 
-A stab attack with an invisible spear. Well, it might have worked if it weren't for me."
+"A thrust attack with an invisible spear. Well, it might have worked if it weren't me."
 
 *「不可視の槍による刺突攻撃。ま、私じゃなかったら通用したかもね」*
 
 &nbsp;
 
-Also, these clothes are a gift from all the Five Elders, so I can't damage them or make holes in them.
+Also, this outfit is a gift from all the Elders, so I can't afford to damage it or put holes in it.
 
 *あとこの服、五大老のみんなからのプレゼントでもあるから傷つけたり穴あけたりするわけにはいかんのよな。*
 
 &nbsp;
 
-However, I thought it would be bad if I killed them off instantly, so I decided to fight with a little bit of an eye to attracting them.
+However, I thought it might be bad to finish them off instantly, so I decided to fight with a bit of showmanship in mind.
 
 *ただしこう、さすがに瞬殺していくと悪いかなってことで、多少魅せプレイを意識して戦うことにした。*
 
-We should at least make the convention more exciting. ......
+I have to at least liven up the tournament... you know.
 
 *せめて大会を盛り上げてあげなきゃ……ってね。*
 
 &nbsp;
 
-Huh?　If you do it like that, there's no room for the king who was killed instantly in the first round?
+Huh? If I keep doing that, won't the king who was instantly defeated in the first match have no place to stand?
 
 *え？　そんな風にしてたら初戦で瞬殺された王様の立つ瀬がない？*
 
-No, no, no, that one was that one. He was a strong opponent who just couldn't afford to go easy on you. He was the one who had to decide before he got hit on the first move.
+No, no, that's not it. It was just that I didn't have the luxury to hold back; they were a strong opponent. I had no choice but to finish them off before they could take me down.
 
 *いやいや、そっちはあれだよ。手加減する余裕が無かっただけで、強敵だったんだよ。初手でやられる前に決めるしかなかったヤツ。*
 
@@ -62,91 +62,91 @@ No, no, no, that one was that one. He was a strong opponent who just couldn't af
 
 &nbsp;
 
-And next is the elven bowman.
+Next up is the elven archer.
 
 *と、次はエルフの弓使いだ。*
 
-...... I thought that if a bow and arrow normally hit you, you would inevitably get seriously injured.　I thought so, but I heard that it's OK if you don't get hit on the head because it can be healed with a potion.
+...I thought that if a regular arrow hits, it would definitely cause serious injury, but it seems that as long as it doesn't hit the head, potions can heal it.
 
 *……普通に弓矢って当たったら大怪我必至では？　と思ったが、ポーションで治るので頭に受けなければ大丈夫らしい。*
 
-Now, let the games begin!
+Alright, let's get this match started!
 
 *さぁいざ試合開始ッ！*
 
 &nbsp;
 
-Mhm?"　A sign of the forest...... you have a relationship with the elves?"
+"Hm? The presence of the forest... Do you have dealings with elves?"
 
 *「む？　森の気配……お主、エルフと付き合いがあるのか？」*
 
-Yes, I do. You're a party member."
+"Yeah, I do. They're party members."
 
 *「うん、あるよ。パーティーメンバーだね」*
 
-"Well, ......, you're an elf who gets along with the humans. That's a pretty smart thing to do."
+"Oh... An elf who mingles with humans. How trivial."
 
 *「ほう……ヒト族と馴れ合うエルフか。タカが知れるな」*
 
-What?　If you want me to be serious, just say so, Teme."
+"Huh? If you want me to go all out, just say so, you punk."
 
 *「あ？　本気出して欲しいならそう言えよテメー」*
 
-"Well, I'll see what I can do.
+"Ha, if you can do it, then go ahead—"
 
 *「フッ、やれるものならやってみるが――」*
 
-"Referee. Is it allowed to destroy weapons?
+"Referee— Is weapon destruction allowed in this match?"
 
 *「審判ー。これ武器破壊ってアリなんだっけぇ？」*
 
 &nbsp;
 
-At that moment, I somehow had in my hand a bow that should have belonged to the elf guy!　Oh, and if it was force majeure or something in the match, it was ants.
+At that moment, for some reason, the bow that the elven guy was supposed to have was in my hands! Ah, I guess it's allowed if it's due to unavoidable circumstances in the match.
 
 *その瞬間、私の手の中にはなぜかエルフ野郎の持っていたはずの弓が！　ああ、試合で不可抗力とかならアリと。*
 
 &nbsp;
 
-What?　When did this happen?　Give it back!
+"What!? W-When did that happen!? Give it back!!"
 
 *「な！？　い、いつの間に！？　返せッ！！」*
 
-No, I had no choice in the match!　If I give it back, I'll be beaten!　That's why!　I'm going to get my ass kicked!
+"Well, this is just a necessary action in the match! If I give it back, I'll get taken out! So here we go! It's the breaking punishment!!"
 
 *「いやぁ、これは試合で仕方なくだよねぇ！　返したらやられちゃうもん！　ってわけだぞオラァ！　バキバキの刑じゃぁーーーい！！」*
 
-My beloved bow Rebellion!
+"My beloved bow, Rebellion!?"
 
 *「我が愛弓リベリオンがぁーーーーーーー！？」*
 
 &nbsp;
 
-I broke his bow. I'll be damned if I'm going to make fun of you without knowing you well enough to know my Dear.
+Ha, I snapped that bow in half. It's divine punishment for mocking my dear Dia-kun without even knowing him well.
 
 *フッ、弓をベキバキにへし折ってやったわ。うちのディア君をよく知りもしないでバカにするから天罰だぜ。*
 
-Since he just destroyed the weapon, he can still continue if he is willing to do so. But of course, there is no way a bowman can get into a proper fight without a bow. ......!
+Since I only destroyed the weapon, if the person is motivated, they can still continue. But of course, can an archer fight properly without a bow...? No way!!
 
 *武器破壊をしただけなので、本人がやる気ならまだ続行できる。が、もちろん弓使いが弓を持たずにまともな戦いになるかというと……なるわけないよねぇ！！*
 
 &nbsp;
 
-It's worse if you don't have a spare bow!"
+"It's your fault for not having a spare bow!"
 
 *「予備の弓を持っていない方が悪い！」*
 
-My bow has always been with me, it cannot be stolen.
+"W-My bow has always been with me, it can't be stolen!"
 
 *「わ、我が弓は常に我と共にあったのだ、盗まれるなど有り得んッ」*
 
-What?　You were just robbed by me. You just took it from me.
+"Huh? You just had it taken from you by me. Complete refutation!"
 
 *「え？　今、フツーに私に奪われてたじゃん。完・全・論・破！」*
 
 &nbsp;
 
-So, we have successfully won the elves, too!
+So, I successfully won against the elf.
 
 *ということで、エルフにも無事に勝利しましたっと。*
 
@@ -156,131 +156,131 @@ So, we have successfully won the elves, too!
 
 &nbsp;
 
-......General Garrow is next."
+"…Next is General Garou."
 
 *「……次はガロウ将軍かぁ」*
 
 &nbsp;
 
-And so, the next one was finally General Garou of the Black Wolf Tribe - the opponent that Mr. Masilo had told me to watch out for. When we confronted him on stage, he was indeed a black mofo.
+And so, next up is the black wolf tribe's General Garou— the opponent that Mashiro warned me to be careful of. Facing him on stage, he indeed looked like a black fluffball.
 
 *そうこうして、次はいよいよ黒狼族のガロウ将軍――マシロさんが気をつけろと言っていた相手だ。ステージ上で対峙すると、確かに黒いモフモフだった。*
 
-This is a nice furrow. Masilo's is better though.
+This is a nice coat. Mashiro is better, though.
 
 *これはこれでいい毛並みだ。マシロさんの方が上だけど。*
 
 &nbsp;
 
-And already. They're so eager to avenge the king that they're willing to kill.
+Moreover, he's really intense about avenging the king.
 
 *しかももうね。国王の仇を取らんと殺気が凄いんだよ。*
 
-If it's bad, it could be made to look like an accident, like .......
+If I'm not careful, he might try to make it look like an accident...
 
 *下手すれば事故に見せかけて……とかありかねない。*
 
 &nbsp;
 
-Well, they won't. Because my spatial magic defense is the strongest!
+Well, that won't happen. My spatial magic's defense is the strongest!!
 
 *まぁされないけどね。私の空間魔法の防御力は最強だから！！*
 
 &nbsp;
 
-The power that defeated King Barbaros has kept us on our toes from the start."
+"I won't let my guard down against the power that defeated King Barbaros."
 
 *「バルバロス王を退けたその力、最初から油断はしない」*
 
-You could have, but you're so serious."
+"You could let your guard down, but you're serious, huh?"
 
 *「しても良いのに、真面目だねぇ」*
 
-"Fuck you."
+"Shut up."
 
 *「ほざけ」*
 
 &nbsp;
 
-And after a light conversation, the referee signals. Reedie, whew!
+After exchanging light banter, the referee signaled. Ready, fight!
 
 *と、軽く会話を交わしたところで審判の合図。れでぃー、ふぁいっ！*
 
 &nbsp;
 
-Shh!
+"Shh!!"
 
 *「シッ！！」*
 
-Oops."
+"Oh, careful."
 
 *「おっと」*
 
 &nbsp;
 
-I avoided the dart. A flying dart from the very first move. Moreover, it seemed that I was supposed to avoid it, and then General Garou came poking at me with his sword as if he was waiting for me.
+I dodged the darts. Ranged attacks right from the start. Moreover, it seems like he was expecting me to dodge, as General Garou was waiting there with his sword poised to strike.
 
 *私はダーツを避けた。初手から飛び道具か。しかもこれ避けることを想定されているようで、そこにガロウ将軍が待ち構えるように剣を突いてくる。*
 
-I avoided this and tried to pick up the blade and pull it away, but General Garou quickly let go of my hands and kicked me. Hmph!
+As I dodged and tried to grab the blade to pull it, General Garou let go with both hands and kicked me. Ugh!
 
 *これを避け、刃をつまんで引っ張ろうとすればガロウ将軍はぱっと両手を放し私に蹴りを入れてきた。ふんぐっ！*
 
 &nbsp;
 
-"Tsk, that's hard."
+"Tch, you're tough."
 
 *「チィッ、硬いな」*
 
-Well, you know!"
+"Well, yeah, and!"
 
 *「まぁね、っと！」*
 
 &nbsp;
 
-This one too is fighting back with flying weapons. They pull out a revolver from the gun holder that A-chan, the Five Elders, sewed up for them. With two-handed pistols, I aim at the hands and feet. A head wound could kill you instantly.
+I retaliated with ranged attacks. I pulled out the revolver from the gun holder that Elder A-chan sewed for me. Aiming for his limbs, since a headshot could mean instant death.
 
 *こちらも飛び道具で応戦だ。五大老のアーちゃんが縫ってくれたガンホルダーからリボルバー銃を引き抜く。両手拳銃で狙うは手足。頭だと即死しかねないからね。*
 
 &nbsp;
 
-Bugbugn!　and my two pistols opened fire. General Garou sees through it and avoids it. Rather, he conversely aimed at the gap right after the shot and slashed at me.
+Bang bang bang!! My dual pistols fired. General Garou dodged, but he was instead aiming to strike me right after I shot.
 
 *バグバグン！！　と私の二丁拳銃が火を噴いた。それを見切って避けるガロウ将軍。むしろ逆に撃った直後の隙を狙って切りつけてくる。*
 
 &nbsp;
 
-Two bullets at the same time won't hit you!　Take that!
+"Even if it's two shots at once, it won't hit! Take this—"
 
 *「２発同時だろうと、当たらんわッ！　食らえ――」*
 
-You know what a ricochet is?
+"—Do you know about ricochet?"
 
 *「――跳弾、って知ってる？」*
 
 &nbsp;
 
-The next moment, a bullet gouged through General Garou's calf from behind.
+In the next moment, a bullet gouged into General Garou's calf from behind.
 
 *次の瞬間、ガロウ将軍のふくらはぎを、後ろから弾が抉り抜いた。*
 
 &nbsp;
 
-"Noooooo!　Don't tell me you adjusted the bullet's ricochet?
+"Ugh!? Y-You adjusted the bullet's bounce, didn't you!?"
 
 *「ぬぐウッ！？　ま、まさか、弾の跳ねを調整した、と！？」*
 
-I'm not going to take your life. I'm not going to take your life."
+"Don't worry. I don't intend to take your life."
 
 *「安心しな。命は取るつもりないよ」*
 
 &nbsp;
 
-I'm not going to tell you the answer, style, but of course I just used spatial magic to change the trajectory.
+I don't say how I did it, but of course, I just changed the trajectory with spatial magic.
 
 *答えは言わないスタイルだが、もちろん空間魔法で軌道を変えただけだ。*
 
-I used magic, but in a way it was a ricochet, so I'm not lying!
+I used magic, but in a way, it was still a ricochet, so I'm not lying!
 
 *魔法を使ったけどある意味跳弾なわけで、嘘はついてないぞっ！*
 
@@ -290,21 +290,18 @@ I used magic, but in a way it was a ricochet, so I'm not lying!
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(Notice below)
+(Announcement below)
 
 *（以下お知らせ）*
 
-Thanks to your support, they are going to put out a second volume, volume 2!
+Thanks to everyone's support, it seems like Volume 2 will be released!!
 
 *皆様の応援のおかげで、２巻、出してくれそうです！！*
 
-I'm going to ask Dr. Ixy to draw you, Dear. ......!
+I'm going to have Ixy-sensei draw Dia-kun for me...!!
 
 *私、Ｉｘｙ先生にディア君描いてもらうんだ……！！*
-

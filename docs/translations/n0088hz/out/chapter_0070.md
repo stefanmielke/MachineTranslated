@@ -1,58 +1,58 @@
-# Solacidore, I have returned!
+# Sorashidore, I have returned!
 
 ## ソラシドーレよ、私は帰ってきた！
 
 &nbsp;
 
-I, Karina-chan!　Solacidore, I am back!
+I am Karina-chan! Sorashidore, I have returned!
 
 *私カリーナちゃん！　ソラシドーレよ、私は帰ってきた！*
 
-First, we had to check at the gate. I was thinking of using my universal ID card for Dia, but I heard that he has his own ID card, so I asked him to use it.
+First, let's check at the gate. I was thinking of using my universal ID if necessary, but it seems that Dia-kun has a proper ID, so we'll use that.
 
 *まずは門でチェックだ。ディア君は最悪私の万能身分証を使おうかと思っていたが、ちゃんと身分証を持っているらしいのでそれを使ってもらう。*
 
 &nbsp;
 
-Hello, gatekeeper. I'm Karina Shonin, a peddler.
+"Hey there, gatekeeper. I'm the traveling merchant Karina Shonin."
 
 *「ちーっす門番さん。行商人のカリーナ・ショーニンです」*
 
-'Hmmm, a peddler for the Merchant's Guild. ...... hmm?　Is the girl over there with you?　Let me see your ID."
+"Hmm, you're a traveling merchant from the Merchant Guild... Hmm? Is that girl with you? Show me her ID."
 
 *「ふむ、商人ギルドの行商人だな。……ん？　そっちの少女は連れか？　身分証を見せてくれ」*
 
-Um, here you go.
+"Um, here you go."
 
 *「えっと、どうぞ」*
 
-"......!　This is an apology!　Please come through!"
+"…! I-I apologize for the oversight! Please, go right ahead!"
 
 *「……！　こ、これは失礼いたしました！　お通りください！」*
 
 &nbsp;
 
-When I saw the pendant that Dear-kun pulled out of his chest, the gatekeeper, obviously with a different attitude than mine, was willing to let me through.
+When the gatekeeper saw the pendant that Dia-kun took out from his chest, he let us through with a clearly different attitude.
 
 *ディア君が胸元から出したペンダントを見ると、明らかに私と違う態度で門番さんは快く通してくれた。*
 
-Maybe it's an aristocratic one. My luggage is also unchecked. I made sure they could see what was inside. Well, I only stocked up on lotions and massage equipment.
+He must be a noble or something. My luggage went through without any checks. I had prepared it so that it wouldn't matter if they looked inside. Well, all I had were lotion and massage tools anyway.
 
 *多分貴族のやつなんだろうなぁ。私の荷物もノーチェックだ。中身見られてもいいようにしておいたんだけど。まぁ仕入れたのローションとマッサージ器具だけだけど。*
 
 &nbsp;
 
-Let's get to the Adventurers' Guild right away."
+"Alright, let's head to the Adventurers' Guild right away."
 
 *「じゃ、早速冒険者ギルド行こうか」*
 
-Yes, sister!"
+"Yes, big sister!"
 
 *「はいっ、お姉さん！」*
 
 &nbsp;
 
-I took Dear's small, soft hand and headed for the Adventurer's Guild.
+I took Dia-kun's small and soft hand and headed towards the Adventurers' Guild.
 
 *私はディア君の小さくて柔らかな手を取り、冒険者ギルドへと向かった。*
 
@@ -64,87 +64,87 @@ I took Dear's small, soft hand and headed for the Adventurer's Guild.
 
 &nbsp;
 
-When I opened the door of the Adventurers' Guild, the inside was full of adventurers in their own right.
+When I opened the door to the Adventurers' Guild, it was filled with adventurers to a considerable extent.
 
 *冒険者ギルドの扉を開けると、中はそれなりに冒険者たちで溢れていた。*
 
-And my boobs that are the center of attention. That's why they know. ...... No, you're looking at this, Dear. Well, she's a cute little elf girl, isn't she? I mean, she's a guy's girl, but still.
+And my breasts were attracting attention. So they noticed... no, Dia-kun is looking at them. Well, she is a cute elf girl. Even if she is a boy.
 
 *そして注目の集まる私のおっぱい。だからバレてんぞ……いや、これディア君見てんな。まぁ可愛いエルフっ娘だもんな。男の娘だけど。*
 
 &nbsp;
 
-I've never been to the Adventurers' Guild before, but this is what it's like.
+"Wow, this is my first time at the Adventurers' Guild, and it's like this."
 
 *「へぇ、冒険者ギルドって初めて来たんですがこんな感じなんですね」*
 
-'Velarde's had the same feeling. Oh, it's Braid senior. Oh, hi!"
+"It was the same in Veraldo. Oh, there's Blade-senpai. Long time no see!"
 
 *「ヴェーラルドのも同じ感じだったよ。あ、ブレイド先輩だ。おひさー！」*
 
 &nbsp;
 
-Just then, I found Braid and his seniors having a drink. I call out to them.
+I spotted Blade-senpai and the others who were drinking. I called out to them.
 
 *丁度酒を飲んでるブレイド先輩達を発見。声をかける。*
 
 &nbsp;
 
-Oh Karina, I see you're back from Velarde. I wasn't worried about you coming back from Velarde, but I'm glad to see you're doing well. ...... Who is that guy?　Is he your illegitimate son?"
+"Hey, Karina. You’re back from Veraldo. I wasn’t worried, but it’s good to see you’re well… So, who’s that? Your secret child?"
 
 *「おうカリーナ。ヴェーラルドから戻ったか、心配はしてなかったけど元気そうでなにより……って、そいつは誰だ？　隠し子か？」*
 
-'Yes, my sweet child--I mean, how could it be? Do I look like such a big kid to this me?"
+"Yeah, my cute child—wait, there's no way I have such a big child, does it look like I do?"
 
 *「うん、私の可愛い子供――って、んなわけないでしょ。この私にこんな大きい子供がいるように見える？」*
 
-I don't see it. It looks like an elf and it doesn't look like a ...... slave, but there is a reason. Is he a monster or what?"
+"It doesn't look like it, she seems like an elf... and she doesn't seem to be a slave, but does she have some kind of backstory? Is she something extraordinary?"
 
 *「見えねぇな、見たところエルフっぽいし……奴隷ってわけでもなさそうだが、ワケありか。そいつもとんでもなかったりすんのか？」*
 
-"Hmmm, Dear, as you can see at ......, you're super cute!　She's super-smart and healty and great, isn't she?　That's why I made you my companion."
+"Hehe, Dia-kun is... as you can see, super cute! Super smart and healing, isn't it the best? So I made him my companion."
 
 *「ふふん、ディア君はね……ご覧の通り、めっちゃ可愛いんだよ！　超賢いし癒されるしで最高じゃね？　ということで私の仲間にしたの」*
 
-Oh, oh. You sure are cute. ...... I'm Blade. Nice to meet you.
+"O-Oh. She is indeed cute. …I’m Blade. Nice to meet you."
 
 *「お、おう。確かに可愛いな。……俺ぁブレイドってんだ。よろしくな」*
 
-Oh, yes. My name is Dia. Pleased to meet you."
+"Ah, yes. My name is Dia. Nice to meet you."
 
 *「あ、はい。ディアと言います。よろしくお願いします」*
 
 &nbsp;
 
-Dia-kun bows his head to the senior braiders with a bow.
+Dia-kun bowed slightly to Blade-senpai and the others.
 
 *ぺこり、とブレイド先輩達に頭を下げるディア君。*
 
 &nbsp;
 
-Then let's register as adventurers and party, Dear!
+"Alright, let’s get you registered as an adventurer and form a party, Dia-kun!"
 
 *「じゃ、早速冒険者登録してパーティーになろうねディア君！」*
 
-Hey Karina. I was just wondering why you call a girl by your name."
+"Hey, Karina. I was a bit curious, but calling a girl by 'kun'..."
 
 *「なぁカリーナ。少し気になってたんだが、女の子を君付けで呼ぶのは」*
 
-Oh, I'm a guy.
+"Ah, I’m a boy."
 
 *「あ、ボク男です」*
 
-"...... Oh. Well, what the heck. I know it was Carina anyway, but if you don't like it, let me know. I'll at least shelter you."
+"…Oh. Well, you know, it’s probably Karina’s doing, but if you ever feel uncomfortable, just let me know. I can hide you, at least."
 
 *「……おう。その、なんだ。どうせカリーナの仕業なんだろうが、嫌になったら言ってくれ。匿うくらいはするから」*
 
 &nbsp;
 
-With a single word from Mr. Dear, Braid senior instantly made a judgment on the situation.
+Blade-senpai made a quick judgment of the situation with Dia-kun's words.
 
 *ディア君の一言で瞬時に状況判断を行ったブレイド先輩。*
 
-What the heck, like I'm the root of all evil.
+What the heck, it’s like I’m the root of all evil.
 
 *なんだよぅ、私が諸悪の根源みたいに。*
 
@@ -152,67 +152,67 @@ What the heck, like I'm the root of all evil.
 
 &nbsp;
 
-Anyway, Dia's registration as an adventurer was completed in no time.
+Anyway, Dia-kun's adventurer registration was completed in no time.
 
 *ともあれ、ディア君の冒険者登録はあっという間に済んだ。*
 
-He had proper identification and could pay the registration fee, so he got an F from the start.
+He had a proper ID and was able to pay the registration fee, so he started off as an F-rank.
 
 *ちゃんとした身分証を持っていたし、登録料も払えたので最初からＦランクだ。*
 
-I spoke to the receptionist to get the party together as it were.
+I decided to talk to the receptionist about forming a party right away.
 
 *このままパーティーを組んでしまおうと受付嬢さんに話しかける。*
 
 &nbsp;
 
-What would you like to name your party?"
+"What will the party name be?"
 
 *「パーティー名は何になさいますか？」*
 
-'Oooh. ...... Dear, do you have anything good?"
+"Oh, right... Dia-kun, do you have any good ideas?"
 
 *「おおっと。……ディア君、なんかいいのある？」*
 
-Yes?"　Yes, that's right. How about "fakers," which means mainly peddlers? It means peddler."
+"Um? Well, since we’ll mainly be doing merchant work, how about 'Fakers'? It means traveling merchants."
 
 *「ええ？　そうですね。行商をメインでするということで、フェイカーズなんてどうでしょうか。行商人という意味です」*
 
-"Oh, that looks good. I'll go with Fakers."
+"Oh, that sounds good. Then let's go with 'Fakers.'"
 
 *「お、よさげじゃん。じゃあフェイカーズで」*
 
-I'll go and take care of it. Then I will go through the formalities.
+"Understood. I will take care of the paperwork."
 
 *「かしこまりました。では手続きをしてきますね」*
 
 &nbsp;
 
-And when the receptionist leaves, Mr. Dear quietly overhears me.
+As the receptionist walked away, Dia-kun quietly whispered in my ear.
 
 *と、受付嬢さんが離れたところでディア君がそっと私に耳打ちする。*
 
 &nbsp;
 
-Faker also means 'deceiver. I thought it would be perfect for my sister Karina, who has a dark side.
+"'Faker' also means 'deceiver.' I thought it would fit perfectly with Karina-onee-san, who has a hidden side."
 
 *「フェイカーには『騙す者』という意味もありまして。まさに裏の顔のあるカリーナお姉さんにピッタリかなって」*
 
-I was like, "Seriously, you thought that far in just one second?　Wow, you're a genius. ......"
+"Seriously? You thought that much in just a moment? Amazing, are you a genius...?"
 
 *「マジかよ、さっきの一瞬でそこまで考えてたの？　すっご、天才かよ……」*
 
-I'm sorry ....... I've actually been thinking about the party name for a while."
+"…I’m sorry. I’ve actually been thinking about the party name for a while."
 
 *「……すみません。実はずっとパーティー名について考えてました」*
 
-What's that, you were looking forward to partying with me?　Cute, huh? ......"
+"What? So you were looking forward to forming a party with me? How cute..."
 
 *「なんだよそれ私とのパーティー組むの楽しみだったってか？　可愛いかよ……」*
 
 &nbsp;
 
-Thus, Dia and I formed the party "Fakers.
+Thus, Dia-kun and I formed the party 'Fakers.'
 
 *かくして、私とディア君はパーティー『フェイカーズ』を結成した。*
 
@@ -220,89 +220,89 @@ Thus, Dia and I formed the party "Fakers.
 
 &nbsp;
 
-Now, I would like to make a quick profit and promote you, Deere, to the E rank.
+Now, I want to quickly make some profit and get Dia-kun to E-rank.
 
 *さて、サクッと儲けてディア君もＥランク昇格させておきたい所存。*
 
-Lumberjacks are ...... Oh, the purchase price is gutted, it's half the price. It's bad for ...... people who are lumberjack adventurers in their day jobs, and I'm not going to go any further.
+As for lumberjacks... oh, the buyback price has dropped significantly, it's half. I feel bad for those who are actually lumberjack adventurers, so I’ll stop here.
 
 *木こりは……あ、買取価格ガッツリ下がってる、半額だ。……本業で木こり冒険者やってる人に悪いし、これ以上はやめておこう。*
 
 &nbsp;
 
-I wonder if there are any requests that would be profitable and easy for us. It would be best if it's hard for others and easy for us. Hmm?　Taking down a wild boar?
+I wonder if there are any easy requests that seem profitable. It would be best if they were difficult for others but easy for us. Hm? Wild Boar extermination?
 
 *儲かりそうで簡単な依頼ないかなー。他の人には難しくて私たちには簡単だとベストなんだけど。ん？　ワイルドボアの討伐？*
 
-I think it's a wild boar I hunted the day before yesterday or so. Let's deliver it. The part that proves the kill is the tusk, and if possible, the fur. Hmmm...hmmm.
+Is that the boar I hunted a couple of days ago? I should turn it in. The proof of extermination is the tusks, and if possible, they want the fur too. Hmm.
 
 *一昨日くらいに狩ったイノシシかな。納品しとこう。討伐証明部位は牙、可能なら毛皮の納品求む、か。ふむふむ。*
 
 &nbsp;
 
-I said, "Excuse me, I probably hunted this, can I have a look at it?"
+"Excuse me, I think I hunted this, can you take a look?"
 
 *「すみませーん、これたぶん狩ったんですけど、見てもらってもいいですか？」*
 
 &nbsp;
 
-I decided to deliver boar pelts and tusks.
+I decided to turn in the wild boar's fur and tusks.
 
 *私はイノシシの毛皮と牙を納品することにした。*
 
 &nbsp;
 
-'Yes yes yes ...... ah, yes. Definitely wild boar tusks and fur. ......The stripping is messy and there's a lot of meat on it, but there's no noticeable damage to the fur and it's fresh and recent. ...... Well, if you include the delivery of the fur, the reward is two large silver coins. ...... Let's see. That's one large silver coin per party, right?"
+"Yes, yes... Ah, yes. This is definitely a wild boar's tusk and fur. …The skinning is rough, and there’s a lot of meat left on it, but there are no noticeable wounds on the fur, and it seems fresh... um, including the fur, the reward will be two large silver coins... so, for the party, that’s one large silver coin each?"
 
 *「はいはい……あ、はい。間違いなくワイルドボアの牙と毛皮ですね。……剥ぎ取りは雑でお肉がいっぱいついてますが毛皮に目立った傷はなく、鮮度的にも最近のもの……えーっと、毛皮の納品を含めると報酬が大銀貨２枚で……えっと。パーティー的に一人当たり大銀貨１枚になりますねぇ？」*
 
-Oh, so maybe?"
+"Oh, could it be?"
 
 *「あ、じゃあもしかして？」*
 
 &nbsp;
 
-As I recall, if you earn one silver coin in a month, you will be promoted to rank E.
+If I earn one silver coin in a month, I can rank up to E-rank.
 
 *確か一か月で銀貨１枚稼げばＥランク昇格である。*
 
 &nbsp;
 
-Yes. Well, in the meantime, I can rank up Deere's rank, but would you like to ......?　I wouldn't recommend it, though, because it feels so overtly raised."
+"Yes. Well, technically, Dia-chan can rank up... would you like to? I wouldn’t recommend it since it’s quite obvious."
 
 *「はい。その、一応ディアちゃんのランクアップが可能ですが……します？　あからさまに引き上げ感があっておススメはしませんけど」*
 
 &nbsp;
 
-This is what is called power leveling of the adventurer's rank. This is not a recommended practice, however, because it only raises one's rank and makes one an adventurer with no real ability.
+Ranking up, or what is known as power leveling in adventurer ranks. It seems that nobles sometimes do this to enhance their status, but it’s not recommended as it leads to adventurers whose rank is high but lack the corresponding skills.
 
 *引き上げ、いわゆる冒険者ランクのパワーレベリングだ。箔をつけたい貴族がたまにやるそうだが、ランクだけ上がって実力を伴わない冒険者になるため推奨されない行為ではある。*
 
-And the fact is, Dear, you seem to be an aristocrat, and I was the only one who took down the beast. Yeah, it's nothing but a raise.
+And in fact, Dia-kun seems noble, and I did the extermination alone. Yeah, this is nothing but a rank up.
 
 *そして事実、ディア君は貴族っぽいし、討伐は私一人でやってた。うん、引き上げ以外のなにものでもないなコレは。*
 
 &nbsp;
 
-I'll give them the same rank as me. Well, I'm only an apprentice E rank, so it shouldn't be too much of a problem. Dia, can I?"
+"Hmm, I guess I’ll raise it to match my rank. Well, it’s just an E-rank novice, so it shouldn’t be too much of a problem. Dia-kun, is that okay?"
 
 *「うーん、私とランク揃えるってことであげとこうか。ま、所詮見習いのＥランクだしそれほど問題にはならないでしょ。ディア君、いい？」*
 
-"...... Well, I think I'll only be an adventurer with my sister Karina. Please turn it up."
+"…Well, I think I’ll only be adventuring with Karina-onee-san, so please raise it."
 
 *「……まぁ、カリーナお姉さんと一緒でしか冒険者しないと思うので。上げてください」*
 
-Congratulations on your promotion to the rank of E."
+"Understood. Congratulations on your E-rank promotion."
 
 *「かしこまりました。Ｅランク昇格おめでとうございます」*
 
 &nbsp;
 
-Thus, Dia became an E-rank adventurer just one day after registering.
+Thus, Dia-kun became an E-rank adventurer just one day after registration.
 
 *かくしてディア君は登録からわずか１日でＥランク冒険者となった。*
 
-As for whether it is the fastest record, well, I heard that it is the fastest, but it is not a noteworthy record because it is an occasional story when it is raised. Maru.
+As for whether it’s the fastest record, well, it is the fastest, but it’s a common occurrence for rank ups, so it’s not a noteworthy record. That’s that.
 
 *最速記録かどうかといえば、まぁ最速ではあるけど引き上げだとたまにある話であり特筆すべき記録でもないそうな。まる。*
 
@@ -311,4 +311,3 @@ As for whether it is the fastest record, well, I heard that it is the fastest, b
 &nbsp;
 
 &nbsp;
-

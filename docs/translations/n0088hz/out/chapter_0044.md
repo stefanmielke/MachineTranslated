@@ -1,11 +1,10 @@
-# I was told to do it. It's not my fault, right?
+# I was told to do it. I'm not in the wrong, right?
 
 ## やれって言われました。私は悪くないよねぇ？
 
-(Just barely not bad, Carina.)
+(Karina-chan, who is barely not in the wrong)
 
 *（ギリギリ悪くないカリーナちゃん）*
-
 
 ----------------
 
@@ -13,213 +12,213 @@
 
 &nbsp;
 
-Oh no, I robbed them!　Karina, you are such a bad girl!
+Well, I committed robbery! Karina-chan is such a bad girl!
 
 *いやぁ、強盗しちゃった！　カリーナちゃんってば悪い子！*
 
 &nbsp;
 
-But there is no evidence left at all, only the testimony of Gomes and others.
+But there’s not a single piece of evidence left, just the testimonies of Gomez and the others.
 
 *でも証拠は一切残ってないんだよ、ゴメス達の証言くらいで。*
 
-And since that side said it was a robbery, it should be a robbery. ......
+Besides, since they said it was a robbery, it’s fine to call it a robbery, right...?
 
 *それにあっちが強盗だって言ったんだから強盗で良いよねぇ……！*
 
 &nbsp;
 
-Rejoice, Gomez!　You're just what you wanted, little robber Karina!　I'm a cute little robber too, man!
+Rejoice, Gomez! You’ve got the robbery Karina-chan you hoped for! Even as a robber, I’m cute!
 
 *喜べゴメス！　お前の希望通りの強盗カリーナちゃんだぞ！　強盗の私も可愛いぜ！*
 
 &nbsp;
 
-'No, no, nowhere!　What the hell is going on!"
+“Not here, not anywhere! What’s going on!”
 
 *「ない、ない、どこにも！　どうなってるんだ！」*
 
 &nbsp;
 
-Gomez searches inside the warehouse, but there is no way it is there. All the stuff that was in this warehouse is in my storage space. I put it all away in an instant, myself included.
+Gomez is searching the warehouse, but there’s nothing to find. All the cargo that was in this warehouse is now in my storage space. I put everything away in an instant, including myself.
 
 *倉庫内を探すゴメスだが、あるはずもない。この倉庫にあった荷物はすべて私の収納空間の中にある。一瞬で全部仕舞ってやったのだ、私も含めて。*
 
 &nbsp;
 
-However, this robbery is such a prank that I would be happy to return it if the other party is remorseful.
+That said, this robbery is just a prank to the extent that I might consider returning it if they reflect on their actions.
 
 *とはいえ、この強盗ってばあちらが反省しているなら返してあげてもいいかなーってくらいのイタズラだ。*
 
-You're a kind-hearted girl, Carina. The bar for remorse is high, though.
+Because I’m kind-hearted Karina-chan. The bar for reflection is set pretty high, though.
 
 *心優しいカリーナちゃんだからね。反省のハードルは高めだけど。*
 
-So I secretly hide from the storage space to see if they are remorseful and listen to what they have to say. Yes, yes, a stakeout. By the way, the coordinates of the storage space are looking down on Gomez from behind. The coordinates are like this third person in the game.
+So, to check if they’re reflecting or not, I’m secretly hiding in the storage space and listening in. Yay, stakeout! By the way, the coordinates of the storage space are positioned to look down at Gomez from behind. It’s like a third-person view in a game.
 
 *なので反省してるかどうかを確認するため、こっそり収納空間から隠れて話を聞いています。いえーい張り込みー。ちなみに収納空間の座標はゴメスを後ろから見下ろす位置。ゲームで言うとこのサードパーソンな座標とした。*
 
 &nbsp;
 
-Will Gomez and the others notice the peephole, which is also optically camouflaged, a few meters above slightly to the rear?　I don't think so.
+I wonder if Gomez and the others will notice the optical camouflage peep hole a few meters behind them? I think it’s unlikely.
 
 *やや後方数メートル上の光学迷彩もしてる覗き穴にゴメス達は気付くかな？　私は無理だと思う。*
 
 &nbsp;
 
-Damn!　That's a hell of a lot of damage!"
+“Damn it! This is a huge loss!”
 
 *「くそっ！　とんでもない損害だ！」*
 
-This is going to be a problem to pay your bills, isn't it, Mr. Gomez?"
+“This is going to affect various payments, isn’t it, Lord Gomez?”
 
 *「これは諸々の支払いに支障がでそうですな、ゴメス殿？」*
 
-Wait a minute. This is a dream or something. ......"
+“Wait, wait! This must be a dream or something…”
 
 *「まて、待ってくれ。これは夢か何かだ……」*
 
-Do you think we're dreaming right now, too?　Sure looks like your cargo is disappearing, doesn't it?"
+“Are you saying we’re also dreaming right now? It certainly looks like the cargo has disappeared, doesn’t it?”
 
 *「こちらも今まさに夢を見てるとでも？　確かに荷が消えているように見えますが？」*
 
 &nbsp;
 
-I think I'm in trouble with my business partner. Oh, it's a nice feeling.
+It seems they’re having a dispute with their trading partner. Oh, how delightful.
 
 *取引相手と揉めているようだ。いやぁいい気味。*
 
 &nbsp;
 
-I'll figure it out!"　I'll figure it out!"
+“B-but I’ll manage! I’ll figure something out!”
 
 *「だ、だが、なんとかする！　なんとかするから！」*
 
-You said, "...... No, thank you. Frankly, I don't think that was a person. We don't want to get involved over here."
+“...No, that’s fine. To be honest, I don’t think that was human. We don’t want to get involved.”
 
 *「……いえ、結構。正直、あれは人ではないと思います。こちらは関与したくない」*
 
-What about?　Not a person?　What are you talking about?"
+“Huh? Not human? What are you talking about?”
 
 *「は？　人ではない？　何を言ってるんだ」*
 
-The other day, a slave trader from Solacidore was captured. And none of those who testified to their crimes would say what caused them to turn themselves in, stubbornly saying, 'I swore to God I couldn't say.'"
+“The other day, the slave trader from Sorashidore was captured. And not a single one of those who testified about that crime mentioned the reason for their stubborn refusal to confess, saying ‘I swore to God, so I can’t say.’”
 
 *「先日、ソラシドーレの奴隷商が捕縛されました。そして、その罪を証言をした者は誰一人として『神に誓ったから言えない』と頑なに自首した要因を口にしなかったとか」*
 
 &nbsp;
 
-Ah. They got that kind of feeling?
+Ah, so that’s how they ended up?
 
 *あー。あいつらそういう感じになったんだ？*
 
-OK, I'm satisfied.
+Not bad, it seems the intimidation worked quite well. Okay, I’m satisfied.
 
 *中々やるじゃん、よほど脅しが効いたみたいだね。ＯＫ、私は満足じゃ。*
 
 &nbsp;
 
-I like the idea of making Gomez and the other pirates suffer the same thing after this...oh, but God would get bored with one pattern.
+It would be nice to have Gomez and his pirate crew experience the same fate later, but if it’s too predictable, even the gods might get bored.
 
 *ゴメス君達海賊もこの後同じ目に遭わせてやるってのもいいなー、あ、でもワンパターンだと神様も飽きちゃうか。*
 
-I mean, he seems to be connected to the lords in the first place, so I can't really charge him with anything if I get him to confess. Let's think of something else.
+Besides, it seems they’re connected to the lord, so even if I make them confess, it might not lead to significant punishment. I’ll think of something else.
 
 *っていうか、そもそも領主とつながってるっぽいし白状させたところで大した罪にはできないか。別のを考えよう。*
 
 &nbsp;
 
-And this is from the other side of the coin, the other day the Alchemy Kingdom was destroyed.
+“And this is information from another source, but the Alchemy Kingdom was destroyed the other day.”
 
 *「そしてこれは別の方面の情報ですが、先日錬金王国が壊滅しました」*
 
-"...... destroyed!　The Alchemy Kingdom!　No, but, what does that have to do with anything now?"
+“...Destroyed!? The Alchemy Kingdom!? No, but what does that have to do with anything right now?”
 
 *「……壊滅！？　錬金王国が！？　いや、しかし、そ、それが今何の関係が？」*
 
-The god of chaos has touched the wrath of God. Do you know what this means?"
+“The Chaos God has apparently incurred the wrath of the gods. Do you understand what this means?”
 
 *「混沌神が、神の怒りに触れたそうです。これがどういうことかお分りか？」*
 
-What is it?"　God's wrath?　What do you mean?"
+“Huh? The wrath of the gods? What are you talking about?”
 
 *「は？　神の怒り？　どういうことだって？」*
 
-'It's possible that the god who destroyed the alchemical kingdom is in this world right now. ...... If that woman is God, then you have just picked a fight with the very God."
+“The god who destroyed the Alchemy Kingdom might currently be in this world. ...If that woman is a god, then you’ve just picked a fight with a god.”
 
 *「錬金王国を壊滅させた神が、今この世界に居るという可能性があるんですよ。……もしあの女性が神であるなら、あなたはまさに神に喧嘩を売ってしまったんだ」*
 
-You can ...... find proof of such a thing.
+“N-no... there’s no evidence for that...”
 
 *「な……な……、そんな証拠は」*
 
 &nbsp;
 
-Gomez is aghast.
+Gomez looks stunned.
 
 *愕然とするゴメス。*
 
-Uh, yeah. I see. If you ask me, the merchant over here may be right. Or rather, it is quite close to the current situation.
+Ah, I see. When you put it that way, the merchant’s words might actually hold some truth. In fact, it’s quite close to the current situation.
 
 *あー、うん。なるほど。言われてみればこっちの商人の言うことは当たっているかもしれない。というかかなり現状に近い。*
 
-He's a good merchant, isn't he? He seems to be involved in some nefarious activities, so I'll keep an eye on him.
+Not a bad merchant after all. There’s a vibe that suggests he’s involved in some shady business, so I’ll keep an eye on him.
 
 *中々優秀な商人じゃないか。悪事に加担してるっぽい雰囲気あるし、目を付けとこう。*
 
-It's marking as spatial magic coordinates.
+Marking him as a coordinate for spatial magic.
 
 *空間魔法の座標としてマーキングだ。*
 
 &nbsp;
 
-'This situation, the cargo that the golem carries for hours, was shown to disappear in an instant. Isn't this the proof?"
+“This situation shows that the golem transported cargo over several hours, only for it to be instantly erased. Isn’t this evidence?”
 
 *「この状況、ゴーレムが数時間かけて運ぶ荷物を一瞬で消して見せた。これこそ証拠では？」*
 
-Ggghh ......!"
+“Guh...!”
 
 *「ぐっ……！」*
 
-They said, "Can you please not bring this to us anymore? We'll pay you the penalty for the ongoing business, and we'll cut you off.
+“Please don’t bring any more business to us. We’ll pay the penalty for the ongoing project, and that’ll be the end of our relationship.”
 
 *「もうウチに話を持ってこないでくれますか。進行中の事業についての違約金はこちらから払います、それで縁切りだ」*
 
-Wait, wait, Hans!
+“W-wait, Hans!”
 
 *「ちょ、ま、待ってくれハンス！」*
 
-I'm sorry, Mr. Gomez, I'll pay you. But we don't want to get involved in this!
+“Sorry, Lord Gomez, I’ll pay you the money. But I don’t want to get involved!”
 
 *「悪いなゴメス殿、金は払ってやる。が、こちらは巻き込まれたくないのでね！」*
 
 &nbsp;
 
-With that, the merchant left Gomez to flee the warehouse.
+Saying that, the merchant left the warehouse, escaping from Gomez.
 
 *そう言って商人はゴメスを置いて倉庫から逃げるように出て行った。*
 
-Gomez and his crew left behind.
+Left behind were Gomez and his subordinates.
 
 *取り残されたゴメスとその手下たち。*
 
 &nbsp;
 
-"O ...... parent ......"
+“O... boss...”
 
 *「お……親分……」*
 
-We, how can we ......!"
+“What should we do...!”
 
 *「俺ら、どうしたら……！」*
 
-Shut up!　What god?　If there's a God, he's on our side too!"
+“Shut up! What’s this about gods! If there are gods, they’re on our side too!”
 
 *「う、うるせぇ！　何が神だ！　神ならこっちにだってついてる！」*
 
 &nbsp;
 
-Oh?　God is with you?　That's an interesting point you're making, Mr. Gomez.
+Oh? So you say the gods are on your side? That’s an interesting thing to say, Gomez.
 
 *ほう？　神様がついているとな？　コレは興味深いことを言い出したぞゴメス君。*
 
@@ -227,7 +226,7 @@ Oh?　God is with you?　That's an interesting point you're making, Mr. Gomez.
 
 &nbsp;
 
-"The divine weapon 'Poseidon' is!　With this, we'll be absolutely safe on the sea, we'll 'stock up'!"
+“The divine artifact ‘Poseidon’! With this, we’ll be absolutely safe on the sea, and we’ll go for ‘procurement’!!”
 
 *「神器『ポセイドン』がな！！　これがあれば海の上なら絶対安全だ、『仕入れ』を行うぞ！！」*
 
@@ -235,17 +234,17 @@ Oh?　God is with you?　That's an interesting point you're making, Mr. Gomez.
 
 &nbsp;
 
-Seriously, Lucky!　I found it...a divine instrument!
+No way, lucky me! I’ve found a divine artifact!!
 
 *まじかよ、ラッキー！　見つけちゃったぜ神器！！*
 
 &nbsp;
 
-Ah, but that one.
+Ah, but there’s that.
 
 *あー、でもあれだな。*
 
-If this is for peaceful use and you really need it to keep this town going, I'll let you off the hook. ...... No, you don't have to have it, Mr. Gomez. Let's rob it. If you need it, give it to someone else.
+If this is for peaceful use and absolutely necessary for maintaining this town, I might let it slide... No, it’s not like Gomez needs to have it. I’ll just rob it. If it’s needed, I can just give it to someone else.
 
 *もしこれが平和利用で、この町の維持にどうしても必要っていうなら見逃してやらないでも……いや、別にゴメス君が持ってる必要はないな。強盗しちゃお。必要なら他の奴にくれてやればいいんだよな。*
 
@@ -253,7 +252,7 @@ If this is for peaceful use and you really need it to keep this town going, I'll
 
 &nbsp;
 
-After all, I'm a robber now!　Yes, yes, yes!　I'll do whatever I want with a perfect alibi!
+After all, I’m a robber now! Yay! I’ll do whatever I want with a perfect alibi!
 
 *なにせ今の私は強盗様だからねぇ！　いえーい！　完璧なアリバイと共に好き勝手しちゃうぞー！*
 
@@ -261,53 +260,53 @@ After all, I'm a robber now!　Yes, yes, yes!　I'll do whatever I want with a p
 
 &nbsp;
 
-Gomez and the others began to move somewhere. The coordinates of the current storage space are attached to Gomez, so it automatically takes the form of a tail. Spatial magic is all-powerful, right?
+Gomez and the others started moving somewhere. The current coordinates of the storage space are attached to Gomez, so I’ll automatically follow him. Spatial magic is quite versatile, isn’t it?
 
 *ゴメス達はどこかへ移動しはじめた。現在の収納空間の座標はゴメスにくっ付いているので、自動的に尾行する形になる。空間魔法は万能ですよ？*
 
-They said something about being on the ocean, so I guess they'll eventually head for the boat, but first they appear to be heading for a base on land. Shall we rob that one too, or maybe just let them swim once?　Kukuku.
+Since they mentioned the sea, they’ll probably head to a ship eventually, but it looks like they’re heading to a base on land first. Should I rob that too, or maybe let them swim for a bit? Hehehe.
 
 *海の上とか言ってたから最終的には船に向かうんだろうけど、その前に陸地にある拠点に向かう模様。そっちも強盗してやろうか、いや一旦泳がせておくかな？　ククク。*
 
 &nbsp;
 
-I wonder what the contents of the warehouse were that we recovered. It's in a wooden box, so I haven't checked it yet.
+“Oh, by the way, I wonder what was inside the cargo I collected from the warehouse. I haven’t checked yet since it’s all packed in wooden boxes.”
 
 *「あ、そういや回収した倉庫の中身って何だったんだろ。木箱の中に入ってるからまだ確認してないんだよねぇ」*
 
 &nbsp;
 
-The crates and Gomes' cargo, which were moved intact into the storage space.
+The wooden boxes that I moved directly into my storage space, Gomez’s cargo.
 
 *収納空間の中にごっそりそのまま移動させた木箱、ゴメスの荷達。*
 
-What's Gomez's is mine and what's mine is mine. Now, what's in the box?
+What’s Gomez’s is mine, and what’s mine is also mine. Now then, what’s inside the boxes?
 
 *ゴメスのものは私のモノ、私のものも私のモノ。さーて、箱の中身はなんじゃろなっ？*
 
-I decided to quickly (casually, using spatial magic) pull out the bottom box of a nearby pile of boxes at random and check its contents.
+I casually pulled out the bottom box from the pile of boxes nearby (using spatial magic discreetly) to check its contents.
 
 *私は適当に近くにあった箱山の、一番下の箱をするっと（さりげなく空間魔法を使って）抜き出して、中身を確認してみることにした。*
 
 &nbsp;
 
-Now, meet the pirate treasure!　Pucker up the wooden box: ......
+Now, let’s meet the pirate’s treasure! Open the wooden box...
 
 *さぁ、海賊のお宝とご対面！　木箱パカーッ……*
 
 &nbsp;
 
-...... wow."
+“...Wow.”
 
 *「……うわぁ」*
 
 &nbsp;
 
-My eyes locked with what was inside.
+I made eye contact with what was inside.
 
 *中身と目が合ってしまった。*
 
-There he was, a cute little kid with pointy ears - yes, I didn't expect an elf child, did I?
+There was a cute child with pointy ears—wait, could it be an elf child?
 
 *そこに居たのは、耳のとんがったかわいらしい子供――うん、まさか、エルフの子供とはね？*
 
@@ -316,4 +315,3 @@ There he was, a cute little kid with pointy ears - yes, I didn't expect an elf c
 &nbsp;
 
 &nbsp;
-

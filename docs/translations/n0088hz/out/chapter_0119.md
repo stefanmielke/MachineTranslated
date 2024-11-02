@@ -1,4 +1,4 @@
-# Huh? (From A rank adventurer Masilo's point of view)
+# What the!? (A-Rank Adventurer Mashiro's Perspective)
 
 ## なっ！？（Ａランク冒険者マシロ視点）
 
@@ -8,355 +8,354 @@
 
 &nbsp;
 
-Do you need help?　If you can help me, help me, damn it!
+You need help, huh!? If you can help, then go ahead and try, damn it!
 
 *助けが要るか、だと！？　助けられるなら助けてみろってんだ畜生！*
 
-When I looked, I saw that the guy was probably coming toward me with his eyes closed, making rustling noises unprotected. What are you doing in a situation like this?
+Looking over, that guy was, unbelievably, coming towards me with his eyes closed, making noise carelessly. What the hell are you doing in a situation like this!?
 
 *見ると、そいつはあろうことか目をつぶりながら、無防備にガサガサと音を立ててこちらにやってきていた。こんな状況で何してんだ！？*
 
 &nbsp;
 
-Hey, run away!　What the hell are you doing over here?　It's the Black Mantis!
+"Hey, run away!! Why are you coming this way!? It's a Black Mantis!"
 
 *「おい、に、逃げろよ！！　何こっち来てんだッ！　ブラックマンティスだ！」*
 
 &nbsp;
 
-With a click, the Black Mantis turned toward him. He pounced on it without a chance for me to stop him, as if he was going to finish off the weaker one.
+With a creak, the Black Mantis turned its attention towards him. Was it planning to take out the weaker one first? Before I could stop it, it lunged.
 
 *ギチッ、とブラックマンティスがそいつの方を向いた。弱い方から仕留める気か、と、私が止める隙もなく飛び掛かっていく。*
 
-Oh shit - and the next thing I knew, the unthinkable happened.
+In the next moment, just as I thought, "Oh no," something unimaginable happened.
 
 *しまった――と思った次の瞬間、想像だにしない事が起きた。*
 
 &nbsp;
 
-The scythe of death, which cuts off even a dwarf's sword, shattered when it hit the man's head.
+The death scythe that could even cut through a dwarf's sword hit that guy's head and shattered.
 
 *ドワーフの剣すら切り落とす死の鎌が、そいつの頭に当たって砕けたのだ。*
 
 &nbsp;
 
-What?　Black Mantis's scythe shattered!　What kind of stone head is that!"
+"What the!? The Black Mantis's scythe shattered!? What kind of hard head does he have!?"
 
 *「なっ！？　ブラックマンティスの鎌が砕けた！？　どんな石頭だよ！？」*
 
-'Oh, shoot. Oh well, no more ...... air cutter!"
+"Ah, damn it. Well, whatever... Air Cutter!"
 
 *「あー、しまった。まぁいいやもう……エアカッター！」*
 
 &nbsp;
 
-And the next moment. With a murmur, as if bored, the head of Black Mantis was detached from the body.
+And in the next moment. As if bored, the head of the Black Mantis was severed from its body along with a mutter.
 
 *そして次の瞬間。まるで飽きたかのようにつぶやきと共にブラックマンティスの頭が胴体と切り離された。*
 
-What about ......?　What happened?
+...Huh? What just happened?
 
 *……は？　何が起きた？*
 
 &nbsp;
 
-The Black Mantis, perhaps not yet realizing that its head has been removed, wields its scythe blindly. It has tremendous vitality. But it doesn't hit the stone. A few branches of the surrounding trees are cut off, but that is all.
+Not yet understanding that its head was gone, the Black Mantis wildly swung its scythe. Such tremendous vitality. However, it couldn't hit. Some branches around were slightly cut, but that was it.
 
 *頭が取れたことがまだ理解できていないのか、ブラックマンティスは鎌をやみくもに振り回す。すさまじい生命力だ。が、流石に当たらない。周囲の木の枝が若干切り落とされたがそれだけ。*
 
-Slightly, the Black Mantis slows down - a long, thin, mithril-colored tentacle appears from within it and attacks the woman.
+The Black Mantis's movements slowed down slightly—and from within, a long, slender tentacle of mithril color appeared and lunged at the woman.
 
 *若干、ブラックマンティスの動きが鈍くなり――その中からミスリル色の細長い触手が現れ、女に襲い掛かる。*
 
-Mithril Devil. It is confirmed to have emerged from the Black Mantis just before its death, which once rampaged for a week, and is said to be the main body of the Black Mantis.
+Mithril Devil. It has been confirmed to have emerged from the Black Mantis just before its death after rampaging for a week, and it is said to be the true body of the Black Mantis.
 
 *ミスリルデビル。かつて１週間暴れた死亡直前のブラックマンティスの中から出てきたと確認されており、ブラックマンティスの本体だとも言われている。*
 
 &nbsp;
 
-Air cutter!　Air cutter!"
+"Air Cutter! Air Cutter!"
 
 *「エアカッター！　エアカッター！」*
 
-Nah, wow. ...... mithril-devil-shredded."
+"W-w-whoa... The Mithril Devil is being chopped up!"
 
 *「な、な、す、すげぇ……ミスリルデビルが細切れに」*
 
 &nbsp;
 
-Quickly, even a dwarven sword could only wound it, and the thing, which had no record of being defeated, was shredded by the woman's magic.
+Quickly, even a dwarf's sword could barely scratch it, and that thing, which had no record of being defeated, was being sliced to pieces by the woman's magic.
 
 *素早く、ドワーフの剣ですら傷をつけるのが精一杯で、討伐された記録の一切ないそいつが、女の魔法で細切れになっていった。*
 
 &nbsp;
 
-...... strong.
+...Strong.
 
 *……強い。*
 
-I felt my throat hitched. I had reached A rank solo, but this guy in front of me was even better than that.
+I could feel my throat gulping. I, who reached A-Rank solo, found that this guy in front of me was even stronger.
 
 *ごくり、と自分の喉が鳴るのが分かった。ソロでＡランクに到達したアタシだが、目の前のこいつはそれ以上だ。*
 
 &nbsp;
 
-Hey, are you all right?"
+"Are you okay?"
 
 *「や、大丈夫だった？」*
 
-Oh. ...... What are you?　I've never seen you before.
+"Yeah... Who are you? I've never seen your face before."
 
 *「おう。……アンタ何モンだ？　初めて見る顔だが」*
 
 &nbsp;
 
-And here I opened my eyes for the first time.
+It was then that I finally opened my eyes.
 
 *と、ここで初めて目を開いた。*
 
 &nbsp;
 
-I'm a beast!　And it's a mofu-mofu type!　He's so cute!
+"Beastman!! And a fluffy one! So cute!!"
 
 *「じゅ、獣人だー！！　しかもモフモフ系！　かわいい！！」*
 
-What?　You're a beast, you're a ......, huh?　Cute, huh?
+"Huh? Just because I'm a beastman... Wait, what? Cute, you say?"
 
 *「あ？　テメ、獣人だからって……え、え？　かわ、可愛いだとぉ？」*
 
 &nbsp;
 
-For a moment, I thought he was one of those people who would say that beastmen are barbaric, but the emotion in his tone of voice and in his gaze was very favorable. What a guy. I haven't been called cute since I was a kid.
+For a moment, I thought this person might be one of those who would say beastmen are savage, but the tone of voice and the emotions in her gaze were very positive. What is this? I haven't been called cute since I was a kid.
 
 *一瞬だけ、獣人は野蛮だとか言い出す輩かと思ったが、その声色と視線に込められた感情は非常に好意的なものだった。なんだこいつ。可愛いとか言われたのガキの頃以来だ。*
 
-...... Most guys look at me and say I'm scary or that I'm going to eat them. ......
+...Most people look at me and say I'm scary or that I look like I'll eat them...
 
 *……大概の奴はアタシを見て怖いとか、食われそうだとか言うんだが……*
 
 &nbsp;
 
-No, if they are this strong, surely even dragons must be "cute".
+No, if she's this strong, then surely even a dragon would be called "cute."
 
 *いや、こんだけ強いならきっとドラゴンですら「可愛い」になるに違いない。*
 
 &nbsp;
 
-Then they exchange self-introductions.
+After that, we exchanged introductions.
 
 *その後、自己紹介を交わす。*
 
-This guy seems to be named Karina. I don't know if that's her real name. I have never heard of her. It is hard to believe that such a strong person is unknown, but I will not pry into it.
+It seems her name is Karina. I don't know if that's her real name. I've never heard that name before. It's hard to believe that such a strong person is nameless, but I won't pry.
 
 *こいつはカリーナというらしい。本名かは分からない。聞いたことない名前だ。これほどの強者が無名だとは考えにくいが、詮索はしないでおく。*
 
 &nbsp;
 
-...... No, I was trying not to pry, but he said something I didn't want to hear.
+...No, I thought I wouldn't pry, but she started saying something I couldn't ignore.
 
 *……いや、詮索しないでおこうと思ったんだが、聞き捨てならないことを言い出した。*
 
-Don't know the rules of the lower level or the door number?　What do you mean!
+She doesn't know the rules of the lower levels or the door guards? What does that mean!?
 
 *下層のルールや、扉番を知らない？　どういうことだ！？*
 
 &nbsp;
 
-It's not right. What is a doorkeeper anyway?　There was no such thing on the road I came from."
+"N-no, wait. What is a door guard?! There wasn't anything like that on the path I came from!"
 
 *「ち、ちがくて。その、そもそも扉番って何？！　私が来た道にはそんなのなかったしっ」*
 
-What?　How is that possible, you came from a new route?
+"What!? There's no way that's true. Did you come from a new route!?"
 
 *「はぁ！？　んなわけあるか、新ルートから来たってぇのか！？」*
 
-"Oh, it was blocked with beehives. ...... There was no door. ......
+"Ah, there was a beehive blocking the way... There wasn't a door either..."
 
 *「あー、ハチの巣で塞がってたもんなぁ……扉もなかったし……」*
 
-Tell me more about it!
+"What the hell? Explain that in detail!!"
 
 *「なんだそれ詳しく話せ！！」*
 
-Hahii ......"
+"Y-yes..."
 
 *「はひぃ……」*
 
 &nbsp;
 
-We've really found a new route!　That's a big deal!
+Did I really discover a new route!? This is a big deal!!
 
 *マジで新ルート発見だぁ！？　一大事じゃねぇか！！*
 
 &nbsp;
 
-There was a path to be precise, but there was a room that was a beehive.
+"To be precise, there was a path, but there was a room filled with beehives."
 
 *「正確には道はあったんだけど、ハチの巣になってる部屋があってぇ」*
 
-Wait a minute, there's a map. ...... where is it?"
+"Wait a minute, I have a map. ...Where about is it?"
 
 *「ちょっとまて地図がある。……どのあたりだ？」*
 
-I think it's somewhere around here. What's that?　There was a road here, but it's not written down.
+"Maybe around here. Huh? There was a path here, but it's not marked."
 
 *「ここらへんかな。あれ？　ここ道があったんだけど書いてないね」*
 
 &nbsp;
 
-And, as if out of the blue, he poked and prodded at the margin. It's an unexplored area, isn't it?
+And unbelievably, she pointed to the blank part. Isn't that an unexplored area!?
 
 *と、あろうことか余白の部分をつんつんと指す。未踏領域じゃねぇか！*
 
-You mean you found a hidden passageway!
+Did she find a hidden passage!?
 
 *隠し通路を見つけたってのか！？*
 
 &nbsp;
 
-Wait a minute, Karina, this was definitely a wall.
+"Wait a minute, Karina, this should definitely have been a wall."
 
 *「ちょっとまてカリーナ、ここは間違いなく壁だったはずだ」*
 
-I think it might have opened like an automatic door when the bees went by."
+"Uh, well, now that you mention it, maybe it opened like an automatic door when the bees passed through."
 
 *「え、うーん、言われてみればハチが通る時に自動ドアみたく開いてたかも」*
 
-I'm glad you're here, but I don't know if I'm allowed to blurt it out like that.　That's a lot of money."
+"Such conditions... Well, that's helpful, but is it okay to talk so freely? This is quite valuable information."
 
 *「そんな条件が……って、コッチは助かるけど、そうベラベラ喋っていいのか？　かなり金になる情報だぞ」*
 
-I'm sorry for the trouble I've caused you, so let's just call it a report from Mr. Masiello."
+"I caused you trouble, so let's say it's a report from Mashiro-san."
 
 *「迷惑かけちゃったし、マシロさんからの報告ってことにしといて」*
 
-I'm not sure what's going on here. I don't know what's going on, but if he's good enough to defeat Black Mantis without difficulty, I have to agree with him. ......
+"Okay, got it. Damn, I don't get it, but if you have the strength to easily defeat a Black Mantis, I have no choice but to accept it..."
 
 *「オーケー分かった。ったく、ワケわかんねぇが、ブラックマンティスを難なく倒す程の実力があるなら納得せざるを得ないな……」*
 
 &nbsp;
 
-I am sure Kalina can hunt any demon she wants and has no money problems at all.
+Karina must be able to hunt any monster at will and is probably not in any financial trouble.
 
 *カリーナはきっとどんな魔物も狩り放題で、金には一切困っていないのだろう。*
 
 &nbsp;
 
-I'm so sorry. Are you hurt?　I'll fix it for free."
+"I'm really sorry. Are you hurt? I'll heal you for free."
 
 *「ほんっとごめんね。怪我してない？　タダで治すよ」*
 
-I'm all right, but my equipment is a bit out of whack. I need to replenish my darts.
+"I'm fine, but my equipment got a bit messed up. I need to restock my darts too."
 
 *「アタシゃ大丈夫だが、装備が少しイカれちまったな。ダーツも補充しねぇと」*
 
-I'll fix it and restock. How many darts do I need?"
+"Okay, I'll fix and restock them. How many darts do you need?"
 
 *「おっけ、直して補充するね。ダーツは何本あればいいの？」*
 
-An?"　You're not going to buy it?　Well, then I'll take about 50 bottles as an apology."
+"Huh? Are you going to buy them for me? Well then, as an apology, how about 50 of them?"
 
 *「あん？　買ってくれんのか？　そうだなぁ、なら詫びで５０本くらい貰おうか」*
 
 &nbsp;
 
-It was a lighthearted remark, but I thought that if the guy wasn't hurting for money anyway, he'd at least say that--
+I thought it was a light joke since she didn't seem to be in financial trouble, but—
 
 *どうせ金に困ってない奴ならそれくらい言っても、と思った軽口だったが――*
 
 &nbsp;
 
-Yes.
+"Here you go."
 
 *「はいよ」*
 
 &nbsp;
 
-Karina, out of the blue, put 50 darts in front of my eyes.
+Karina, unbelievably, pulled out 50 of my darts right in front of me.
 
 *カリーナは、あろうことか目の前にザラザラと、アタシのダーツを５０本出しやがった。*
 
-What about ......?　They're custom-made darts that cost one medium silver coin per dart.
+...Huh? Those darts cost one silver coin each for a custom-made one.
 
 *……は？　特注品で１本で中銀貨１枚するダーツだぞ。*
 
-Why do you have 50 of the same thing?　I only had 5 of these to begin with!
+Why does she have 50 of the same thing!? I only had 5 of these to begin with!?
 
 *なんで同じものを５０本も持ってるんだ！？　アタシそもそもコレ５本しか持ってなかったんだが！？*
 
 &nbsp;
 
-I'm thinking, "Where's ......?　Where did you just get that from?"
+"...Huh? Hey, wait, where did you pull those from?"
 
 *「……は？　おいまて今どこから出した？」*
 
-"Well, the armor is at ....... Oh, it's cut off here. I'll fix it. Sorry?"
+"Um, the armor... Ah, this part is torn. I'll fix it. Sorry!"
 
 *「えーっと、鎧は……あー、ここ切れちゃってるね。直しとくね。ごめんね？」*
 
-"Oh, no, that's a scar from another time--oh, that's a scar from my armor that's gone!"
+"Eh, no, that was a wound from another time—wait, what, the wound on the armor disappeared!?"
 
 *「え、いやそれは別の時についた傷――って、あれ、鎧の傷が消えた！？」*
 
 &nbsp;
 
-I felt Carina touch me in a familiar way, and the scratches on my armor disappeared.
+When Karina casually touched it, the wound on the armor vanished.
 
 *カリーナが馴れ馴れしく触ってきたと思ったら、鎧の傷が消えた。*
 
-What the hell is going on!　I thought it was time for a new one!
+What the hell is going on!? I was just thinking it was time to replace it!?
 
 *どうなってんだ！？　そろそろ買い替え時かと思ってたんだぞ！？*
 
 &nbsp;
 
-Ahh!　If you look closely, you can see a scar on my chest!　I'll fix it!"
+"Ah! Now that I look closely, there's a wound on your chest too!? I'll heal it!"
 
 *「ああっ！　よく見たら胸元に傷も！？　治すね！」*
 
-"Hey, that's an old wound.　Whoa! What the hell is wrong with you?　The scar's gone!
+"W-wait, that's an old scar—whoa!? W-what the hell are you!? The wound disappeared!"
 
 *「おまっ、それは古傷――うぉ！？　な、な、なんだよお前ぇ！？　傷消えたんだが！」*
 
 &nbsp;
 
-Even Atashi's old wound on his chest disappeared.
+The old scar on my chest vanished as well.
 
 *胸元にあったアタシの古傷まで消え失せた。*
 
-High-level recovery magic!　This guy was a priest!　Oh, but now...
+High-level healing magic!? Is she a priest!? Wait, but now—
 
 *高位回復魔法！？　神官だったのかコイツ！？　あれ、でも今*
 
 &nbsp;
 
-I'm glad you're pleased."
+"I'm glad to see you happy."
 
 *「喜んでもらえて何よりだよ」*
 
-Or it ain't money!　You fixed it on your own!
+"I-I don't have any money!? You healed me without my permission!"
 
 *「か、金ならねぇぞ！？　お前が勝手に治したんだからな！？」*
 
-I don't need it. Oh, you have a cavity, I'll fix it."
+"Yeah, I don't need it. Oh, you have a cavity too, I'll fix that."
 
 *「うんうん、要らないから。あ、虫歯もあるのね、治しとくね」*
 
-What is it?　Is it my fault?
+"W-what the hell!? Is it my fault!?"
 
 *「な、なんなんだよぉ！？　アタシが悪いのか！？」*
 
 &nbsp;
 
-I don't know, I don't know, I don't know!
+I don't get it, I don't get it!!
 
 *ワケわかんねぇ、ワケわかんねえ！！*
 
-You've given me all this, what do you want me to do?
+She's done so much for me, what the hell does she want from me!?
 
 *こんなに施してきやがって、アタシに何しろって言うんだコラぁー！？*
 
 &nbsp;
 
 &nbsp;
-

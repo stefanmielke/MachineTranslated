@@ -1,170 +1,170 @@
-# I knew.
+# I knew it.
 
 ## 知ってた。
 
 &nbsp;
 
-"So, what does Captain Gome want from me?　Is he going to buy me another drink?"
+"So, what does Captain Gome want with me? Are you going to treat me to some drinks again?"
 
 *「で、ゴメ船長さんが私に何の用だって？　またお酒を御馳走してくれるっての？」*
 
-It's Gomez!　Now you're cutting too much!"
+"It's Gomez! This time you went too far!"
 
 *「ゴメスだっての！　今度は削りすぎだ！」*
 
 &nbsp;
 
-We had just found a very interesting toy, a golem.
+I had just found this incredibly interesting toy called a golem.
 
 *こちとらゴーレムとかいう凄く興味深いオモチャを見つけたところだったんだぞ。*
 
-...... No, wait?　That golem looks like a golem from that Gomez trading company, doesn't it?
+...Wait a minute? That golem looks like it's from Gomez's trading company?
 
 *……いやまて？　あのゴーレム、そのゴメスの商会のゴーレムっぽいぞ？*
 
 &nbsp;
 
-That means.
+That means...
 
 *ってことはだ。*
 
 &nbsp;
 
-Next, we're going to play for that golem!　Hyuuu!　Let's get moving, you guys!　I'm sure we can win the drinking contest, and I'll give thanks to God!"
+"Next, are we betting that golem in a match!? Woo! Let's go, you guys! If it's a drinking contest, I've got this in the bag, and I'll offer my thanks to the gods!"
 
 *「次はあのゴーレムを賭けて勝負ってコト！？　ひゅう！　早く行こうぜお前ら！　飲み比べなら勝確だし、神様に感謝を捧げちゃう！」*
 
-Yeah?　No, I don't know such ...... details."
+"Huh? No, well, I don't really know the details..."
 
 *「ええ？　いや、そんな……詳しくは知らないが」*
 
-"Come on, this way. Follow me!"
+"This way. Follow me!"
 
 *「こ、こっちだ。ついてこい！」*
 
 &nbsp;
 
-The pirate's underlings are upset but guide me. The destination seems to be a warehouse.
+The pirates' underlings, though flustered, guided me. It seemed we were headed to a warehouse.
 
 *動揺しつつも私を案内する海賊の下っ端たち。行先はどうやら倉庫のようだ。*
 
 &nbsp;
 
-"In."
+"Get in."
 
 *「入れ」*
 
-Oh, yeah."
+"Sure thing."
 
 *「おうよ」*
 
 &nbsp;
 
-I was told to enter, so I went in with an open mind, and was suddenly hit with a thud from a piece of wood. Of course, I was invincible with spatial magic, so it was the wood that shattered.
+As I was told to enter, I boldly walked in, only to be suddenly slammed with a piece of wood. Of course, I was in an invincible state thanks to space magic, so the wood shattered instead.
 
 *入れと言われたので堂々と入ると、いきなりガツンと木材を叩きつけられた。もちろん私はこんなこともあろうかと空間魔法で無敵状態のため、砕けたのは木材の方である。*
 
 &nbsp;
 
-No, indeed, I'm not so stupid as to seriously take such a blatant invitation in an unprotected state, am I?
+No way, I'm not stupid enough to fall for such an obvious trap while unguarded, right?
 
 *いや、さすがに本気でこんな露骨な誘いに無防備な状態で乗るほどバカじゃないよ？*
 
 &nbsp;
 
-A man is stunned with a broken piece of wood in his hand. A dozen others were waiting in the warehouse.
+A man, stunned, held the broken wood. There were also about a dozen others waiting inside the warehouse.
 
 *折れた木材を手に呆気に取られている男。他にも、十数名が倉庫の中に控えていた。*
 
-There appears to be no Gomez in a captain's cap.
+It seemed Captain Gomez wasn't there.
 
 *船長帽を被ったゴメスは居ないようだ。*
 
 &nbsp;
 
-"Onya?　What kind of welcome is this?　I don't think God would be happy with me if I did this.
+"Oh? What kind of welcome is this? I don't think the gods would stay silent about this kind of treatment."
 
 *「おんや？　これはどういう歓迎かなぁ？　こんなことしちゃぁ神様も黙っちゃいないと思うんだけどなぁ」*
 
-Damn it, ......, get involved!"
+"Y-you... get him!"
 
 *「てめっ……か、かかれぇ！」*
 
 &nbsp;
 
-God, look at it - well, I guess it's too one-sided to be that interesting. Just in case.
+God, please bear witness—well, I don't think this will be very entertaining since it's so one-sided. Just saying.
 
 *神様、ご照覧あれ――ま、一方的すぎてそれほど面白い事にはならないと思うけど。一応ね。*
 
 &nbsp;
 
-I told you not to get involved with me.
+"Seriously, I told you not to mess with me."
 
 *「ったく、私に絡むなって言ったのになぁ」*
 
 &nbsp;
 
-As I punch and kick, I send my men flying and hitting the wall, and then I hold them in place. I take away their freedom.
+As I punched and kicked, I sent the underlings flying against the wall, pinning them down. I took away their freedom.
 
 *私が殴ったり蹴ったりするのに合わせて手下どもをぐぉんっと飛ばして壁に当て、そのまま体を固定。自由を奪う。*
 
 &nbsp;
 
-What the hell are you?
+"W-what are you!?"
 
 *「なっ、何モンだテメェ！？」*
 
-You poor victims! Oh, my God, that's so scary. What are you going to do by bringing a weak maiden into a place like this?　Echi-Skeebe, your crotch is half rapier."
+"I'm your poor victim! Eek, so scary. What do you plan to do with a fragile maiden like me in a place like this? Naughty, naughty, your groin is half rapier."
 
 *「君たちの哀れな被害者でーす。きゃーこわーい。こんなところにか弱い乙女を連れ込んで何するつもりよー？　えっちー、すけべー、お前の股間ハーフレイピアー」*
 
 &nbsp;
 
-I kicked another one of the guys in the face as I said it. It hits the ceiling and sticks. Oops, don't worry, there's not actually a hole in the ceiling. Just a little application of spatial magic.
+While saying this, I kicked another man away. He hit the ceiling and got stuck. Oh, don't worry, there isn't actually a hole in the ceiling. It's just a little application of space magic.
 
 *言いながら男をまた一人蹴り飛ばしてやった。天井にぶつかり、突き刺さる。おっと大丈夫、実際には天井の穴は開いてないぞ。空間魔法のちょっとした応用だ。*
 
 &nbsp;
 
-Damn, that's not what I'm talking about!　This guy's a monster!"
+"Damn it, this isn't what we agreed on! This guy's a monster!"
 
 *「くそっ、話が違う！　バケモンだこいつ！」*
 
-We're all going at once!　There's no turning back now!"
+"Everyone, attack all at once! We can't back down now!"
 
 *「ぜ、全員で一斉にかかるんだ！　もう後には退けねえ！」*
 
-Oh, oh!"
+"Y-yeah!"
 
 *「お、おう！」*
 
 &nbsp;
 
-I was slightly slumped in a cross guard position and just took the leap like a rock. I was in a cross guard stance, slightly downcast, and simply took the leap like a rock.
+All of them jumped at me simultaneously. I took a cross guard stance, slightly looking down, and simply absorbed their assault like a rock.
 
 *と全員が私にむかって同時にとびかかってきた。私はクロスガードの構えでややうつむき、そのとびかかりを岩のようにただ受け止める。*
 
 &nbsp;
 
-Hahhhhhh ！！！！"
+"Haaahhhhh!!!!"
 
 *「ハァーーーーーーッ！！！！」*
 
-""Heeeaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa!""
+"「「「Hyaaaahhh!？」」」
 
 *「「「ひぇあああああッ！？」」」*
 
 &nbsp;
 
-It doesn't work!　And as soon as they forcefully let down their guards, I blew them all up with a whack!
+It worked! As I forcefully released my guard, I sent them all flying with a bang!
 
 *効ッかーーーーーんッ！　と強引にガードを解くと同時に、バチィンと全員纏めて吹っ飛ばしてやった！*
 
-I've always wanted to try this!　The one that blows you away with his spirit!　Damn, it's like an action movie!　It's so much fun!
+I wanted to try this! The move where you blow them away with sheer will! Wow, it feels like an action movie! So much fun!
 
 *やってみたかったんだよコレ！　気合で吹き飛ばす奴！　くぅー、アクション映画みたい！　めっちゃ楽しい！*
 
-Now, how will the next enemy--
+Now, how should I deal with the next enemy—
 
 *さぁ、次の敵はどうやって――*
 
@@ -172,39 +172,39 @@ Now, how will the next enemy--
 
 &nbsp;
 
-I guess we've all been cleaned out now.
+"Wait, did I just take out everyone with that?"
 
 *「って、今ので全員片付けちまったかぁー」*
 
 &nbsp;
 
-They told you to jump on them all. All the guys who beat him were hardened and even though they were conscious, they were immobilized and there was no comeback.
+They did say to attack all at once. I had pinned down everyone I defeated, and even if they were conscious, they couldn't move, so there was no recovery.
 
 *全員でとびかかれって言ってたもんな。倒した奴全員固めてて意識はあっても動けない状態にしてるし復帰もない。*
 
 &nbsp;
 
-Now, what do we do from here?
+Now, what should I do from here?
 
 *さて、こっからどうしたものかね。*
 
-At any rate, it might not be a bad idea to take the contents of the warehouse from one side to the other as a consolation prize, since I am not supposed to be in this town at the moment.
+For now, it might not be a bad idea to take everything in the warehouse as compensation, especially since I shouldn't even be in this town right now.
 
 *とりあえず慰謝料代わりに片っ端から倉庫の中身を頂いていくというのも悪くないかもしれない、なにせ今私はこの町に居ないはずなのだから。*
 
 &nbsp;
 
-Karina's eyewitness testimony?　Oh no, it's just someone else's likeness.
+Karina's eyewitness account? Nah, just a case of mistaken identity.
 
 *カリーナちゃんの目撃証言？　いやぁ、よく似た他人の空似さ。*
 
-After all, the real Karina Shonin is returning to Solacidore at once because she doesn't want to get tangled up with pirates!　I know this is an afterthought, but...
+After all, the real Karina Shonin is rushing back to Sorashidore to avoid getting tangled up with pirates! Just a retroactive setting, though.
 
 *なんたって、本物のカリーナ・ショーニンちゃんは海賊に絡まれたくなくて一目散にソラシドーレへ帰還中なのでね！　後付け設定だけど。*
 
 &nbsp;
 
-But flow-wise, this is where the boss comes in. ......
+However, it's typical for the boss to show up at this point...
 
 *しかし流れ的にはここでボスの登場、ってのが定番なんだが……*
 
@@ -214,17 +214,17 @@ But flow-wise, this is where the boss comes in. ......
 
 &nbsp;
 
-What does this mean?　Hey you, you stole from my warehouse!
+"What is the meaning of this! You there, you broke into my warehouse!?"
 
 *「これはどういうことだ！　おい貴様、俺の倉庫に盗みに入ったな！？」*
 
 &nbsp;
 
-Oops?　A familiar-looking captain with an eye patch. He is accompanied by a merchant-looking fellow and two pirate-like minions.
+Oh? An eyepatch-wearing captain I recognize. Accompanying him is a merchant-looking guy and two pirate underlings.
 
 *おっと？　見覚えのある眼帯船長。連れは商人っぽいのが１人と、海賊な手下が２人。*
 
-Looks like the boss came through properly. Yay God!　There's more to see!
+It seems the boss has finally arrived. Yay, God! This adds more excitement!
 
 *どうやらちゃんとボスが来てくれたようだ。やったね神様！　見所が増えるよ！*
 
@@ -233,4 +233,3 @@ Looks like the boss came through properly. Yay God!　There's more to see!
 &nbsp;
 
 &nbsp;
-

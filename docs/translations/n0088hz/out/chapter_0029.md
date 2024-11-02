@@ -1,4 +1,4 @@
-# The Story of Adult Shopping, cont.
+# A Grown-Up Shopping Story - Continuation
 
 ## オトナな買い物の話・つづき
 
@@ -6,187 +6,187 @@
 
 &nbsp;
 
-I, Karina-chan. I asked one of my seniors, "I want to buy a slave, what's it like?" I was confronted with a terrible reality!
+I’m Karina-chan. When I asked my senior, "I want to buy a slave, but what's it like?" I was confronted with a terrible reality!
 
 *私カリーナちゃん。先輩に「奴隷を買いたいけどどんな感じ？」と聞いたら酷い現実を突きつけられちゃった！*
 
-But then, what does it mean to say, "If you're a soloist, having a slave is an option"?
+But on top of that, he said, "For someone solo like you, having a slave is an option," what does that mean?
 
 *でも、その上で「ソロのお前なら奴隷を持つのは選択肢としてはアリだ」なんて、どういうことかしら？*
 
-What is he trying to do by shaking my heart?　Oh, Blade-senpai!
+He’s shaking my heart, what does he want me to do! Blade-senpai, seriously!
 
 *私の心を揺さぶって、何しようっていうのかしら！　ブレイド先輩ったらもう！*
 
 &nbsp;
 
-Well, so much for the jokes.
+Well, enough of the jokes.
 
 *まぁ、冗談はこれくらいにしておいて。*
 
 &nbsp;
 
-I thought you were against owning slaves, as the story goes."
+"I thought you were against having a slave based on the flow of the conversation."
 
 *「話の流れ的に奴隷を持つの反対してたと思ったんすけど」*
 
-I'm talking about for the purpose of eroticism or as a lapdog. If you want them to work as slaves, that's different.
+"It's about the purpose. If it's for erotic or pet purposes, that's one thing. If you’re going to make them work properly as a slave, that's different."
 
 *「エロ目的、愛玩目的ならって話だよ。ちゃんと奴隷として働かせるなら別だ」*
 
-Why do you say I'm here for pornography?
+"W-What proof do you have that I’m doing it for erotic purposes!?"
 
 *「な、何故私がエロ目的だって証拠だよ！？」*
 
 &nbsp;
 
-We are girls!　Neat and clean!
+I’m a girl, you know!? Pure and innocent!
 
 *こちとら女の子ですよ！？　清楚清楚！*
 
 &nbsp;
 
-You're not going to mend your ways now, Carina. You had the same look in your eyes as Shildon did back then."
+"Shut up, it’s pointless to cover up now, Karina. You had the same look in your eyes as Shildon back then."
 
 *「うっせ、今更取り繕っても無駄だぞカリーナ。お前、あの時のシルドンと同じ目をしてたぞ」*
 
-I knew at first glance that I had to threaten them hard or they would cheat me. I knew at a glance that I had to threaten him hard or he would cheat me.
+"Yeah, I could tell right away that if I didn’t threaten you hard, you’d be deceived."
 
 *「だねぇ。これはキツく脅しておかないと騙されるなって一目で分かったよ」*
 
-'...... I didn't know I had eyes that easy to understand.'
+"…Did I really have such an obvious look?"
 
 *「……俺、あんなに分かりやすい目してたのか」*
 
 &nbsp;
 
-I can't even hear a peep out of him!
+I can't even argue back!
 
 *ぐうの音も出ねぇや！*
 
 &nbsp;
 
-And if you think about it, the only decent men and women who would work in a whorehouse for pornography would be the ones who stay there.　The ones that are left are the ones that look good and are definitely out of line.
+"Well, if you think about it, it’s clear that decent people who can work for erotic purposes end up in brothels, right? The ones who look good and are still around are definitely the bad ones."
 
 *「それによく考えりゃ分かることなんだが、そもそもエロ目的で働けるマトモな奴は男女共に娼館行きだろ？　見た目良くて残ってんのは間違いなくアウトな連中だぞ」*
 
-I'm sure it was ......!"
+"Th-That’s true!?"
 
 *「た……確かに！？」*
 
 &nbsp;
 
-Slaves have no right of veto.
+Slaves have no right to refuse.
 
 *奴隷に拒否権はない。*
 
-And as far as I'm concerned, there are no slaves left because the traders in that area are fishing them out.
+And since those in that line of work are fishing for them, there’s no way decent slaves are left.
 
 *そしてその方面の業者が漁っていくので、碌な奴隷が残ってるはずもない。*
 
-It would be a miracle if there were. Or maybe illegal slaves who would be caught if they possessed it, or so they say.
+If there are, it’s a miracle. Or they’re illegal slaves that would get you caught if you owned them.
 
 *あれば奇跡。あるいは所持してたら捕まる違法奴隷とか曰く付きだろう。*
 
 &nbsp;
 
-On the other hand, you can still get a better one if you are a regular slave.
+Conversely, you might still get a better deal with regular slaves.
 
 *逆に普通の奴隷ならまだマシなのが手に入る。*
 
-Naturally, the best ones sell first, so if you are late, you will only get losers, but the fact that there are some Ataris in the mix is still good.
+Of course, the good ones sell out quickly, so if you’re late, you’ll only get the bad ones, but since there are still some good ones mixed in, it’s still better.
 
 *当然良いのから売れてくから出遅れるとハズレばかりなものの、アタリが紛れてる分まだ良いと言える。*
 
 &nbsp;
 
-In. If you're going to treat me as a companion or a servant, I'd rather be a slave. Especially since you seem to have so many secrets."
+"So, if you treat them as companions or servants, slaves are better. Especially since you seem to have a lot of secrets."
 
 *「で。仲間や下男下女として扱うなら奴隷の方がいい。特にお前は秘密が多そうだしな」*
 
-Oh, I knew you'd notice.
+"Oh, you noticed after all?"
 
 *「あ、やっぱ気付いちゃいます？」*
 
 &nbsp;
 
-I'm not hiding it too aggressively.
+I’m not actively hiding them or anything.
 
 *あまり積極的に隠してるわけでもないんですけど。*
 
 &nbsp;
 
-Well, I'm not going to pry. That's what adventurers do.
+"Well, I won’t pry. That’s what being an adventurer is about."
 
 *「ま、詮索はしねぇよ。それが冒険者だしな」*
 
-Actually, I'm God's messenger.
+"Actually, I’m a messenger of the gods."
 
 *「実は私ぃ、神様の使いでぇ」*
 
-I told you I ain't gonna pry!　I'd rather you didn't!　Don't drag me into this!
+"I told you not to pry! Don’t say that!? Are you trying to drag me in!?"
 
 *「詮索しねぇって言っただろ！　むしろ言うなよ！？　巻き込む気か！？」*
 
 &nbsp;
 
-Damn. I was hoping you could help me collect sacred artifacts or something.
+Tch. I thought I could get help with collecting divine artifacts or something.
 
 *チッ。神器集めとか手伝ってもらえるかと思ったのに。*
 
 &nbsp;
 
-'Let's get back to the story. Slaves are cursed in many ways. One of them is that of strict secrecy. If he or she decides to reveal a secret, his or her body, including his or her voice, will cease to move."
+"Let’s get back to the topic. Slaves are bound by various curses. One of them is to keep secrets. If they try to reveal a secret, their body, including their voice, won’t move."
 
 *「話を戻すぞ。奴隷は色々と呪いが掛けられている。その中の一つに秘密厳守ってのがあるんだ。本人が秘密をバラそうと思ったら声を含めて身体が動かなくなる」*
 
-"Oh, so I can just tell them to keep their mouths shut because it's a secret, and they'll be safe?"
+"Oh, so if I say, 'Keep it a secret,' I can relax, right?"
 
 *「へぇー、『秘密だから黙ってろ』って言っとけば安心ってわけですね？」*
 
-"That's what I mean. Merchants and such have lots of secrets, and they're useful workers."
+"That’s right. Merchants often have many secrets, so they’re useful as workers."
 
 *「そう言う事。商人とかは秘密も多いし、働き手として有用だぞ」*
 
 &nbsp;
 
-Certainly employees who keep secrets would be useful.
+It’s true that employees who keep secrets are convenient.
 
 *確かに秘密を守る従業員は便利だろう。*
 
 &nbsp;
 
-But remember that most of the slaves who are sold have fallen into slavery because of bad behavior or debt. The slaves are walking wallets.
+"However, keep in mind that most slaves sold are those who fell into slavery due to wrongdoing or debt. The idea that 'my slave will be fine' is a naive thought; from the slave's perspective, you’re just a walking wallet."
 
 *「ただ、前提として売られてる奴隷の大半は、悪さをしたか借金が原因で奴隷落ちしたんだって覚えとけ。『自分の奴隷だけは大丈夫』なんて甘い考えは奴隷側からしてみりゃ歩く財布だ」*
 
-So ...... useful, but not to be trusted or relied upon."
+"…They are useful, but it’s better not to trust or rely on them."
 
 *「……有用ではあるけど、信用や信頼はしない方がいいんですね」*
 
-There are three things that are important. Give orders on the premise that they will do something bad so that they cannot do something bad. To order them to do nothing but what you order them to do. And not to release them from their slavery."
+"The important things are three: to command them in a way that prevents wrongdoing, to assume they won’t do any work other than what you command, and to never free them from their slave status."
 
 *「大事なのは３つ。悪さをする前提で悪さができないように命令すること。命令したこと以外の仕事は何もしないと思って命令すること。そして奴隷身分から解放しないことだ」*
 
 &nbsp;
 
-I see, management is important, he said.
+I see, management is crucial.
 
 *なるほど、管理が重要、と。*
 
 &nbsp;
 
-"Hmm?　If that's the case, why don't you just order the slaves not to misbehave from the beginning, so there won't be any masters who will be ruined by having their sins blamed on the slaves?"
+"Huh? Then if you command the slave from the start not to do anything wrong, wouldn’t that prevent the master from being ruined by being blamed for the slave's wrongdoing?"
 
 *「ん？　なら最初から奴隷に『悪さをするな』って命令しておけば奴隷に罪を擦り付けられて破滅するご主人様は居なくなるんじゃ」*
 
-If you don't think slavery is bad, don't do it."
+"If the slave doesn’t think it’s wrong, they can still do it."
 
 *「奴隷が悪さだと思ってないならできちまうな」*
 
 &nbsp;
 
-The subjectivity of slaves, huh? I guess this doesn't stop those who think they 'deserve to steal' as they breathe. It's a pain in the ass. ......
+The slave's perspective, huh. Those who think "stealing is natural" can’t be stopped like this. What a hassle…!
 
 *奴隷の主観かぁ。息をするように『窃盗して当然』って考えてるやつはこれじゃ止められないんだな。面倒臭ぇ……！*
 
@@ -194,93 +194,93 @@ The subjectivity of slaves, huh? I guess this doesn't stop those who think they 
 
 &nbsp;
 
-"So, I told you that most slaves fell into slavery because of bad behavior or debt, but there are some who didn't. Those are the ones that are bad ...... that are wacky in other ways, but if you're buying, this is the place to aim for."
+"So, while I mentioned that most slaves fell into slavery due to wrongdoing or debt, there are some who didn’t. Those are problematic for different reasons… but if you’re buying, that’s where you should aim."
 
 *「で、大半の奴隷は悪さか借金で奴隷落ちしたって話したが、そうじゃないヤツもいる。そういうのは別の意味でワケアリなのがヤバい……んだが、お前が買うなら狙い目はここだろうな」*
 
-What?　Why why?"
+"Oh? Why is that?"
 
 *「へぇ？　なぜなぜ？」*
 
-If you're more of a wacko, it wouldn't bother you a bit, would it?　It depends on what it is."
+"If you have more issues than them, you might not care as much, depending on the content."
 
 *「お前の方がもっとワケアリなら、多少は気にならないだろ？　内容にもよるけど」*
 
-You're a genius, senpai."
+"Are you a genius, senpai?"
 
 *「天才かよ先輩」*
 
 &nbsp;
 
-I'm convinced. Hmph, that's Blade Sensei for you.
+I’m convinced. Huh, as expected of Blade-senpai.
 
 *納得してしまったよ。フッ、さすがブレイド先輩だぜ。*
 
 &nbsp;
 
-Good!　Then let's go see that wacky slave right away!"
+"Alright! Then let’s go see that problematic slave right away!!"
 
 *「よし！　それじゃ早速そのワケアリ奴隷を見に行きましょう！！」*
 
-You can't do that."
+"That’s impossible."
 
 *「それは無理だぞ」*
 
-What?　Why, do I need an appointment or something?"
+"What!? Why not, is a reservation needed?"
 
 *「ええ！？　なんでですか、予約が必要とか？」*
 
-No, there was only one slave trade in this town."
+"No, there was only one slave trader in this town."
 
 *「いや、この町の奴隷商ってひとつしかなかったんだよな」*
 
-Ah."
+"Oh."
 
 *「あっ」*
 
 &nbsp;
 
-There was only one. If so, now there is none.
+There was only one. If that’s the case, then now there are none.
 
 *ひとつしかなかった。であれば今は、ひとつもなくなった、である。*
 
-Who in the world crushed the slave trade ...... I'm the cause of it, damn it!
+Who on earth destroyed the slave trader… It’s my fault, damn it!
 
 *一体だれが奴隷商を潰したんだ……私が原因だよ畜生！*
 
 &nbsp;
 
-I was already completely in the process of buying slaves!"
+"We were completely on track to buy a slave, weren’t we!!"
 
 *「もう完全に奴隷買う流れだったじゃないっすかぁ！！」*
 
-You don't have the money to buy them in the first place. Slaves are basically made out of gold."
+"Besides, you don’t have the money to buy one. Slaves basically cost gold coins."
 
 *「そもそも買う金ないだろ。奴隷って基本金貨からだぞ」*
 
 &nbsp;
 
-Slaves don't disappear and disappear, but they can't be purchased, at least not until a new slaver is found. They can't contract for slave crests or anything like that.
+Slaves don’t just disappear, but at least until a new slave trader is established, purchasing is impossible. Apparently, they can’t make contracts for slave marks.
 
 *奴隷が消えて無くなるわけじゃないけど、少なくとも新しい奴隷商が決まるまでは購入は不可能。奴隷紋の契約とかができないらしい。*
 
-He said that the merchants' guild must be having a hard time right now. The slavers' guild must have a lot of interest in the slavers' business.
+The merchant guild is probably in chaos right now. It’s quite a lucrative business, after all, being a slave trader.
 
 *今頃商人ギルドの方でもてんやわんやだろうとの事。結構な利権だろうしね、奴隷商。*
 
 &nbsp;
 
-Then I'm going to the lumberjacks to get hungry and make some money, so please help me out!"
+"Then let’s go chop wood for some money and take it out on my frustration!"
 
 *「じゃあ腹いせと金稼ぎに木こり行くんで手伝ってくださいよぉ！」*
 
-They said they're lowering the purchase price there too. "They said they're lowering the purchase price, too, because of storage space. We've cut down too many trees."
+"They said they’d lower the buying price for that too, due to storage space issues. They’ve definitely cut too much."
 
 *「そっちも買取価格下げるって言ってたぞ。保管所の空きの都合で。さすがに伐りすぎたなぁ」*
 
 &nbsp;
 
-What's that? I didn't hear that!　You're just stepping on my toes, mooo!
+What? I didn’t hear that! This is just a series of misfortunes, ugh!!
 
 *何それ聞いてない！　踏んだり蹴ったりじゃん、もー！！*
 
@@ -289,4 +289,3 @@ What's that? I didn't hear that!　You're just stepping on my toes, mooo!
 &nbsp;
 
 &nbsp;
-

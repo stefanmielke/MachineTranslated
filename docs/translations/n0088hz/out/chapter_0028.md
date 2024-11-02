@@ -1,4 +1,4 @@
-# The Story of Adult Shopping
+# A Story About Adult Shopping
 
 ## オトナな買い物の話
 
@@ -6,99 +6,99 @@
 
 &nbsp;
 
-I'm Karina. I just came back from talking to God!
+I’m Karina-chan. I just came back from talking to the god!
 
 *私カリーナちゃん。神様とお話して帰ってきたところなの！*
 
-God was still eh ...... or rather a pervert!
+The god was as lewd as ever... or rather, a total pervert!
 
 *神様は相変わらずえっち……というかド変態だったわ！*
 
 &nbsp;
 
-......, I mean, I'm totally God's dependent.
+“...I mean, I’ve completely become a servant of the god, haven’t I?”
 
 *「……ていうか、なんかすっかり神様の眷属だよなぁ私」*
 
-"Colleagues?　What is it now? We are children of God from the moment we are born.
+“Fellow? What are you talking about? We’ve been children of the god since the moment we were born.”
 
 *「御同輩？　何をいまさら。私たちは生まれた瞬間から神の子ですよ」*
 
 &nbsp;
 
-Siesta smiles at me. Cute.
+Siesta smiled sweetly. So cute.
 
 *にこりと微笑むシエスタ。可愛い。*
 
 &nbsp;
 
-...... have you been there the whole time?"
+“...Have you been there the whole time?”
 
 *「……ずっとそこに居たの？」*
 
-'You were talking to God, weren't you? It's only a few seconds over here. ...... Oh, and that book?"
+“You were talking to the god, right? It was only a few seconds here... Oh, what’s that book?”
 
 *「神様とお話しされていたんですね。こちらでは数秒程度です……おや、その本は？」*
 
-Hmm?"　Oh, it's a catalog God gave me."
+“Hm? Oh, it’s a catalog I got from the god.”
 
 *「ん？　ああ、神様から貰ったカタログだね」*
 
 &nbsp;
 
-I had the SP catalog in my hand.
+In my hand was an SP catalog.
 
 *私の手にはＳＰカタログが握られていた。*
 
 &nbsp;
 
-'Do siestas get these things too?　A reward from God."
+“Did you get something like this too, Siesta? A reward from the god.”
 
 *「シエスタもこういうの貰ってるの？　神様からのご褒美」*
 
-I've always been paid in kind, so I've never received anything like this in a catalog. I've always been paid in kind, so I've never received anything in a catalog like this.
+“A reward, huh? I always receive the actual items, so I’ve never gotten something like this catalog.”
 
 *「ご褒美ですか。私はいつも現物支給ですから、こういうカタログでもらったことはありませんね」*
 
-"In-kind: ......"
+“Actual items...”
 
 *「現物支給……」*
 
-'It's mainly sweets. Are they not in that catalog?"
+“Mainly sweets. Isn’t that catalog listing them?”
 
 *「主にスイーツです。そのカタログには載ってませんか？」*
 
-Oh, it's on there!　Wow, there's a lot of stuff in there."
+“Oh, it is! Wow, there are so many kinds.”
 
 *「あ、載ってる！　へぇー、色々あるなぁ」*
 
 &nbsp;
 
-The menu listed a wide range of convenience store sweets that I have seen in Japan, as well as sweets made with otherworldly fruits.
+The menu included a wide range of sweets, from convenience store treats I had seen in Japan to sweets made with fruits from another world.
 
 *日本で見かけた事のあるコンビニスイーツはもちろん、異世界フルーツを使っているスイーツまで幅広いメニューが記載されていた。*
 
 &nbsp;
 
-"Looks good normally, but the cheapest is 50 sp, the most expensive is 300 sp. sounds like a hassle in its own way. ......"
+“They look delicious, but the cheap ones are 50 SP, and the expensive ones are 300 SP. It seems like it would be quite a hassle...”
 
 *「普通においしそうなんだけど、安いのは５０ＳＰ、高いのは３００ＳＰ。それなりに面倒くさそうだな……」*
 
-But you have to be a god to get them. Otherworldly Sweets."
+“But you can’t get them without the god. Otherworldly sweets.”
 
 *「でも神様じゃないと手に入れられないですから。異世界スイーツ」*
 
-'Indeed. This is fascinating. ......"
+“True. This is appealing...”
 
 *「確かに。これは魅力的だなぁ……」*
 
 &nbsp;
 
-I wonder what four of them would taste like, like one divine sweet.
+I wonder what kind of taste the sweets that cost four of them for one divine artifact would have.
 
 *４つで神器１つ分のスイーツとかどんな味がするんだろう。*
 
-Flipping through a catalog like that, one item caught my eye.
+As I flipped through the catalog, my eyes caught on a certain item.
 
 *そんな風にパラパラとカタログをめくっていると、とある品に目が留まる。*
 
@@ -106,7 +106,7 @@ Flipping through a catalog like that, one item caught my eye.
 
 &nbsp;
 
--- "Menstrual skip medicine (1 dose): 50 SP"
+――“Menstrual Skip Drug (1 use): 50 SP”
 
 *――『生理スキップ薬（１回分）：５０ＳＰ』*
 
@@ -114,37 +114,37 @@ Flipping through a catalog like that, one item caught my eye.
 
 &nbsp;
 
-The description said it was a reward for skipping one monthly thing. 'If you use it in the middle of your period, your period at that time will end immediately. Recommended to use just before! The description said.
+Looking at the description, it was a reward that allowed you to skip that monthly occurrence once. It said, “If used during menstruation, it will end immediately. It is recommended to use it just before!”
 
 *説明文を見ると、月一のアレを１回スキップできるご褒美だった。『生理の途中で使った場合はその時の生理が即座に終了します。直前の使用を推奨！』とのこと。*
 
 &nbsp;
 
-...... I see, I was a woman now, wasn't I?
+...I see, I’m a woman right now.
 
 *……そっかぁ、今は女だったなぁ私。*
 
-I mean, if it's in the catalog, that means I'm menstruating.
+I mean, the fact that it’s in the catalog means I have a period.
 
 *っていうかカタログに載ってるってことは、生理あるんだ私。*
 
-I don't know if I could possibly use these things.
+I might end up using something like this.
 
 *こういうのも、もしかしたら使うかもわからんね。*
 
 &nbsp;
 
-'Does Siesta use this kind of stuff?'
+“Do you use something like this, Siesta?”
 
 *「シエスタはこういうの使ってるの？」*
 
-I'm a succubus, so I can control my menstruation and other things. I'm a succubus, so I can control my menstruation and other things at will."
+“Oh. I’m a succubus, so I can manipulate my period freely.”
 
 *「あ。私サキュバスなんで、生理とか自分で自在に操作できます」*
 
 &nbsp;
 
-I like the species characteristics!
+Being able to manipulate it is nice!
 
 *種族特性いいなぁっ！*
 
@@ -158,235 +158,235 @@ I like the species characteristics!
 
 &nbsp;
 
-Now, after my discussion with God, I knew I wanted one of the slaves.
+Well, after talking with the god, I thought I really wanted at least one slave.
 
 *さて、神様との話し合いを経て、やっぱり奴隷の一人でも欲しいなと思った次第。*
 
-It's a standard for otherworldly stories!　Cute slave girls and a lot of fun!　I want to do it!
+It’s a staple of otherworldly stories! I want to have fun with a cute slave girl!
 
 *異世界モノの定番だしね！　可愛い奴隷少女とくんずほぐれつ！　してぇ！*
 
 &nbsp;
 
-So I came to ask the senior braiders how I can buy slaves and how much they cost. Wow. Oseite senpai!
+So, I came to ask Blade-senpai and the others how to buy a slave and how much it would cost. Yay! Please tell me, senpai!
 
 *というわけで、どうすれば奴隷を買えるのか、いくらぐらいするのかとかをブレイド先輩達に聞きにきました。わーい。おせーて先輩！*
 
 &nbsp;
 
-Don't do it, don't do it, don't do it, slavery ain't a good thing."
+“Don’t do it, don’t do it. Slaves aren’t a good thing.”
 
 *「やめとけやめとけ、奴隷なんて良いもんじゃねーぞ」*
 
 &nbsp;
 
-A quick no-no!
+A quick rejection!
 
 *早速のダメ出し！*
 
 &nbsp;
 
-"You're breaking my dreams out of nowhere, Blade Senpai ......!"
+“You’re crushing my dreams right away, Blade-senpai...!”
 
 *「いきなり夢を折ってきますねブレイド先輩……！」*
 
-"Because, you know, they're slaves.　No one likes to be a slave.
+“Because, you know? They’re slaves. First of all, no one would willingly become a slave.”
 
 *「だってなぁ、奴隷だぞ？　まず、自分から好き好んで奴隷になるやつはいないだろ」*
 
-That's right.
+“That’s true.”
 
 *「そっすね」*
 
 &nbsp;
 
-It would have to be a very perverted person.
+Unless they’re a huge pervert, it’s an impossible story.
 
 *余程の変態でもなきゃあり得ない話だ。*
 
 &nbsp;
 
-"At that point, well, you can assume they're all trying to get out of slavery. Do you understand me so far?"
+“At that point, you can assume that everyone is trying to escape slavery. Do you understand this much?”
 
 *「その時点でまぁ全員奴隷抜けを狙ってると思っていい。ここまでは分かるか？」*
 
-I see, you're back to being a civilian.
+“Escape from slavery... I see, it’s returning to being an ordinary person.”
 
 *「奴隷抜け……なるほど、一般人への復帰っすね」*
 
 &nbsp;
 
-If I could, I would go back to being a normal person. Yeah, that's what a normal person would think. Of course.
+If possible, I want to return to being an ordinary person. Yeah, I think that normally. It’s only natural.
 
 *できるなら一般人に戻りたい。うん、普通にそう思うだろう。当然だ。*
 
 &nbsp;
 
-'At this point, slaves are not to be trusted. Some slaves work diligently to gain their masters' trust, but think of it all as an act. Never trust them. The only time you can trust them is after the reckoning is over and they have returned from being slaves to being ordinary people."
+“At this point, you can’t trust slaves. There are slaves who work hard to gain their master’s trust, but you should think of it as all acting. Never trust them. The only time you can trust them is after the settlement is done and they’ve returned to being ordinary people.”
 
 *「この時点で、奴隷は信用できない。主人の信用を得ようと真面目に働く奴隷もいるが、それは全部演技だと思え。絶対に信じるな。信用していいのは、清算が終わって奴隷から一般人に戻った後、それからだな」*
 
-What? Why?"
+“Eh, why?”
 
 *「えっ、どうして？」*
 
-Many of them change as soon as they are no longer slaves. For example, here is a story.
+“Once they’re no longer slaves, many of them change drastically. For example, there’s this story.”
 
 *「奴隷でなくなった途端に豹変するヤツが多いんだ。例えばこんな話がある」*
 
 &nbsp;
 
-~~~~~~
+～・～・～
 
 *～・～・～*
 
 &nbsp;
 
-Slave, let's get married!"
+“Slave-chan, let’s get married!”
 
 *「奴隷ちゃん、結婚しよう！」*
 
-'Glad ......!　But master. Slaves can't get married. ......"
+“I’m so happy...! But, Master, slaves can’t get married...”
 
 *「嬉しい……！　でもご主人様。奴隷は結婚できないわ……」*
 
-'Then I release you!　Now you're no longer a slave and we can get married!　Now--"
+“Then I’ll free you! Now that you’re no longer a slave, you can get married! Come on—”
 
 *「じゃあ君を解放する！　これでもう奴隷じゃないから結婚できるよ！　さぁ――」*
 
-I'm out of slavery!　I'm out of slavery, ah!　Ah, who would like to sleep with a (pee-pee-pee) bastard like you?　You're a shady guy who can't even talk unless it's to a lower-ranked person!　It was hard for me to act every time!　Abayo!　In addition, I'll take everything you've given me as a consolation prize!　I know it's in bad taste, but if I sell it, I can make a little money. Gahahahahaha!"
+“Yesss!!! I’m free from slavery! Ah, who would want to sleep with a (beep) like you! I can’t even have a decent conversation with a loser like you! It was a pain to act every time! Bye! And I’ll take everything you gave me as gifts, including the compensation! My taste is bad, but I can sell it for some money. Hahaha!”
 
 *「よっしゃあ！！！　奴隷抜けだぁああ！　あー、お前みてーな（ピーーーー）野郎、誰が好き好んで寝るかよ！　格下相手じゃねぇと碌に話も出来ねぇ陰キャがよぉ！　毎回演技すんの大変だったぜ！　アバヨ！　ついでに今までの慰謝料にプレゼントして貰ったモンは全部残さず貰ってくから！　趣味悪いけど売れば少しは金になんだろ。ギャハハハハ！」*
 
 &nbsp;
 
-~~~~~~
+～・～・～
 
 *～・～・～*
 
 &nbsp;
 
-I was cheated out of all my money, just like that.
+“That’s how I got completely scammed and lost all my money, that’s Shildon over there.”
 
 *「と言う感じで騙されて有り金全部巻き上げられたのがそこのシルドンだ」*
 
-Shildon-senpai!　Are you serious?
+“Shildon-senpai!? Seriously!?”
 
 *「シルドン先輩！？　マジっすか！？」*
 
-"Don't gouge ...... gouge ...... old wounds, Blade ......!　That'll work on me ......."
+“...Guh... Don’t dig up old wounds, Blade...! That hurts me...”
 
 *「……ぐふぅ……古傷をえぐるなブレイド……！　それは俺に効く……ッ」*
 
-I'm going to make a story about it for the rest of my life. I'll use it as a story for the rest of my life."
+“Do you have any idea how much trouble you caused me with that? I’ll make it a lifelong joke.”
 
 *「あの件でどんだけ迷惑かけたと思ってんだ。一生ネタにしてやる」*
 
 &nbsp;
 
-The experience, wow.
+A personal experience, huh, wow.
 
 *体験談かぁ、うわーい。*
 
-Incidentally, I heard that in reality, they were catfighting for a few days after being released, carefully transferring the money items to themselves as if they had ownership of them, so as not to violate the law, and legally taking all they could.
+In reality, it seems that after being freed, they pretended to be a cat for a few days and carefully transferred valuable items to themselves in a way that didn’t break the law, legally taking everything they had.
 
 *ちなみに実際は解放されて数日間は猫をかぶっていて、金目の物を法に触れないように周到に自分にも所有権があるように移し、合法的にありったけ奪っていったそうな。*
 
-Eh, egyo.
+E-evil.
 
 *え、えぐい。*
 
 &nbsp;
 
-I let him study, and he learned how to do bad things without committing crimes."
+“I wanted to study, and I learned how to commit crimes that wouldn’t be considered crimes.”
 
 *「勉強がしたい、って勉強させたら犯罪にならない悪事のやり方を学んでたなぁ」*
 
-And I treated his wounds with expensive potions, and we've been together for three years.
+“And I treated their wounds with expensive potions, and we were together for three years.”
 
 *「それに高いポーションで傷の治療もしてやって、３年も一緒にいたのになぁ」*
 
-I'm not sure how much I'm going to be able to do!　Shildon-senpai, that ...... don't you?"
+“Sekko-senpai, please stop piling on the pressure! Shildon-senpai, um... Don’t mind?”
 
 *「セッコー先輩も追い打ちやめたげてよぉ！　シルドン先輩、その……ドンマイ？」*
 
-I thought you were a pampered, neat and tidy ...... gusun."
+“I thought she was a sweet and innocent girl... *sniff*”
 
 *「甘えん坊な清楚系だと思ってたのに……ぐすん」*
 
-I'm glad Shildon's savings were enough to save us," he said. But he took all the money we saved for our wedding.
+“Well, Shildon’s savings saved me. All the savings we had for our wedding were taken, though.”
 
 *「ま、シルドンの貯蓄だけで助かったよ。結婚資金に貯めた二人の貯金、なんかは全部持ってかれてたけどなぁー」*
 
-Aaaaahhhh!"
+“Aaaaaaaah!!!”
 
 *「ああああああーーーーッ！！」*
 
 &nbsp;
 
-I didn't expect Shildon senior, who has excellent defensive skills, to take so much damage. ......
+To think that Shildon-senpai, who has excellent defense, would take this much damage...
 
 *防御力に優れたシルドン先輩がここまでダメージを負うとは……*
 
-Not physical, but psychological damage. This is terrible.
+It’s not physical damage, but mental damage. This is terrible.
 
 *物理じゃなくて精神ダメージだけど。これはひどい。*
 
 &nbsp;
 
-"Yes, look Carina ......, if you see a good looking female slave, think he's a crook ......!"
+“L-listen, Karina... If you see a good-looking female slave, think of her as a scammer...!”
 
 *「い、いいかカリーナ……見目のいい女奴隷を見たらそいつは詐欺師だと思え……！」*
 
-"......Well, Shildon senior, I'll keep that in mind! I'll keep that in mind!"
+“...Understood, Shildon-senpai. I’ll keep that in mind!”
 
 *「……うっす、シルドン先輩。肝に銘じておくっす！」*
 
 &nbsp;
 
-To the senior Shildon, salute!
+Salute to Shildon-senpai!!
 
 *シルドン先輩に、敬礼！！*
 
 &nbsp;
 
-And well, as you can see from Shildon, it's super hard to be 'adored because you think you're well-liked, and then you're hated with all your heart. If you're going to be a pet, be prepared to be betrayed.
+“As you can see from Shildon, it’s super tough to think ‘I thought I was liked and was being pampered, but I was deeply hated.’ If you’re getting a pet, be prepared for betrayal.”
 
 *「とまぁ、シルドンを見ればわかる通り『好かれていると思って可愛がってたら心底憎まれてた』ってのは超キツい。愛玩用なら裏切られる覚悟を持っておけよ」*
 
-Just leave me alone already: ......"
+“Just leave me alone...”
 
 *「もう放っといてくれ……」*
 
 &nbsp;
 
-Gusagusa and Blade senior who keeps stabbing with a knife of words. The kicking of the corpse is terrible.
+Blade-senpai keeps stabbing with the knife of words. This is brutal.
 
 *グサグサと言葉のナイフで刺し続けるブレイド先輩。死体蹴りがひどい。*
 
 &nbsp;
 
-'Ssekko senpai. Slaves have no dreams or hopes. ......"
+“Sekko-senpai. Slaves have no dreams or hopes, huh...”
 
 *「セッコー先輩。奴隷って夢も希望もないんすね……」*
 
-'Yes, Karina. Slaves cost money and have more responsibilities. It is not something to be bought casually.
+“That’s right, Karina-chan. Slaves cost money and come with responsibilities. They’re not something you buy casually.”
 
 *「そうだねカリーナちゃん。奴隷は金も掛かるし責任も増える。気軽に買うもんじゃないんだよ」*
 
 &nbsp;
 
-In addition to the purchase cost, it costs money to take care of them with food, lodging, clothes, and whatnot.
+In addition to the purchase cost, there’s food, lodging, clothes, and other expenses to take care of them.
 
 *購入費の他、飯代に宿代、服やらなんやらで面倒見るための金が掛かる。*
 
-Management responsibility also increases, and if a slave runs away and commits a crime, the master is said to be responsible.
+The management responsibility also increases, and if a slave escapes and commits a crime, the master is held responsible.
 
 *管理責任も増え、もし奴隷が逃げて犯罪を犯したら主の責任になるらしい。*
 
 &nbsp;
 
-It is said that some slaves take advantage of this to ruin masters they don't like, and then return to the slavers and wait for new buyers. What is this master mess? Scary.
+It seems there are slaves who use this to ruin masters they don’t like and return to the slave trader to wait for new buyers. What kind of master gacha is that? Scary.
 
 *これを利用して気に入らないご主人様を破滅させ、奴隷商に出戻って新たな買い手を待つという奴隷もいるらしい。なにそのご主人様ガチャ。怖っ。*
 
@@ -394,13 +394,13 @@ It is said that some slaves take advantage of this to ruin masters they don't li
 
 &nbsp;
 
-Well, even so, having a slave is an option if you're a soloist."
+“Well, even so, for you as a solo, having a slave is an option.”
 
 *「ま、そうはいってもソロのお前なら奴隷を持つのは選択肢としてはアリだ」*
 
 &nbsp;
 
-Oh?　The story's changing, isn't it?
+Oh? The flow of the conversation is changing, isn’t it?
 
 *お？　話の流れが変わってきたな？*
 
@@ -408,17 +408,14 @@ Oh?　The story's changing, isn't it?
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(Since I started under Llano 2022, I'm providing the URL below to narrow down the search to "Onikage Spanner" and then to the point where you can tweet your vote. Please copy and paste it if you like (until 1/8).
+(Since the “Suki Rano 2022” has started, I’m providing the URL for narrowing down “Oni Kage Supana” and until I tweet my vote. Feel free to copy and paste it below (until 1/8))
 
 *（好きラノ2022下が始まったので、『鬼影スパナ』で絞り込んであと投票ツイートするまでのところまでのＵＲＬをサービスして以下においてます。よろしければコピペしてどうぞ（1/8まで）*
 
-(https://lightnovel.jp/best/2022_07-12/tw/?q=%E9%AC%BC%E5%BD%B1%E3%82%B9%E3%83%91%E3%83%8A )
+https://lightnovel.jp/best/2022_07-12/tw/?q=%E9%AC%BC%E5%BD%B1%E3%82%B9%E3%83%91%E3%83%8A)
 
 *https://lightnovel.jp/best/2022_07-12/tw/?q=%E9%AC%BC%E5%BD%B1%E3%82%B9%E3%83%91%E3%83%8A　）*
-

@@ -1,24 +1,24 @@
-# Gomen ne! illustrations
+# Sorry! ●Illustration Included
 
 ## ごめーんね！●挿絵アリ
 
 &nbsp;
 
-Ya, everything all right?"
+"Hey, are you okay?"
 
 *「や、大丈夫だった？」*
 
-Oh. ...... What are you?　I've never seen you before.
+"Yeah... Who are you? I've never seen your face before."
 
 *「おう。……アンタ何モンだ？　初めて見る顔だが」*
 
 &nbsp;
 
-I'll open my eyes and say hello.
+It's a bit strange to keep my eyes closed, so I'll open them and greet her.
 
 *ずっと目をつぶったままというのも何だ、目を開けて挨拶しよう。*
 
-Pachitna: ......
+Pachitto...
 
 *ぱちっとな……*
 
@@ -28,81 +28,81 @@ Pachitna: ......
 
 &nbsp;
 
-I'm a beast!　And it's a mofu-mofu type!　He's so cute!
+"Wow, a beastman!! And a fluffy one! So cute!!"
 
 *「じゅ、獣人だー！！　しかもモフモフ系！　かわいい！！」*
 
-What?　You're a beast, you're a ......, huh?　Cute, huh?
+"Huh? Just because I'm a beastman... Wait, what? Cute?"
 
 *「あ？　テメ、獣人だからって……え、え？　かわ、可愛いだとぉ？」*
 
 &nbsp;
 
-There she was, with silvery white wolf ears, a tail, and even a muzzle (the shape of a dog's mouth and nose sticking out), a full-bodied, fluffy wolf sister. She had the dignity and charm of a silver wolf. She was probably a head taller than me.
+There stood a wolf lady with silver wolf ears, a tail, and a muzzle (the protruding shape of a dog's mouth and nose), all covered in fluff. She exuded a dignified yet adorable presence worthy of being called a silver wolf. She was probably a head taller than me.
 
 *そこには、白銀の狼耳に尻尾、マズル（犬特有の口と鼻が突き出た形状のこと）まであり、全身モフモフな狼お姉さんだった。銀狼と呼ぶに相応しい凛々しさと愛らしさを感じる。背は私より頭一つ高いだろう。*
 
 &nbsp;
 
-No, you know. I thought you were wearing mofo furry armor.
+No, I thought she was wearing a fluffy fur armor.
 
 *いや、その。モフモフした毛皮の鎧着てるのかとおもってたんだよね。*
 
-I've seen the beastman itself in Harumikazuchi-sama, but it was just ears and a tail. This one is a full-body, fluffy, chemoner's delight. Wow, amazing.
+I've seen beastmen before, like Harumikazuchi, but she only had ears and a tail. This one is a full-on fluffy delight for furry fans. Wow, incredible.
 
 *獣人自体はハルミカヅチお姉様で見たことあったけど、耳と尻尾だけだったじゃん。こっちは全身モフモフのケモナー歓喜のやつじゃん。はぁー、すっご。*
 
 &nbsp;
 
-Oops, excuse me. You introduced yourself. I'm Karina. I'm from ...... and I'm a humble wizard."
+"Oh, sorry. That was a self-introduction. I'm Karina... um, just a humble magician."
 
 *「おっと失礼。自己紹介だったね。私はカリーナ。……えーっと、しがない魔法使いだよ」*
 
-I'm Masilo. I'm Masilo the Silver White, and I'm a bit of a well-known figure in this town. ...... Oh, what?　Well, you don't mean any harm, do you ......?　Thanks for your help.
+"I'm Mashiro. In this town, I'm somewhat of a known figure as the silver Mashiro... Ah, what? You don't have any ill intentions, do you...? Thanks for saving me."
 
 *「アタシはマシロ。白銀のマシロっていえばこの町ではちょっと名の知れた存在なんだぜ……あー、なんだ？　その、悪意はねぇんだな……？　助けてくれてあんがとよ」*
 
-You're welcome. Oh, I hope you won't talk about me."
+"You're welcome. Oh, but I'd like you to keep my identity a secret."
 
 *「どういたしまして。あ、私のことについては口外しないで欲しいなぁ」*
 
-I said, "All right, I won't listen. You saved my life."
+"Got it, I won't ask. You're my lifesaver after all."
 
 *「わーったよ、聞かねぇ。命の恩人だしな」*
 
 &nbsp;
 
-With that, Masirosan glanced at the black praying mantis. Yes, it is black. And a shredded, motionless harpy ...... seems to be mithril. If all of these were mithril, there would be enough to make a sword. I wonder how much it contains.
+Saying that, Mashiro glanced at the black mantis. Yeah, it's black. And the segmented, motionless horsehair worm... apparently it's mithril. If all of this is mithril, it seems like it could be enough to forge a sword. I wonder how much it contains.
 
 *そういってマシロさんはちらり、と黒いカマキリを見る。うん、黒いね。そして細切れになって動かなくなったハリガネムシ……ミスリルらしい。これ全部ミスリルなら剣が打てるくらいありそうだなぁ。どんぐらい含有してんだろね。*
 
 &nbsp;
 
-I can't believe ...... Black Mantis and Mithril Devil like this."
+"I can't believe it... a Black Mantis and a Mithril Devil, here like this."
 
 *「信じらんねぇ……ブラックマンティスとミスリルデビルが、こんな」*
 
-What's wrong?"
+"Was there something wrong?"
 
 *「なんかマズかった？」*
 
-I'm not sure what's wrong with that. As far as I know, no one has ever beaten these guys.
+"Not really, but as far as I know, no one has defeated these things."
 
 *「マズいこたぁねぇんだがよ。アタシの知る限り、こいつらを倒した奴は居ねぇんだわ」*
 
-Is this thing really that strong?
+"Are they that strong?"
 
 *「そんな強いのコレ」*
 
-They are the punitive monsters of the dungeon. They are demons that appear when you cause major damage to the dungeon environment. You heard about them at the gate on the way here ...... that you have to seal off the lower levels and leave them there until they rampage for a week and die."
+"They're punishment monsters of the dungeon. They appear when the dungeon's environment is severely disrupted. If they rampage for a week, you have no choice but to seal off the lower levels until they die... You heard about this at the gate on your way here, right?"
 
 *「ダンジョンの懲罰的モンスターだよ。ダンジョンの環境を大きく破壊したりすると現れる悪魔さ。一週間暴れまわって死ぬまで下層を封鎖して放置するしかなくなる……って、ここに来る途中の門で聞いただろ？」*
 
-I'm sorry, I don't know.　I'm sorry, I don't know."
+"Huh? Sorry, I didn't know."
 
 *「え？　ごめん知らない」*
 
-Did you miss it?　The doorkeeper said repeatedly that we mustn't cut down any trees beyond this point.
+"You missed it? The gatekeeper was saying it over and over, that you can't chop down the trees past here."
 
 *「聞き逃してたってのか？　扉番があんだけ口酸っぱく言ってたじゃねぇか、ここから先の木は伐り倒したらいけないって」*
 
@@ -114,157 +114,157 @@ Ah.
 
 &nbsp;
 
-Mr. Masiello: "Well, Mr. Masiello, what happens when you cut down a tree? What happens when you cut down a tree?"
+"M-Mashiro, what happens if you chop down the trees?"
 
 *「ま、マシロさん。木を伐り倒すとどうなっちゃうの？」*
 
-So this guy shows up. Some idiot cut down the trees for the torrent. Trent here is harmless if you don't mess with it.
+"That's when this thing shows up. Some idiot chopped them down for treant wood. The treants here are harmless if you don't mess with them."
 
 *「だから、コイツが現れるんだよ。どっかのバカがトレント材欲しさに伐採したんだってよ。ここのトレントは、手を出さなきゃ無害だってのに」*
 
 &nbsp;
 
-Oddly enough, my storage space is full of torrent lumber that I hunted here the other day.
+What a coincidence, I have a lot of treant wood stored in my space from hunting here the other day.
 
 *奇遇だねぇ、私の収納空間には、先日ここで狩ったトレント材がたんと入ってんだ。*
 
 &nbsp;
 
-I'm sorry. It's me."
+"Sorry, that was me."
 
 *「ごめんなさい。それ私だ」*
 
-"...... Anh?"
+"...Huh?"
 
 *「……あン？」*
 
-It's not right. What is a doorkeeper anyway?　There was no such thing on the road I came from."
+"N-No, that's not it. What even is a gatekeeper?! There wasn't one on the path I took!"
 
 *「ち、ちがくて。その、そもそも扉番って何？！　私が来た道にはそんなのなかったしっ」*
 
-What?　How is that possible, you came from a new route?
+"What!? There's no way! Did you come from a new route?!"
 
 *「はぁ！？　んなわけあるか、新ルートから来たってぇのか！？」*
 
-"Oh, it was blocked with beehives. ...... There was no door. ......
+"Ah, it was blocked by a beehive... There wasn't a gate either..."
 
 *「あー、ハチの巣で塞がってたもんなぁ……扉もなかったし……」*
 
-Tell me more about it!
+"What? Explain that in detail!!"
 
 *「なんだそれ詳しく話せ！！」*
 
-Hahii ......"
+"Y-Yes..."
 
 *「はひぃ……」*
 
 &nbsp;
 
-Apparently it was my fault that this sister was in a pinch.
+It seems that this lady was in trouble because of me.
 
 *どうやらこのお姉さんがピンチに陥っていたのは私のせいだったらしい。*
 
-Oh my God, I'm so sorry, Masilo. I had destroyed the beehive and came in through the path that was behind it, washed out and fessed up.
+What a mess, I'm sorry, Mashiro. I confessed that I had destroyed the beehive and came through the path behind it.
 
 *なんてこった、ごめんなさいマシロさん。私はハチの巣を壊滅させて、その奥にあった道を通ってやってきたのを洗いざらい白状した。*
 
 &nbsp;
 
-I don't get it, but if he's good enough to defeat Black Mantis without difficulty, I have to agree with him. ......
+"Geez, I don't get it, but if you have the strength to easily defeat a Black Mantis, I can't help but accept that..."
 
 *「ったく、ワケわかんねぇが、ブラックマンティスを難なく倒す程の実力があるなら納得せざるを得ないな……」*
 
-I'm so sorry. Are you hurt?　I'll fix it for free."
+"I'm really sorry. Are you hurt? I can heal you for free."
 
 *「ほんっとごめんね。怪我してない？　タダで治すよ」*
 
-I'm all right, but my equipment is a bit out of whack. I need to replenish my darts.
+"I'm fine, but my equipment got a bit damaged. I need to restock my darts too."
 
 *「アタシゃ大丈夫だが、装備が少しイカれちまったな。ダーツも補充しねぇと」*
 
-"Okay, I'll fix it and restock."
+"Okay, I'll fix and restock them."
 
 *「おっけ、直して補充するね」*
 
 &nbsp;
 
-Scanning the sister's equipment. Ah, the sword has spilled a lot of blades. There is also only one stick shuriken-like object that appears to be a dart. Her leather armor and boots are also covered in scratches. Well, I feel like I've caused her trouble this time, so I can't help but compensate her with spatial magic.
+I scanned the lady's equipment. Oh, her sword is quite chipped. She only has one stick shuriken, which I assume is a dart. Her leather armor and boots are also covered in scars. Well, since I caused her trouble this time, it's only fair to compensate with space magic.
 
 *お姉さんの装備をスキャンする。あー、剣が随分刃こぼれしちゃってる。ダーツと思われる棒手裏剣っぽいものも１本しかない。革鎧やブーツも傷だらけだ。ま、今回は私が迷惑かけた感じだし、空間魔法で補償するのも止む無し。*
 
 &nbsp;
 
-How many darts do I need?"
+"How many darts do you need?"
 
 *「ダーツは何本あればいいの？」*
 
-An?"　You're not going to buy it?　Well, then I'll take about 50 bottles as an apology."
+"Huh? Are you going to buy them for me? Well then, how about 50 as an apology?"
 
 *「あん？　買ってくれんのか？　そうだなぁ、なら詫びで５０本くらい貰おうか」*
 
-Yes.
+"Sure."
 
 *「はいよ」*
 
 &nbsp;
 
-Pile 50 rough and duplicate darts on the ground. And while we're at it, let's correct the sword blade spills and distortions. I'll also fix metal fatigue. ...... mmm. Yes, okay.
+I piled up 50 replicated darts on the ground. I might as well fix the chips and bends in her sword too. I'll also fix the metal fatigue... there! All done.
 
 *ザラザラと複製したダーツ５０本を地面に山積みにする。ついでに剣の刃こぼれと歪みも補正しておこう。金属疲労も直すぞー……むんっ。はいおっけー。*
 
 &nbsp;
 
-I'm thinking, "Where's ......?　Where did you just get that from?"
+"...Huh? Hey, wait, where did you pull that from?"
 
 *「……は？　おいまて今どこから出した？」*
 
-"Well, the armor is at ....... Oh, it's cut off here. I'll fix it. Sorry?"
+"Um, the armor... oh, it's torn here. I'll fix it. Sorry?"
 
 *「えーっと、鎧は……あー、ここ切れちゃってるね。直しとくね。ごめんね？」*
 
-"Oh, no, that's a scar from another time--oh, that's a scar from my armor that's gone!"
+"Eh, no, that's a different injury—wait, what? The armor's damage disappeared!?"
 
 *「え、いやそれは別の時についた傷――って、あれ、鎧の傷が消えた！？」*
 
 &nbsp;
 
-I stroked the armor and filled the wound, and once again the sister stroked and surprised me.
+The lady was surprised as she stroked the spot where I had healed the armor.
 
 *私が鎧を撫でて傷を埋めたところを改めてお姉さんが撫でて驚く。*
 
-It's getting a little fun. ...... No, I don't have a choice. It's a compensation for an apology!　Because I have to do my best to apologize!
+I'm starting to have a bit of fun... No, it's not my fault. It's compensation for my apology! I have to do my best to apologize!
 
 *ちょっと楽しくなってきた……いや、仕方ないんだよ。お詫びの補償だから！　全力でお詫びしなきゃだから！*
 
 &nbsp;
 
-Ahh!　If you look closely, you can see a scar on my chest!　I'll fix it!"
+"Oh! I just noticed there's a scar on your chest too!? I'll heal that!"
 
 *「ああっ！　よく見たら胸元に傷も！？　治すね！」*
 
-"Hey, that's an old wound.　Whoa! What the hell is wrong with you?　The scar's gone!
+"W-Wait, that's an old scar—Whoa!? W-What are you doing!? The scar disappeared!"
 
 *「おまっ、それは古傷――うぉ！？　な、な、なんだよお前ぇ！？　傷消えたんだが！」*
 
-I'm glad you're pleased."
+"I'm glad you're happy."
 
 *「喜んでもらえて何よりだよ」*
 
-"Or it ain't money!　You fixed it on your own!
+"I-I don't have any money! You healed it on your own!"
 
 *「か、金ならねぇぞ！？　お前が勝手に治したんだからな！？」*
 
-I don't need it. Oh, you have a cavity, I'll fix it."
+"Yeah, I don't need it. Oh, you have a cavity too, I'll fix that."
 
 *「うんうん、要らないから。あ、虫歯もあるのね、治しとくね」*
 
-What is it?　Is it my fault?
+"W-What the heck!? Is it my fault!?"
 
 *「な、なんなんだよぉ！？　アタシが悪いのか！？」*
 
 &nbsp;
 
-Oh no, I'm the one apologizing for doing something wrong. I'm sorry!
+Well, I'm the one who did something wrong and is apologizing. Sorry!
 
 *いやー、悪いことしてお詫びしてんの私の方だから。ごめーんね！*
 
@@ -272,13 +272,10 @@ Oh no, I'm the one apologizing for doing something wrong. I'm sorry!
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(AI illustration of Fluffy Beastman was extremely difficult)
+(The fluffy beastman AI illustration was super difficult.)
 
 *（もふもふ獣人のＡＩイラスト超難航した）*
-

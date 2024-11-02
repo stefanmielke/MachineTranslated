@@ -2,10 +2,9 @@
 
 ## そこにはデカいハチの巣があった。
 
-(*Wary of mushy expressions)
+（※Caution: Insect expressions）
 
 *（※蟲表現注意）*
-
 
 ----------------
 
@@ -15,35 +14,35 @@
 
 &nbsp;
 
-My name is Karina!　I'm in the mood for a certain game and I'm going through a dungeon!
+I'm Karina-chan! Right now, I'm progressing through a dungeon in the mood of a certain game!
 
 *私、カリーナちゃん！　今、某ゲームの気分でダンジョンを進んでるの！*
 
-Oh, a big spider this time. It's still bigger than a human, and I wonder if this is another one. A chance to say that line about being wrapped up in a string...
+Oh, this time it's a big spider. It's larger than a human, could this be that thing? The chance to say that line about being wrapped in thread and so on――
 
 *お、今度はデカい蜘蛛。やはり人間より大きく、これもまたアレだろうか。糸に巻かれて云々のあのセリフを言うチャンス――*
 
 &nbsp;
 
-He attacked me in a normal way. What the hell, you got me hoping."
+"Wait, it just attacked me normally. What the heck, you got my hopes up."
 
 *「って、普通に襲い掛かってきたよ。なんだよ、期待させやがって」*
 
 &nbsp;
 
-If I had to guess, I would say that it was like trying to catch them by attaching a string to their paw?　It was like using a string attached to the paw like a cat's cradle and trying to catch it by sticking to it. Hmmm, go ahead and fly the string. If you want, go fly a spider web like your friend's character in a certain gorilla game.
+If I had to say, it was trying to use its forelegs to stick threads like in a cat's cradle, attempting to catch me with its sticky web. Hmm, come on, shoot your thread. You could at least shoot webs like that friend character from a certain gorilla game.
 
 *しいて言えば前足？　にあやとりのように糸をくっつけて、粘着して捕まえようとする感じの使い方だった。うーん、飛ばして来いよ、糸を。なんなら某ゴリラのゲームのお友達キャラのように蜘蛛の巣を飛ばして来いよ。*
 
 &nbsp;
 
-What?　You say it's impossible to fly a spider as a web because it's just a thread when it comes out of the spider's buttocks?　Shut up and do something with magic!　You're a demon! ...... No, you can't do it with magic. It was more reckless than asking the spider to spit out chewing gum in the shape of a spider web in its mouth.
+What? You say that since the thread comes out of the spider's rear, it's impossible to shoot it as a web? Shut up and use magic to figure it out! It's a monster, right!?... No, that might be too much. Asking it to spit out chewed gum in the shape of a web was probably unreasonable.
 
 *え？　そもそも蜘蛛の尻から出てくる時点では糸なんだから、巣にして飛ばすのって無理だろって？　うるせぇ魔法で何とかしろよ！　魔物だろ！？……いや流石にむりか。口の中でチューインガムを蜘蛛の巣型にして吐き出せって言うより無茶ぶりだったか。*
 
 &nbsp;
 
-Well, the spiders can be dismantled and put into storage.
+Well, I'll just dismantle the spider and toss it into storage.
 
 *まぁ蜘蛛も解体して収納にポイだ。*
 
@@ -51,15 +50,15 @@ Well, the spiders can be dismantled and put into storage.
 
 &nbsp;
 
-Oops, sign of adventurers. Let's avoid this one and look for another way. It would be troublesome if we run into each other.
+Oh, a presence of an adventurer. I'll avoid this and look for another path. It's troublesome to run into them anyway.
 
 *おっと、冒険者の気配。こっちは回避して、他の道を探そう。鉢合わせても面倒くさいしね。*
 
-As a spatial wizard, I have a perfect grasp of the pathways I've come to. The map in my brain is perfect in 3D. If I want to go back, I can, and if I want, I can just ignore the strategy and go back to the storage space.
+As a spatial magic user, I have a complete grasp of the passage I came from. My mental map is perfect in 3D. If I want to go back, I can, and I can just return to the storage space, ignoring the攻略.
 
 *空間魔法使いとして、来た通路は完全に把握している。脳内マップは３Ｄで完璧だ。戻ろうと思えば戻れるし、なんなら攻略を無視して収納空間に戻ればいいだけ。*
 
-Let's avoid signs of people and proceed at a reasonable pace.
+Let's just move forward while avoiding human presence.
 
 *人の気配を避けて適当にずんずん進んでしまおう。*
 
@@ -67,27 +66,27 @@ Let's avoid signs of people and proceed at a reasonable pace.
 
 &nbsp;
 
-Oops, it's Crowler. You were surprisingly tasty... Oh, the Yellow Hornet is attacking me. What, you're food in the dungeon too? Sadly, it's called the food chain. ...... and I had a good idea. Let's hide and follow the Yellow Hornet. Optical camouflage!　I decided to hide and follow the Yellow Hornet that was attacking Crowler.
+Oh, a crawler. You were surprisingly tasty―― ah, you're being attacked by a yellow hornet. What the heck, are you food even in the dungeon? It's sad, but this is what they call the food chain... Oh, I just thought of a good idea. I'll hide and follow the yellow hornet. Optical camouflage! I decided to follow the yellow hornet that was attacking the crawler while hiding my presence.
 
 *おっとクロウラーだ。お前意外と美味しいやつだったよ――あ、イエローホーネットに襲われてやがる。なんだよダンジョン内でも食料かお前。悲しいけどこれ、食物連鎖ってやつなのよね……と、良いことを思いついた。身を隠してイエローホーネットについていこう。光学迷彩！　私は姿を隠し、クロウラーを襲っていたイエローホーネットを尾行してみることにした。*
 
 &nbsp;
 
-If they are willing, they might be able to take us to the Mother or Queen, who is said to be deep in the dungeon!
+If I'm lucky, it might lead me to the mother or queen that's said to be deeper in the dungeon!
 
 *あわよくば、ダンジョンの奥にいるというマザーだかクイーンだかの元へ連れて行ってくれるかもしれないからね！*
 
 &nbsp;
 
-So we wait quietly as Mr. Yellow eats and gruesomely dumplings the leftovers. ...... Okay, he has taken off. Let's start following him.
+So, I quietly waited while the yellow hornet was eating and mashing up leftovers into a ball. ...Alright, it took off. Time to start following.
 
 *というわけでイエロー君が食事をし、食べ残しをぐりぐりと団子にしているのをそっと待つ。……よし、飛び立った。尾行開始だ。*
 
-Hmm?　Hey there, red praying mantis. That Yellow Hornet is mine, and you're not allowed to hit it sideways.
+Huh? Hey, wait, you red mantis over there. That yellow hornet is my prey, no side attacks allowed.
 
 *ん？　おいまてそこの赤いカマキリ。そのイエローホーネットは私の獲物だ、横殴りは禁止だぞ。*
 
-That's totally dangerous. Let's leave Mr. Yellow invincible. The red praying mantis will be dismantled and sent to storage. And then toss it. You may have just been trying to eat a passing snack, but you're out of luck.
+Seriously, how dangerous. I'll put the yellow hornet in invincible mode. The red mantis will be disassembled and sent to storage. Tossed away. You might have just been trying to eat a passing snack, but you had bad luck.
 
 *まったく危ないなぁ。イエロー君は無敵状態にしておこう。赤いカマキリは関節解体して収納送りだ。ポイっとな。キミはただ通りすがりのオヤツを食べようとしてたのかもしれんが、運が悪かったな。*
 
@@ -95,15 +94,15 @@ That's totally dangerous. Let's leave Mr. Yellow invincible. The red praying man
 
 &nbsp;
 
-So, after escorting Mr. Yellow out of the shadows, we reached the descending staircase.
+So, after secretly escorting the yellow hornet, we arrived at a downward staircase.
 
 *というわけで、イエロー君を陰ながら護衛したところ、下り階段へとたどり着いた。*
 
-The room in front of me looks like a boss room, but there is no boss and no door. Could this be an unexplored area?　Maybe this is the reason why there are roaming bosses and so on. I'll give it some thought.
+The front seems like a boss room, but there's no boss and no door. Is this an unexplored area? Maybe this is why wandering bosses appear. Just a thought.
 
 *手前がボス部屋っぽいんだけど、ボスもいなければ扉もついていない。これもしかして未踏領域ってやつですかい？　もしかして、こういうのがあるから徘徊ボスとかが出てくるんじゃねぇかな。とか考察してみる。*
 
-Well, that's okay. Let's go to the back.
+Well, whatever. Let's go deeper.
 
 *まぁいいか。奥へいこう。*
 
@@ -111,27 +110,27 @@ Well, that's okay. Let's go to the back.
 
 &nbsp;
 
-I followed Mr. Yellow further and found a huge beehive.
+Following the yellow hornet further, there was a big beehive.
 
 *さらにイエロー君についていくと、そこにはデカいハチの巣があった。*
 
-A wasp-type nest shaped like an incoming cloud. They were buried as if they were spreading all over the hall, which had been knocked out of the second and third floors. And a large number of Hornets were flying around.
+A hornet-type nest shaped like a cumulonimbus cloud. It filled the large hall that pierced through two or three floors. And a large number of hornets were flying around.
 
 *スズメバチタイプの、入道雲みたいな形の巣。それが、２、３階をぶち抜いた大広間を敷き詰めるように埋まっている。そして、大量のホーネット達が飛び回っていた。*
 
 &nbsp;
 
-Wow, I get goosebumps just looking at it. I get goosebumps just looking at it. This is physiologically disgusting. Humans are made to hate bees. I'm going to get agglutinophobia!
+Whoa, just looking at it gives me goosebumps. It's making me itch. This is physiologically unacceptable. Humanity is made to detest bees. I'm going to develop a fear of clusters!
 
 *うわああぁ、見るだけで鳥肌が立ってくる。ムズムズしちゃう。生理的にアカンわこれ。人類はハチを嫌悪するようにできているわコレ。集合体恐怖症になっちゃうよぅ！*
 
-There's yellow and red, and orange in between. Wow, that's disgusting. It's like a bug, a bug, a bug, a little mosaic. I want a mosaic over my entire field of vision!　I can't show you!
+There are yellow, red, and even some orange ones in between. Ugh, gross. It's all insecty and feels like bugs, I need a mosaic. I want a mosaic over my entire field of vision! I can't look at this!
 
 *黄色と赤と、間を取ってオレンジのもいるな。うわぁ、きもっ。虫虫してて蟲って感じで、ちょ、モザイク。視界全体にモザイクが欲しい！　みせられないよ！*
 
 &nbsp;
 
-...... Anyway, now that we've made it this far, Mr. Yellow is no longer of any use. I released my invincible state and sent Mr. Yellow off to carry the crawler dumplings into the nest. Thanks for guiding us.
+...Anyway, now that I'm here, the yellow hornet is no longer needed. I released its invincibility state and watched as it carried the crawler ball into the nest. Thanks for the guidance.
 
 *……ともあれ、ここまでくればもうイエロー君は用済みだ。無敵状態を解除して、巣の中へクロウラー団子を運ぶイエロー君を見送った。案内ご苦労さん。*
 
@@ -139,13 +138,13 @@ There's yellow and red, and orange in between. Wow, that's disgusting. It's like
 
 &nbsp;
 
-I was like, "...... hmmm, I wonder if this is one that can be eradicated. I don't know."
+"......Hmm, I wonder if it's okay to exterminate these. I can't tell."
 
 *「……うーん、これ、殲滅してもいいやつなのかなぁ。わっかんねぇ」*
 
 &nbsp;
 
-For now, let's use spatial magic to check the structure of this room. ...... and the moment I released the magic like active sonar, all the Hornets in the room turned to me at once.
+For now, let's check the structure of this room with spatial magic... and the moment I released my magical power like an active sonar, all the hornets in the room turned to face me at once.
 
 *とりあえず、空間魔法でこの部屋の構造を確認しておこう……と、アクティブソナーのように魔力を放った瞬間、部屋中のホーネットが一斉にこちらを向いた。*
 
@@ -153,7 +152,7 @@ For now, let's use spatial magic to check the structure of this room. ...... and
 
 &nbsp;
 
-Stop?　Kochiminai desu?
+Stop it? Don't look over here?
 
 *ヤメテ？　コッチミナイデ？*
 
@@ -161,41 +160,40 @@ Stop?　Kochiminai desu?
 
 &nbsp;
 
-I was wondering whether I should say so or not when the bees pounced on me.
+Just as I was contemplating saying that, the bees suddenly lunged at me.
 
 *私がそう言おうか悩んだのも束の間、ハチたちが飛び掛かってきやがった。*
 
 &nbsp;
 
-'Oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo!　Help me eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee!"
+"Whoa, this is so gross!!! Help meeeeee!!!"
 
 *「うわぁあああああきめぇえええーー！！！　お助けぇええええーーー！！」*
 
 &nbsp;
 
-Wait, how can you listen to me and listen to ......, you bee?
+Wait, listen to my side of the story... but I guess bees can't listen!
 
 *待ってこっちの話を聞いて……って聞けるわけねぇかハチだもんよぉ！*
 
-If they made noise, of course, the bees attacked, even from inside the hive.
+Naturally, as I made a commotion, bees from inside the nest also attacked me.
 
 *騒げば当然、巣の中からだってハチが襲い掛かってきた。*
 
-Wow!　I'm scared!　Gross!　It doesn't do any damage, but don't get too close, seriously, it's a big bug!　Oh no!
+Yikes! This is terrifying! Gross! It doesn't deal damage, but seriously, don't come near me, you're a giant bug! Nooo!!
 
 *ひぇえ！　うぞうぞ怖い！　キモイ！　ダメージ入らないけど近寄らんといてマジで、デカい虫じゃん！　いやぁ！！*
 
 &nbsp;
 
-I found myself killing every single bee in the room.
+Before I knew it, I had killed every single bee in the room, leaving not one behind.
 
 *気が付けば、私は部屋の中にいたハチたちを全て、悉く、一匹残らず殺しつくしていたのである。*
 
-...... I can't help it!　Oh, I was almost a little traumatized: ......
+...It can't be helped!! Ah, I almost developed a trauma from that...
 
 *……仕方ないね！！　あー、ちょっとトラウマになりかけたよ……*
 
 &nbsp;
 
 &nbsp;
-

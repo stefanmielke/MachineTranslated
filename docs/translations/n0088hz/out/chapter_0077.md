@@ -1,4 +1,4 @@
-# "Lend me your chest" (Physics) - Illustrations are available.
+# "Lending My Chest" (Physics) ● Illustrated
 
 ## 『胸を貸す』（物理）●挿絵アリ
 
@@ -6,71 +6,71 @@
 
 &nbsp;
 
-'Uh-oh. ...... voice, can you raise it a little higher?"
+"Ah, ah... Can you make your voice a little higher?"
 
 *「あー、あー。……声、もう少し高くできますか？」*
 
-"Hmm, how about you play with your vocal cords here ......?"
+"Hmm, if I tweak my vocal cords here... How's this?"
 
 *「んー、声帯のここを弄って……どう？」*
 
-Oh, uh. ...... is perfect, thank you very much, Aruji-sama!"
+"Ah, ah... Perfect, thank you, my lord!"
 
 *「あー、あー。……ばっちりです、ありがとうございます、あるじ様！」*
 
 &nbsp;
 
-Tuning Isiah's throat. As a former minstrel, she seems to be very particular.
+Tuning Aisia's throat. As a former bard, she seems to have her own preferences.
 
 *アイシアの喉をチューニングする。元吟遊詩人なだけあって、こだわりがある様だ。*
 
 &nbsp;
 
-......I need to see you regularly, otherwise I don't know what's going to happen, okay?"
+"... I can't predict what will happen if I don't check on you regularly, you know?"
 
 *「……私が定期的に診ないと、どうなるか分からないからね？」*
 
-Yes, I will follow you for the rest of my life. I will follow you for the rest of my life, Oji-sama."
+"Yes. I will follow you for life, my lord."
 
 *「はい。一生ついていきます、あるじ様」*
 
-I'm sure you'll serve me for the rest of your life, Isiah. Good luck."
+"Yes, yes, serve me for life, Aisia. Good girl, good girl."
 
 *「うんうん、一生お仕えしてねアイシア。いいこいいこ」*
 
-"Heh heh, I am, sir."
+"Hehe, my lord."
 
 *「えへへ、あるじ様」*
 
 &nbsp;
 
-All right, all right. Now if you betray me, I don't know what will happen to your throat. You could hold your precious throat hostage and bind it to me. Hmph.
+Good, good. If she betrays me now, I can't predict what will happen to her throat. I can bind her to me by taking her precious throat as a hostage. Hehehe.
 
 *よしよし。これで私を裏切ったら喉がどうなるか分からない。大切な喉を人質にして私に縛り付けることができるだろう。フフフ。*
 
 &nbsp;
 
-And it seems that the face hardly needed any correction. I heard that she may have become a little more beautiful than the original.
+It seems her face needed almost no adjustments. She might have become a bit more beautiful than before.
 
 *そして顔はほとんど修正必要なかった模様。元より少し美人になったかもしれないそうな。*
 
-Well, I used Sati as a reference!　Sati is super cute, and with my memory correction, how could she not be cute?
+Well, I used Sati-chan as a reference! Sati-chan is super cute, and my nostalgic bias is at play, so there's no way she wouldn't be cute!
 
 *まぁサティたんを参考にしたからね！　サティたん超かわいい上に私の思い出補正が入ってるもの、可愛くないわけがないっ！*
 
 &nbsp;
 
-...... Oh, Deere, you're not as cute as you look!　Even when you sulk, you're still cute."
+"... Ah, but even dear Dia-kun isn't lacking in cuteness! Even when sulking, he's cute!"
 
 *「……あ、ディア君だって可愛さじゃ負けてないぞ！　拗ねても可愛いっ」*
 
-No, I'm not sulking at .......
+"No, I'm not sulking...!"
 
 *「いや、ボク別に……拗ねてませんし」*
 
 &nbsp;
 
-You're sulking. Kayo. Cute and nice, Kayo for short.
+You're sulking. Cute. Cute and good, abbreviated as "kawayo."
 
 *拗ねてるじゃん。かわよ。可愛くて良い、略してかわよ。*
 
@@ -78,27 +78,27 @@ You're sulking. Kayo. Cute and nice, Kayo for short.
 
 &nbsp;
 
-In addition, they were educated in the area of avoiding committing crimes.
+Moreover, she had been educated not to commit crimes.
 
 *尚、犯罪を犯さないようにするあたりは教育済みだった。*
 
-They said that education included that kind of thing. If you don't educate people here, even if you order them not to commit a crime, they often don't know what a crime is and it is often ineffective.
+It seems education included that sort of thing. If you don't educate them on this, even if you order them not to commit crimes, they often won't understand what constitutes a crime, so it won't be effective.
 
 *教育ってそういうのも含まれていたらしい。ここ教育しておかないと「犯罪を犯すな」と命令しても何が犯罪か分からず効果が出ないことも多いらしい。*
 
 &nbsp;
 
-Well, it's impossible to make them memorize the entire Six Laws, so it's only common sense level, though there are some holes. Thank God I am educated.
+Well, it's impossible to make her memorize the entire legal code, so it’s limited to common sense, but at least she has some education, which is a relief.
 
 *まぁ流石に六法全書を全部覚えさせるみたいなことは無理なので、あくまで常識レベルの範疇までで穴はあるけれど。教育済みで助かった。*
 
 &nbsp;
 
-Tell me what you don't like. I'll still let you do your job, but I'll improve what I can.
+"Please tell me when you dislike something. I'll still make you work, but if there's something that can be improved, we'll improve it."
 
 *「嫌な事は嫌だって教えてね。それでも仕事はやらせるけど、改善しても良い事は改善するからさ」*
 
-Yes, sir. Thank you for your concern, my Lord."
+"Yes. Thank you for your consideration, my lord."
 
 *「はい。お心遣い感謝します、あるじ様」*
 
@@ -108,61 +108,61 @@ Yes, sir. Thank you for your concern, my Lord."
 
 &nbsp;
 
-Aisia bows her head with a bow. Yes, yes, she is obedient. As expected of a slave child.
+Aisia bows her head politely. Yes, yes, she's obedient. Just as expected of a slave.
 
 *ぺこり、と頭を下げるアイシア。うんうん、従順だね。さすが奴隷っこ。*
 
 &nbsp;
 
-Oh, and we need to make room.
+Ah, I need to create a room too.
 
 *あ、部屋も作らなきゃだね。*
 
-In the meantime, where shall we build it?
+I wonder where I should make it...
 
 *とりあえずどこに作ろうかなー。*
 
 &nbsp;
 
-"Oh, can I have the room?"
+"Eh, are you giving me a room?"
 
 *「え、部屋を頂けるんですか？」*
 
-As you can see, there's plenty of room, and we can add as many as we want."
+"As you can see, there’s plenty of space, and I can create more as needed."
 
 *「見ての通り、場所はいくらでもあるし、いくらでも増やせるからね」*
 
-"You may serve me in your room at all times."
+"I can serve you in your room at all times."
 
 *「あるじ様の部屋の中で常にお仕えさせていただいても」*
 
-Then you're across the hall from me!
+"Then it will be across from my room!"
 
 *「じゃあ私の部屋の向かいね！」*
 
 &nbsp;
 
-I might bring them in and do erotic things with them, but apart from that, privacy and private life are important!
+I might bring her in for naughty things, but privacy and personal space are important too!!
 
 *連れ込んでエロい事するかもだけど、それとは別にプライバシーとプライベートは重要だからね！！*
 
-I don't want you to come when I'm not in the mood. ......?
+It would be troublesome if she came over when I'm not in the mood...?
 
 *気分じゃないときに来られても困るし……？*
 
 &nbsp;
 
-'Oh, I'll give you a bigger room so you can practice your singing without any worries.'
+"Ah, I'll make it a spacious room so you can practice singing without hesitation."
 
 *「あー、気兼ねなく歌の練習ができるよう広い部屋にしてあげよう」*
 
-"Thank you, Mister."
+"Thank you very much, my lord."
 
 *「ありがとうございます、あるじ様」*
 
 &nbsp;
 
-Well, it doesn't need to be that wide because it's perfectly soundproofed anyway, but it doesn't need to be small either.
+Well, since soundproofing is perfect, it doesn't need to be that spacious, but it doesn't need to be small either.
 
 *まぁどうせ防音は完璧だからそれほど広くする必要もないけど、狭くする必要もないからね。*
 
@@ -170,149 +170,149 @@ Well, it doesn't need to be that wide because it's perfectly soundproofed anyway
 
 &nbsp;
 
-"...... So, what do you have Isiah do?　The kind of work you normally make slaves do isn't really needed here."
+"... So, what will you have Aisia do? There’s no need for the usual slave work here, right?"
 
 *「……それで、アイシアには何をさせるんですか？　普通に奴隷にさせるような仕事ってここでは必要ないですよね」*
 
-Uh, yeah."
+"Ah, yeah."
 
 *「あー、うん」*
 
 &nbsp;
 
-Usually, slaves are given chores to do around them. For example, boiling water for a bath and carrying it to the bathtub is a job that slaves are required to do. However, since the space magic can do all of these things, there is no work to be done.
+Typically, a slave would handle the chores around you. For example, boiling water for a bath and carrying it to the tub is a job for a slave. However, since space magic can handle all that, there’s no work for her.
 
 *通常、身の回りの雑務をさせるのが奴隷というものだ。例えばお風呂のお湯を沸かして湯船に運ぶ、なんてのは奴隷にやらせる仕事なわけだ。が、そこらへん空間魔法で全部やれちゃうので仕事がない。*
 
-Dear, to your question, I'll tell you the idea I had in mind when I bought Isiah.
+I convey the idea I thought of when buying Aisia in response to Dia-kun's question.
 
 *ディア君の質問には、アイシアを買うときに思いついたアイディアを伝えておく。*
 
 &nbsp;
 
-She's my stand-in. I don't want to be too famous, so I'm going to make it all about Isiah. I don't want to be too famous, so I'm going to make it all about Isiah. I'll have her wear a mask or something.
+"You'll be my substitute. I don’t want to be too famous, so I thought I'd make it seem like Aisia is responsible for this and that. Especially for healing-related things. I'll have her wear a mask, though."
 
 *「私の身代わりだよ。あまり有名にはなりたくないから、あれもこれもアイシアの仕業にしようかとね。治療関係とか。仮面とかはつけさせるけど」*
 
-I see, so you are going to make Ms. Isiah a 'mask' for your sister Karina."
+"I see, so you’re going to make Aisia-san the 'mask' of Sister Karina."
 
 *「なるほど、アイシアさんをカリーナお姉さんの『仮面』にするんですね」*
 
-'That's the thing. I have to pretend I fixed Isiah the first time, so I'm going to put a mask on him, though."
+"That's right. I have to pretend that Aisia was the one healed the first time, so I’ll wear the mask myself."
 
 *「そういうこと。最初の一回はアイシアを治したことにしないとだから私が仮面付けてやるけどね」*
 
 &nbsp;
 
-The name is Damina Nisseisha...... or I'll let you and Dia come up with a more appropriate name. I'm not sure if I have a good sense of naming.
+The name will be Damina Niseisha... No, I should have Dia-kun and the others come up with a more fitting name. My naming sense is lacking.
 
 *名前はダミーナ・ニセイシャ……いや、もっとそれらしい名前をディア君たちに考えてもらおうかな。私のネーミングセンスってばアレだし。*
 
 &nbsp;
 
-'Well, then, Miss Isiah's breasts won't be enough. Are you going to make her stuff them?"
+"That means Aisia-san's chest won't be enough. Are you going to use padding?"
 
 *「そうなるとアイシアさんの胸が足りませんね。詰め物させるんですか？」*
 
-No, I'm going to cover my breasts here. Like this."
+"No, I’ll hide my chest here. Like this, and like this."
 
 *「いや、ここは私の胸を隠すよ。こうして、こう」*
 
 &nbsp;
 
-The chest is pinched into the space magic. On the outside, i.e. on top of the clothes, it's completely flat. It's smaller than Isiah's. On the other hand, it might be better to stuff it.
+I slip my chest into space magic. From the outside, that is, looking from above the clothes, it appears completely flat. It's smaller than Aisia's, so it might be better to use padding instead.
 
 *すぽんっと胸を空間魔法につっこむ。外側、つまり服の上から見ると真っ平に。アイシアよりも小さいな、逆に詰め物した方が良いかもしれない。*
 
 &nbsp;
 
-"Oh, your sister's breasts are gone ......!"
+"W-what!? The sister's chest disappeared...!?"
 
 *「お、お姉さんの胸が消えた……！？」*
 
-I just put it in my room with spatial magic. This way they won't know it's there."
+"Hehe, it's just stored in space magic. This way, it won't be noticed."
 
 *「ふふん、空間魔法で部屋に置いてあるだけだよ。こっちの方がバレないでしょ」*
 
 &nbsp;
 
-At any rate, it is easy to increase with fillings, but difficult to erase what is in the body.
+After all, it's easy to increase size with padding, but it's difficult to make something on the body disappear.
 
 *なにせ詰め物で増やすのは簡単だが、身体にあるものを消すのは難しい。*
 
-And if you cut it off, it's a pain to fix. And it hurts.
+If I cut it off, it would be a hassle to heal. It hurts. ... This feels breezy.
 
 *切り落としたら治すのが面倒だしね。痛いし。……スースーするなこれ。*
 
 &nbsp;
 
-I was surprised ...... that you could do that."
+"I was surprised... So you can do that too."
 
 *「びっくりしました……そういうこともできるんですね」*
 
-If you want, I can lend my chest to you, Dear.　Tei."
+"Would you like me to lend you my chest, Dia-kun? Here."
 
 *「なんならディア君に胸を貸そうか？　てい」*
 
 &nbsp;
 
-I snap my fingers and let my boobs grow on Dear's flat chest.
+With a snap of my fingers, I grow my breasts on Dia-kun's flat chest.
 
 *パチン、と指を鳴らし、ディア君の平らな胸に私のおっぱいを生やす。*
 
-This is the secret art of spatial magic, "lending chest" (physics)!
+This is the secret technique of space magic, "Lending My Chest" (Physics)!!
 
 *これぞ空間魔法の秘技、『胸を貸す』（物理）である！！*
 
 &nbsp;
 
-Wow, loli big breasted elf!　Even in my size, she looks big-breasted when her foundation is petite!
+Kyaa, a loli big-breasted elf! Even with my size, it looks big because the base is small!
 
 *きゃぁー、ロリ巨乳エルフ！　私サイズでも土台が小柄だと巨乳に見える！*
 
-And my boobs don't get cold!　I guess I'll leave them with you, Dear, when I have to hide my breasts!
+And my breasts aren't cold! It's a good idea to leave them with Dia-kun when I need to hide them!
 
 *それにおっぱいが寒くない！　胸を隠すときはディア君に預けとくのアリだな！*
 
 &nbsp;
 
-"Huh?　This, eh, I have boobs!　Wow, I can't see what's underneath."
+"Eh!? W-what, I have breasts!? W-wait, I can't see below!"
 
 *「ふぇっ！？　これ、え、ボクにおっぱいが！？　わっわ、下が見えない」*
 
-"Hiyah!　Oh, wait, Dia-kun!
+"Hyah!? Ah, w-wait, Dia-kun!"
 
 *「ひひゃっ！？　あ、ちょ、ディア君！」*
 
 &nbsp;
 
-With a "poof", Dia-kun lifted up her boobs as if supporting them from below. Puffing.
+Pafun, Dia-kun lifted my breasts from below to support them. Puny.
 
 *ぱふん、とディア君はおっぱいを下から支えるように持ち上げた。ぷにゅっと。*
 
-But that's my boobs, and they are firmly connected. ......
+But those are my breasts, and they are firmly connected...!
 
 *しかしそれは私のおっぱいで、しっかり繋がってるわけで……！*
 
-Oh, no, you can't touch it in a way that makes it squirm and enjoy its softness!
+Ah, no, touching them in a way that savors their softness is a no-go!
 
 *あ、だめ、もみゅもみゅと柔らかさを堪能するような触り方だめだってそれ！*
 
 &nbsp;
 
-"Eh, wow, soft and warm ...... wow ...... wow."
+"Wow, they're so soft and warm... Wow..."
 
 *「え、うわー、柔らかくて温か……うわぁ……すごい」*
 
-Oh, um, Deere. Do you have a minute?"
+"Um, Dia-kun. Can I ask you something?"
 
 *「あ、あの、ディア君。ちょっといい？」*
 
-Yes, what is it?"
+"Yes, what is it?"
 
 *「はい、なんでしょう？」*
 
-Hyan!　Oh, you know what? That--
+"Hyahn! Ah, um... That—"
 
 *「ひゃんっ！　あ、あのね。それ――*
 
@@ -322,31 +322,31 @@ Hyan!　Oh, you know what? That--
 
 &nbsp;
 
-It's--...... connected to me. ...... nkk."
+"—... It's connected to me... Nnkuh."
 
 *――……私に繋がってるんだ……んくっ」*
 
-What?" ...... Oh!　I'm sorry!
+"Eh? ... Ah! S-sorry!?"
 
 *「えっ？……あ！　ご、ごめんなさい！？」*
 
 &nbsp;
 
-Damn, whew, that was close. I almost woke up something.
+Crap, phew, that was close. I almost awakened something.
 
 *くっ、ふぅ、危なかった。何か目覚めてしまう所だった。*
 
-Now that's my fault for inadvertently forgetting that men have a 'habit of squeezing their own breasts if they have boobs. ......
+It was my fault for forgetting that men have a tendency to "squeeze their breasts if they have them"!
 
 *今のは男に『自分の胸におっぱいがあったらつい揉んでしまう習性』があるのをうっかり忘れていた私が悪いな……！*
 
-Everybody does it, even I do it. I did. I do it every day when I wake up.
+Anyone would do that; I would do that too. I did. I do it every morning.
 
 *誰だってそうする、私だってそうする。した。毎日起きるたびやってる。*
 
 &nbsp;
 
-...... Yes, wouldn't it be more girly if we detached Deer-kun's Deer-kun in this same way?　I'll try it next time.
+... Right, if I use the same method to separate Dia-kun's "Dia-kun," wouldn't it make him look more like a girl? I'll have to try that next time.
 
 *……そうだ、これと同じ方法でディア君のディア君を切り離せばより女の子っぽくなるのではなかろうか？　今度試してみよう。*
 
@@ -354,11 +354,10 @@ Everybody does it, even I do it. I did. I do it every day when I wake up.
 
 &nbsp;
 
-Afterwards, when we discussed the matter again, we decided that it would be better if we didn't introduce a healer and report Aisia's complete recovery together, so there was no need for us to lend our chest to Mr. Deere.
+Later, upon further consultation, it turned out that there was no need to combine the introduction of the healer and Aisia's full recovery report, so there was no need to lend my chest to Dia-kun at all.
 
 *尚、その後改めて相談したところ、別に治癒士の紹介とアイシアの完治報告を一緒にしなければいいだけではないかということで、ディア君に胸を貸す必要は一切なかったとだけ。*
 
 &nbsp;
 
 &nbsp;
-

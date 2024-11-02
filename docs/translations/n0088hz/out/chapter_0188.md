@@ -1,50 +1,50 @@
-# Thus, the returning festival was a great success.
+# Thus, the return festival ended in great success.
 
 ## かくして、返納祭は大盛況に終わった。
 
 &nbsp;
 
-Thus, the returning ceremony was a great success.
+Thus, the return festival ended in great success.
 
 *かくして、返納祭は大盛況に終わった。*
 
-One of the reasons for this is that he was rewarded with the quasi-divine "foot-row fertility" weapon.
+One of the factors was receiving the semi-divine artifact "Foot-Pedaled Abundance" as a reward.
 
 *準神器『足漕豊穣』を褒美として授かったこともその要因の一つだ。*
 
 &nbsp;
 
-Well, the festival was a lot of fun!"
+"Wow, that festival was so much fun!"
 
 *「いやー、お祭り楽しかったねぇ！」*
 
-By the way, Karina, how much money did you make this time as a merchant? How much money did you make as a merchant this time?"
+"By the way, Sister Karina, how much did you earn as a merchant this time?"
 
 *「ところでカリーナお姉さん。商人としては今回どれだけ儲けました？」*
 
-"...... ah!　Come to think of it, I'm not doing any business at all. ......!"
+"……Ahhh!? Now that you mention it, I didn't do any business at all……!!"
 
 *「……あああッ！？　そういえば全然商売してないや……！！」*
 
 &nbsp;
 
-Festivals were a good time to make money as a merchant!
+The festival was a prime opportunity for merchants to make money!
 
 *お祭りは商人としては稼ぎ時だったのに！*
 
 &nbsp;
 
-I've been so busy running ...... and working with the Five Elders that I've completely lost track of it all. ......!
+"……I was so busy with the management side and focused on taking care of the Five Elders that I completely forgot about that……!"
 
 *「……運営側で色々忙しかったのと、五大老のみんなを労うのに夢中でそのあたりの事すっかり頭から抜けてた……！」*
 
-Thanks for your time."
+"Thank you for your hard work."
 
 *「お疲れ様です」*
 
 &nbsp;
 
-Ugh. Carina Shonin's name weeps. ......
+Ugh. Karina Shonin's name is going to be tarnished……
 
 *うぐぅ。カリーナ・ショーニンの名が泣くぜ……*
 
@@ -52,7 +52,7 @@ Ugh. Carina Shonin's name weeps. ......
 
 &nbsp;
 
-So, even though I was not able to make any money at the festival, I thought I would use the power of the Five Elders to make some money here.
+That being said, even though I couldn't earn anything at the festival, I thought I might as well use the power of the Five Elders to make some money.
 
 *というわけで、お祭りで稼げなかった私だけど、ここはひとつ五大老の権力を使ってお金稼ぎをさせてもらおうかなと思った次第。*
 
@@ -60,67 +60,67 @@ So, even though I was not able to make any money at the festival, I thought I wo
 
 &nbsp;
 
-I have rather a lot of power as the Five Elders, that is, the heads of state, have become my wives through and through.
+The Five Elders, meaning the top of the country, have quite a bit of power over me, as I have become their consort.
 
 *五大老、つまり国のトップが通い妻となった私には、わりと権力がある。*
 
-If you ask for something, all the Five Elders will grant it.
+If I ask for something, the Five Elders will likely grant it.
 
 *何かしらお願いをすれば、五大老のみんなが叶えてくれちゃったりするわけだ。*
 
 &nbsp;
 
-However, I can't ask for too much.
+That said, I can't ask for anything too outrageous.
 
 *とはいえ、あんまりにもあんまりな事はお願いできない。*
 
-I was lucky to get the return of the sacred artifact this time because it was a request that I was allowed to fulfill, but if this had been about making all the Tessin dwarves my wives and creating a super harem, it would have been absolutely impossible.
+This time, the request for the artifact return was fortunate enough to be a reasonable request, so it was granted, but if I had asked to make all the dwarves of Tesshin my wives and create a super harem, that would have been absolutely impossible.
 
 *今回の神器返納は運よく叶えてもいいお願いだったから叶えてもらえたけど、これがテッシンのドワーフちゃんたちを全員私の妻にしてスーパーハーレムにする、とかだったら絶対に無理だっただろう。*
 
 &nbsp;
 
-It's also a good idea not to ask them to cover up for a serious crime, well, you shouldn't.
+It would also be better to avoid asking for protection for serious crimes.
 
 *重犯罪を庇ってもらうのも、まぁやめといたほうが良いだろう。*
 
-It would not be impossible, but it would be a waste of money. The power, or rather the authority, of the Five Elders will be reduced.
+While it might not be impossible, it would be a waste. It would diminish the power, or rather the authority, of the Five Elders.
 
 *できなくはないだろうけど、無駄遣いだ。五大老の権力、というか権威が減る。*
 
 &nbsp;
 
-And there are places where power does not extend to "guilds," which are organizations that span the country.
+Moreover, there are areas where their power does not extend, such as the organization that spans across countries, the "Guild."
 
 *そして、国をまたいだ組織である『ギルド』についても権力の及ばないところはある。*
 
 &nbsp;
 
-An example would be a 'license to handle alcoholic beverages.
+For example, things like "liquor handling licenses."
 
 *例を挙げるなら、『お酒の取扱い免許』とかだ。*
 
-It seems that Tessin has already issued the largest number of these in the country, so it would not be easy to issue new ones to me.
+It seems that Tesshin has already issued the maximum number of licenses as a country, and it wouldn't be easy to issue a new one to me.
 
 *既にテッシンでは国として最大数を発行しているらしく、新規に私に発行、というようなことは簡単にはいかない。*
 
-When an existing license holder retires due to misfortune, there is a long line of people waiting for their turn.
+Even if an existing license holder experiences misfortune and retires, there is a long line of people waiting.
 
 *既存の免許の持ち主に不幸があったりで引退しても、順番待ちがずらっと並んでいる。*
 
 &nbsp;
 
-Well, it might be possible to interrupt that order. ......
+Well, it might be possible to cut in line, but……
 
 *まぁ、その順番に割り込ませて、というのは可能かもしれないけど……*
 
 &nbsp;
 
-I don't want to tear up such a side note against a person who is in the serious business of alcohol.
+I really don't want to pull such a stunt on those who are seriously engaged in the liquor business.
 
 *流石に真面目にお酒の商売している人に対し、そんな横紙破りはしたくはない。*
 
-It's Carina, who I respect as a senior or something.
+I respect my seniors, after all.
 
 *先輩とかリスペクトしちゃうカリーナちゃんなのだ。*
 
@@ -130,29 +130,29 @@ It's Carina, who I respect as a senior or something.
 
 &nbsp;
 
-Therefore, I asked Mee and his team to buy everything they had on hand for sale, and only to introduce me to good sake from good breweries.
+So, I decided to just have Mi-chan and the others buy all the items I had for sale and introduce me to good liquor from reputable breweries.
 
 *というわけだから、ミーちゃん達には手持ちの売り物を全部買ってもらうのと、良い酒造の良いお酒を紹介してもらうだけに留めておいた。*
 
 &nbsp;
 
-He bought it with a great deal of color, so he had a whopping two gold coins in his possession!
+They bought it at a generous markup, so I ended up with a total of two gold coins!
 
 *盛大に色付けて買い取ってくれたから、所持金はなんと金貨２枚！*
 
-It is equivalent to 2 million Japanese yen! (according to Karina-chan)
+That's equivalent to about two million yen! (According to Karina-chan's research)
 
 *日本円にして２００万円相当である！（カリーナちゃん調べ）*
 
 &nbsp;
 
-And even though the liquor trade is basically a gray tessin, fire wine is treated as liquor, so we need to keep it within the bounds of private transactions here - but we need to keep it within the bounds of private transactions.
+And while liquor trading is generally gray in Tesshin, fire liquor is treated as liquor, so it needs to stay within the realm of personal transactions――
 
 *そしてお酒取引は基本的にグレーのテッシンでも、火酒はお酒として取り扱うため、ここは個人取引の範囲に収める必要があるのだが――*
 
 &nbsp;
 
-What an absurd theory that "all the Five Elders drink so much that no matter how much they buy, it is within the range of private transactions" is also accepted!　Yes, if you have the power!
+Surprisingly, the ridiculous theory that "the Five Elders drink a lot, so no matter how much you buy, it's within the scope of personal transactions" also holds true!! Yes, as long as you have power!!!
 
 *なんと「五大老の皆は凄く飲むのでどれだけ買っても個人取引の範囲」という無茶苦茶な理論もまかり通るのだ！！　そう、権力があればね！！！*
 
@@ -160,7 +160,7 @@ What an absurd theory that "all the Five Elders drink so much that no matter how
 
 &nbsp;
 
-Come on, give me my all as a merchant - as much fire wine as two gold coins can buy!
+Now, as a merchant, I want as much fire liquor as I can get for two gold coins!!
 
 *さぁ、商人としての私の全力――金貨２枚で買えるだけの火酒をくださいな！！*
 
@@ -170,15 +170,15 @@ Come on, give me my all as a merchant - as much fire wine as two gold coins can 
 
 &nbsp;
 
-...... Eh?　I'm sure there are plenty of normal dwarves who drink this much, so you don't have to make excuses like that?
+……Huh? You mean to say that even ordinary dwarves would drink this much, so I don't need to make excuses?
 
 *……え？　別にこの程度なら普通のドワーフでも飲む奴わりといるからそんな言い訳無くても大丈夫？*
 
-Oh, oh. Okay.
+O-oh. Is that so?
 
 *お、おう。そうですか。*
 
-(In addition, the discount for referrals was 10% lower than the price of the original.)
+(Also, there was a 10% discount for being a referrer.)
 
 *（尚、紹介者割引で１割安くなっていたりもした）*
 
@@ -186,7 +186,7 @@ Oh, oh. Okay.
 
 &nbsp;
 
-Well, I was able to sort out some of my stuff, and I heard that wholesaling fire wine to merchant guilds in other countries can be worth three gold coins, so I made a profit, if you ask me, right?
+Hmm, well, I've managed to organize my various belongings, and it seems that selling fire liquor directly to merchants from other countries would yield three gold coins, so I did make a profit, but……?
 
 *うーん、まぁこまごまとした荷物が整理できたし、火酒をそのまま他国の商人ギルドに卸しても金貨３枚にはなるらしいし、儲けたといえば儲けたんだけどもね？*
 
@@ -194,33 +194,30 @@ Yeah.
 
 *うん。*
 
-...... I'm not sure how to explain it.
+……I feel a bit uneasy about this?
 
 *……微妙に釈然としないなぁ？*
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(I'm torn between writing a new piece for KakuyomCon and promoting Atogoji.
+(I’m caught in a struggle between wanting to write a new piece for the Kakuyomu contest and promoting my work, debating whether to write an update.
 
 *（カクヨムコンに向けて新作書きたいのと、あとごじの宣伝したいのとで更新分書くかどうかのせめぎあいが起きている。*
 
-Damn, I could write both if my writing skills were better. ......!
+Damn, if only my writing skills were higher, I could do both……!!
 
 *くっ、私の執筆力がもっと高ければ両方書けるのに……！！*
 
 &nbsp;
 
-The official account is still frozen.
+By the way, it seems the official account is still suspended.
 
 *尚、公式アカウントの方はまだ凍結してる模様。*
 
-(I've replaced the link to the cover image with the list of store perks now that it's available.)
+For now, the list of store bonuses has been released, so I’ve changed the link for the cover image to that.)
 
 *とりあえず店舗特典一覧がでたので、表紙画像のリンク先をそちらに替えときました。）*
-

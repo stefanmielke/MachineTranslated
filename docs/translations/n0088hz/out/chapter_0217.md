@@ -1,298 +1,298 @@
-# It works, it works.
+# It's working, it's working.
 
 ## 効いてる効いてる。
 
-You'll remember this later, nyaaah!"
+"Y-you bastard, remember this later, nyaaa!?"
 
 *「て、てめえっ、後で覚えてろにゃああ！？」*
 
 &nbsp;
 
-Misha, red-faced and teary-eyed, howls.
+Misha, with a bright red face and teary eyes, roars.
 
 *ミーシャ選手、顔真っ赤で涙目になりながら吼える。*
 
 &nbsp;
 
-I'm scared, scared, scared. Ugh, I'm almost out of restraints. ......!"
+"Yikes, scary, scary. Ugh, it feels like the restraints are about to come off...!"
 
 *「ひぃ、怖い怖い。うう、もう少しで拘束が解けてしまいそうだ……ッ！」*
 
-When the restraints are off, that's the end of you!
+"When the restraints come off, that's your end, nyaaa!!"
 
 *「拘束が外れた時がオマエの最後にゃああ！！」*
 
-I'll pet him to put him in a good mood. And the base of the tail. Tontontonton......"
+"I'll pet you to keep you in a good mood. Also, the base of your tail. Pat pat pat..."
 
 *「機嫌とるために撫でておこう。あと尻尾の付け根を。とんとんとん……」*
 
-I'm not going to let you do that.　Oh, no, no, no, no, no, no!
+"Wait, seriously stop it, nya!? Ah, ah, ah, no, hey!?"
 
 *「ちょまっマジやめろにゃ！？　あっあっあっ、やば、こらぁっ！？」*
 
 &nbsp;
 
-Oh, it was fun. It's not every day that I get to play with a beautiful cat-eared girl in front of such a large gallery of people.
+Ah, this is fun. Playing with a cat-eared beautiful girl in front of this many spectators isn't something you get to do every day.
 
 *あー楽しい。これだけのギャラリーの前で猫耳美少女をお尻ぺんぺんとか、そうそうできるプレイじゃあないよ。*
 
 &nbsp;
 
-Carina player!　That doesn't sound like an attack that would accumulate damage--"
+"Karina! That doesn't seem like an attack that accumulates damage, does it—"
 
 *「カリーナ選手！　それはダメージを蓄積するような攻撃ではないようだが――」*
 
-"It's an anomaly-inflicting attack, what is it?
+"It's a status effect inflicting attack, so what!?"
 
 *「状態異常付与攻撃ですが、何かッ！？」*
 
-Mmm-hmm!　Then it can't be helped. ......"
+"Ugh, well then, I guess there's no helping it..."
 
 *「む、むぅ！　なら仕方あるまい……」*
 
-Damn it!　Referee Gorrah!　You've got to stop this thing properly!　There's no such thing as an abnormal attack like this ...... ahihi!"
+"You! Referee! Stop this properly, nya!? There's no way such a status effect attack exists... Ah!"
 
 *「てめっ！　審判ゴラァ！　ちゃんと止めろにゃ！？　こんな状態異常攻撃とかあるわけ……あひっ！」*
 
 &nbsp;
 
-Misha is shaking. It's working, it's working.
+Misha trembles. It's working, it's working.
 
 *ブルッと震えるミーシャ選手。効いてる効いてる。*
 
 &nbsp;
 
-I'm not sure if the body is honestly in a state of shock or not, but it seems to be working. Oh, shit, I'm about to be unbound!　Ten, nine, eight. ......"
+"Ho ho ho, it seems the body is honestly affected by the status effect. Uh oh, it's about time the restraints are coming off! 10, 9, 8..."
 
 *「ほほほ、身体は正直に状態異常が効いているようだな。っと、やっべ、そろそろ拘束がほどけるっ！　１０、９、８……」*
 
-Oh, oh!　A few more seconds!　Ugh, hurry, stop thumping!
+"O-oh!? Just a few more seconds, nya!? Ugh, hurry, stop the patting, nya!"
 
 *「お、お！？　あと数秒だにゃ！？　うう、は、はやく、トントンやめるにゃ！」*
 
-"...... naaaaahhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh!"
+"......naaaaaaaaaaaaaaaaaaaah, rock"
 
 *「……なぁーーーーーーーーーーーな、ろぉぉぉーーーーーーーーーっくっ」*
 
-Hey, hey, hey!　Don't slow down the count, eh nyaaaaah!!!!"
+"Hey!? Don't slow down the count, nyaaaaaa!!!"
 
 *「おいいいい！？　カウント遅くすんじゃねぇええにゃあああー！！！」*
 
 &nbsp;
 
-Misha is angry and jittery. Of course, the restraints are not removed.
+Misha, angry and flailing. Of course, the restraints don't come off.
 
 *怒ってジタバタするミーシャ選手。もちろん拘束は外れない。*
 
-Hmmm... I guess that's what they mean when they say, "If you hit it, it will hit you. I'm having a lot of fun.
+Hehehe, this is what it means to strike a chord. It's getting really fun.
 
 *ふふふ、打てば響くというのはこう言うことだろう。凄く楽しくなってきたぜ。*
 
 &nbsp;
 
-I'm trying my best to hold out so the restraints don't come off, so of course the count will be slower. Right, judge?"
+"I'm trying my best to hold on so the restraints don't come off, so of course the count is going to be slow. Right, referee?"
 
 *「私だって拘束が外れないように頑張って堪えてるんだから、カウントが遅くなったりするに決まってるじゃないですか。ねぇ審判？」*
 
-Huh?"　Oh, yeah, is that right?"
+"Huh? Ah, is that so?"
 
 *「え？　あ、そう、なのかな？」*
 
-Hey!　You're cheating me!　He's not counting right now!　If he thinks he can solve the problem by counting, he's lying!
+"Hey! Don't be fooled, nya!? This guy isn't counting right now, nya!! The idea that it would come off with the count must be a lie!?"
 
 *「おい！　騙されるニャ！？　コイツ今カウントしてねぇにゃ！！　カウントで解けるとかさては嘘にゃ！？」*
 
-Go, yo, sahhhhhh ......"
+"Go, four, three......"
 
 *「ごー、よーん、さーーーーん……」*
 
-'Whoa, whoa, just a little more!　Just a little more endurance and you'll be released. ......"
+"O-oh, just a little more! If I can hold on a bit longer, I'll be freed..."
 
 *「おっ、おっ、あとちょっと！　あとちょっと堪えれば解放される……」*
 
-Nii, yeeeeeeeeeeeeeeeeeeeeeeeeeee ...... zero! (Bashin!)　Zero! (Bashin!)　Zeroooooooooooooooooooooooooooooooooooooooooooooooooooooo! (Bashhhhh!!!)"
+"Three, two, one...... zero! (smack!) Zero! (smack!) Zeroooooo!! (smack!!!)"
 
 *「にー、いーち……ゼロッ！（ばしん！）　ゼロッ！（ばしーん！）　ゼローーーッ！！（ばしーーーーーんっ！！）」*
 
-Migyaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa?"
+"Migyaaaaaaaah!?"
 
 *「みぎゃああああああーーーー！？」*
 
 &nbsp;
 
-When the count reached zero, I slapped her ass as hard as I could, and Misha went limp, shaking and shaking.
+Since the count reached zero, I smack her bottom hard, and Misha trembles and goes limp.
 
 *カウント０になったので思いっきり尻を叩いてやると、ミーシャ選手はビクビクと震えながらぐったりとした。*
 
 &nbsp;
 
-I'm not bound!　You tricked me!
+"Wait, the restraints didn't come off, nya?! You tricked me!?"
 
 *「って、拘束とけてねーにゃ？！　騙したニャ！？」*
 
-I never said that I could solve the problem when the count reached zero.　It was just a countdown to the flap.
+"No, I never said it would come off when the count reached zero, did I? It was just a countdown until I hit you."
 
 *「いやそもそも私カウントが０になったら解けるなんて一言も言ってないが？　はたくまでのカウントダウンだっただけだが？」*
 
-'Teeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee ！！！！　Pinyaaa!"
+"Youuuuuuuuuuu!!!! Pinyah!?"
 
 *「てめーーーーーーッ！！！！　ぴにゃあっ！？」*
 
 &nbsp;
 
-Bash!　and slap his buttocks. Tears spilled from Misha's eyes.
+Smack!! I deliver a final smack. Tears trickle down Misha's eyes.
 
 *ばしーんっ！！　と尻を叩ききる。ミーシャ選手の目からほろりと涙が零れた。*
 
 &nbsp;
 
-I'm sure if I hit him 10 more rounds, he'll probably release the restraints. Hey, Misha. Can you count how many times I hit you?"
+"Phew, if I smack it about ten more times, the restraints might come undone. Hey, Misha, can you count how many times I've hit you?"
 
 *「ふぅ、あと１０発くらい叩いたらきっと拘束が解除されてしまうかも。ねぇミーシャ選手。何回叩いたか数えてくれる？」*
 
-"......Ugh, ugh, awful!　They're toying with me... ......!
+"Ugh… you're terrible, nya! You're toying with me…!!"
 
 *「……うう、うっ、ひでーにゃ！　弄ばれてるにゃあ……ッ！！」*
 
-'Oh come on, it's a sentiment when you don't take your spats off. If you want, you can expose Misha's preggy ass to the Coliseum audience."
+"Come on, I’m being nice by not taking off your spats, aren’t I? I could always show off Misha’s cute butt to the audience in the colosseum, you know?"
 
 *「おいおいスパッツ脱がせてない時点で有情だろうが。なんならコロシアムの観客にミーシャのプリケツ晒しても良いんだぜ？」*
 
-Stop oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo?"
+"Stop it, noooo!!"
 
 *「やめろぉおおおおーーーーーーー！？」*
 
 &nbsp;
 
-Hmmm...I think it's time to go.
+Heh, I think that’s enough now.
 
 *ふふふ、そろそろいいかな。*
 
 &nbsp;
 
-"Oh, judge. I give up."
+"Oh, referee. I forfeit!"
 
 *「あ、審判。私、降参しまーす」*
 
-What about?"
+"What?"
 
 *「は？」*
 
 &nbsp;
 
-I declared so.
+That’s what I declared.
 
 *私はそう宣言した。*
 
 &nbsp;
 
-"Well, I'm at the end of my rope, and I can't hold Misha any longer.
+"I’m at my limit, you see, and I just can't keep restraining Misha any longer."
 
 *「いやー力の限界でぇ、もうこれ以上ミーシャ選手を拘束できなくてぇ」*
 
 &nbsp;
 
-I say, while patting Misha's butt. I feel like a villain petting a cat while tilting a glass of wine.
+I said this while gently patting Misha’s butt, feeling like a villain stroking a cat with a glass of wine in hand.
 
 *と、ミーシャ選手の尻を撫でつつ言う。ワイングラス傾けながら猫を撫でる悪役の気分だ。*
 
 &nbsp;
 
-I'm a winner!　Misha, the player ......?
+"Uh, the winner… Misha…?"
 
 *「しょ、勝者！　ミーシャ選手……ッ？？」*
 
 &nbsp;
 
-The referee was puzzled and declared so.
+The referee announced the winner, albeit with some confusion.
 
 *審判は戸惑いながらもそう宣言した。*
 
-The audience booed.
+The crowd erupted in boos.
 
 *会場からブーイングが飛んでくる。*
 
 &nbsp;
 
-What the hell?　Take it seriouslyーー！!"
+"What the—!? Take it seriously!"
 
 *「なんだとー！？　真面目にやれーーー！！」*
 
-Don't be silly!　You were one-sided, no matter how you look at it!"
+"This is a joke! She was obviously getting beaten the whole time!"
 
 *「ふざけるな！　どう見ても一方的にやられてただろ！？」*
 
-"I give up!　Why?　Misha, you haven't done anything!
+"Forfeit? Why? Misha didn’t even do anything!"
 
 *「降参だって！？　なんで！？　ミーシャ選手何もできてねぇじゃん！」*
 
 &nbsp;
 
-That's right. I was too selfish, surrendering in addition to being unserious. Misha was also staring at me.
+Well, of course. It’s pretty outrageous to quit like this when I wasn’t even serious. Misha shot me a glare.
 
 *そりゃそうだ。不真面目なうえに降参とか勝手が過ぎる。ミーシャ選手も私を睨んでいた。*
 
 &nbsp;
 
-"Oh ......, you've got to be kidding ......."
+"You… this is too much…!!"
 
 *「おま……ふ、ふざけ……大概に……ッ」*
 
-I'll keep one of the promised gold coins in my spats!
+"I’ll put that promised gold coin right inside your spats, okay?"
 
 *「約束の金貨１枚はスパッツの中にいれとくねぇー！」*
 
-Nyahi!　Chill ......"
+"Nya—! Cold…!"
 
 *「にゃひっ！　冷たっ……」*
 
 &nbsp;
 
-And I screwed a gold coin through the tail hole into Misha's spats.
+I slid the coin into her spats through the tail hole.
 
 *と、私はミーシャのスパッツに、尻尾穴から金貨をねじ込んだ。*
 
-Healer funds, but God will make up for it later, and that's fine. Then I whisper softly into Misha's ear, who is still bound.
+It’s for the healer fund, but it’s fine; the gods will reimburse me later. Then, I leaned in close to whisper in her ear.
 
 *ヒーラー資金だが、あとで神様から補填はいるしいいだろう。そして、まだ拘束されてるミーシャの耳元にそっと囁く。*
 
 &nbsp;
 
-I'll just take your socks as a souvenir of the match. Is that okay with you, Misha?"
+"Oh, and as a souvenir of our match, I’ll be taking your socks. Okay, Misha-chan?"
 
 *「あ、勝負の記念に靴下だけ貰ってくね。いいよねミーシャちゃん？」*
 
-"Ugh ......, I won, I made a mistake ......."
+"H-Hey, since I won, that goes against the deal…!"
 
 *「ふぐっ……わ、私が勝ったにゃら、約束が違……」*
 
-Huh?　Huh?　You think you've won with this?　Pfft, that's hilarious."
+"Oh? Oh really? You actually think you won? Haha, that’s hilarious."
 
 *「あれ？　あれれ？　これで勝ったつもりなの？　ぷぷっ、ウケる」*
 
-"......~~!　Motto, motto, nyah~~~!" "......~~!"
+"…Just… take them… nya…!"
 
 *「……～～～ッ！！　も、もってけ、にゃっ……！」*
 
 &nbsp;
 
-Misha got teary-eyed and had me take off his socks. I still couldn't move.
+Misha, with teary eyes, let me pull off her socks since she still couldn’t move.
 
 *ミーシャは涙目になりながら、私に靴下を脱がされた。まだ動けなかったので。*
 
-Phew, I got into the groove and had fun too. My bad.
+Ah, I got a bit carried away and really enjoyed myself. Sorry about that.
 
 *ふう、私もついついノリノリで楽しんでしまったよ。悪かったね。*
 
 &nbsp;
 
-...... overwhelmingly defeated and conceded the victory!　This is quite humiliating for a fighter!　Nice humiliation indeed, Karina!　Genius!　My dear child.
+"…Losing so overwhelmingly, only to have the victory handed over! This is quite a humiliation for a fighter! Karina, you’ve done a brilliant job of shaming her! Genius! My beloved child!"
 
 *『……圧倒的に負けながら、勝利を譲られる！　これは闘士にとってかなりの屈辱ですねぇ！！　さすがカリーナちゃんナイス辱め！！　天才！！　私の愛し子』*
 
 &nbsp;
 
-And the god statue was shining in a good mood.
+The divine statue shone brightly, clearly pleased.
 
 *そして神像は上機嫌に輝いていた。*
 
@@ -301,4 +301,3 @@ And the god statue was shining in a good mood.
 &nbsp;
 
 &nbsp;
-

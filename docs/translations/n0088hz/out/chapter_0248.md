@@ -1,142 +1,142 @@
-# Oh, well?
+# Oh dear?
 
 ## おやおや？
 
 &nbsp;
 
-Miko, your attendants. Breakfast is served."
+"Lady Miko, and your companions. Breakfast is ready."
 
 *「巫女姫様、お付きの方々。朝食をご用意しました」*
 
 &nbsp;
 
-and in a Japanese-style tatami room, grilled fish, rice, and miso soup were served on the table. There was also a spinach salad, a very ordinary one-soup, two-course, Japanese breakfast.
+In the tatami room, grilled fish, rice, and miso soup are laid out on the table. There's also a spinach side dish, making it a typical one soup, two sides, Japanese breakfast.
 
 *と、畳の和室で、焼き魚とお米、お味噌汁が食卓に並ぶ。ほうれん草の和え物もあってごく普通の一汁二菜、和食の朝食。*
 
 &nbsp;
 
-I'm thinking, "...... is Japanese food, this!　Is it normal, Japanese food!
+"...Wait, this is Japanese food! It's actually here, Japanese food!!"
 
 *「……って和食だこれー！　普通にあるのか、和食！！」*
 
-'Sis, what is washok?"
+"What is 'Washoku,' big sister?"
 
 *「お姉さん、ワショクってなんですか？」*
 
-"Uh, ...... traditional food in our hometown?　It's usually something like this on the menu."
+"Ah... it's the traditional food from my hometown? It's usually something like this."
 
 *「あー……ウチの故郷の伝統食？　大体こんな感じのメニューだよ」*
 
 &nbsp;
 
-Well, it's a world where reincarnated people or people who have moved to another world are common, so it's not surprising that there is Japanese food. ......Mmmm, it would be a shame not to be able to eat a good breakfast. ......
+Well, it's a world where reincarnators or transferors probably exist, so it's not surprising to have Japanese food. ...Hmm, in that case, it's a shame I can't eat it all after having a proper breakfast...
 
 *まぁ転生者だか転移者だかが普通に居るであろう世界だもの、和食があってもおかしくない。……むむむ、こうなると朝ごはんしっかり食べちゃって食べられないのがもったいないな……*
 
-Oh, I should just save it for a normal time-stopped storage space. I'll eat it later. Just a pop.
+Oh, I could just store it in a time-stopped space. I'll eat it later. Just like that.
 
 *あ、普通に時間停止した収納空間にとっとけばいいのか。あとで食べよう。ぽいっとな。*
 
 &nbsp;
 
-Incidentally, chopsticks and a wooden spoon are provided. It's a nice gesture for those who can't use chopsticks. That's hospitality!
+By the way, chopsticks and a wooden spoon are provided. It's a nice consideration for those who can't use chopsticks. Such hospitality!
 
 *ちなみに箸と木のさじが置いてある。箸が使えない人にも考慮された良い心遣いだ。おもてなしだな！*
 
 &nbsp;
 
-"......, ya'll smell funny."
+"...Meow, it smells strange."
 
 *「……にゃー、変な匂いにゃー」*
 
-Miso soup. Not a fan of miso?　You mix it with rice and it becomes a rice dish called nekomanma."
+"It's miso soup. Are you not good with miso? Mixing it with rice makes it a cat's meal."
 
 *「味噌汁だね。味噌は苦手？　ご飯と混ぜて食べると猫まんまという飯になるんだよな」*
 
-Can we mix it up?"　Let's see... ...... Oh, that's pretty good!　This is pretty good!
+"I can mix it! Let's see... Oh! This is actually pretty good!"
 
 *「混ぜて良いのか！　どれどれ……おー！　こりゃ結構イケるにゃあ！」*
 
 &nbsp;
 
-Without hesitation, Misha poured miso soup over rice and ate it with a wooden spoon. She also picked up grilled fish by the tail and ate it head first. The bones stick, don't they?
+Misha poured miso soup over her rice without hesitation and ate it with the wooden spoon. She also picked up the tail of the grilled fish and started munching on it from the head. You're going to get bones stuck, you know?
 
 *ミーシャは何の躊躇もなく味噌汁をご飯にぶっかけ、木のさじで食べた。焼き魚も尻尾をつまみ上げて頭からバリバリと食べている。骨刺さるよ？*
 
 &nbsp;
 
-Do you eat separately? Usually, this is the main dish and this is the side dish, and soup.
+"I'll eat them separately. This is the staple food, and this is the side dish, right? And the soup."
 
 *「ボクは別々で食べますか。普通にこちらが主食でこっちがおかずですよね、それとスープ」*
 
 &nbsp;
 
-Dia easily eats with chopsticks.
+Dear-kun smoothly used chopsticks to eat.
 
 *ディア君はすんなりと箸を使って食べていく。*
 
 &nbsp;
 
-I'll have some myself. Grilled fish, grilled fish.
+"I'll have some too. Grilled fish, grilled fish."
 
 *『自分もいただくっすねー。焼き魚ー、焼き魚ー』*
 
 &nbsp;
 
-Gulp and eat the grilled fish as if you were going to eat the whole thing. Do you eat rice and miso soup?　Oh, you eat them. Just like that.
+He gulped down the grilled fish whole. Are you going to eat the rice and miso soup? Oh, you are. Just like that.
 
 *ガーッと焼き魚を丸のみするように食べていく。ご飯とみそ汁は食べるの？　あ、食べるんだね。フツーに。*
 
 &nbsp;
 
-"Whew, I snagged it!"
+"Ah, I'm full."
 
 *「ふー、くったくったにゃー」*
 
-Thank you for the food."
+"Thank you for the meal."
 
 *「ごちそうさまでした」*
 
-'Oh, it was so-so! ......fuh ......'
+"Ah, it was okay! ...Yawn..."
 
 *『あー、まぁまぁだったっすね！……ふぁぁ……』*
 
 &nbsp;
 
-And Arthur yawns.
+Arthur yawned.
 
 *と、アーサーがあくびする。*
 
 &nbsp;
 
-'I'm getting sleepy ......'
+"I'm starting to feel sleepy..."
 
 *『なんか眠くなってきたっす……』*
 
-'Hey, hey, did you stay up late last night?'
+"Hey, did you stay up late last night?"
 
 *「おいおい、昨日夜更かしでもしたの？」*
 
 &nbsp;
 
-Arthur rubs his eyes with a comb. He looks like a cat washing his face.
+Arthur rubbed his eyes. He looked like a cat washing its face.
 
 *くしくしと目を擦るアーサー。顔を洗う猫のようだ。*
 
 &nbsp;
 
-I'm not sure if it's a good idea to eat two meals a day, but I'm sure it will make you sleepy. ......Suyaa......"
+"Ah, eating two meals makes me sleepy... Zzz..."
 
 *「あー、２食分の飯食ったら眠くなるもんにゃ。……すやぁ……」*
 
-"I'm also getting sleepy ...... with a bloated tummy."
+"I'm feeling sleepy too with a full stomach... Mmm..."
 
 *「ボクもお腹が膨れて眠くなって……んん……」*
 
 &nbsp;
 
-Oh well?　Misha and Mr. Dear have gone to lie down too.
+Oh dear? Misha and Dear-kun have also laid down.
 
 *おやおや？　ミーシャとディア君も横になってしまった。*
 
@@ -150,43 +150,43 @@ Oh well?　Misha and Mr. Dear have gone to lie down too.
 
 &nbsp;
 
-A peck, a peck on Dear's cheek. A light slap on Misha's buttocks. I pluck one of Arthur's scales. I don't think he's going to wake up. He's too sleepy.
+I poked Dear-kun's cheek. I lightly slapped Misha's bottom. I plucked a scale from Arthur. Hmm, they're not waking up. They're really deep in sleep.
 
 *つんつん、とディア君の頬をつつく。ミーシャの尻を軽く叩く。アーサーの鱗を１枚もぐ。うん、起きないなぁ。グッスリにしても程がある。*
 
-It is indeed unnatural.
+It's quite unnatural.
 
 *さすがに不自然だ。*
 
 &nbsp;
 
-Ah!　Is that what this is?　They put sleeping pills in the rice, and they're going to sacrifice us with them!
+Ah! Could this be that thing!? They must have slipped sleeping pills into the food, and they're planning to use us as sacrifices!
 
 *あっ！　これもしかしてアレじゃね！？　ご飯に睡眠薬仕込んであって、それで私達を生贄にしようっていうアレ！*
 
 &nbsp;
 
-"...... Okay!"
+"...Alright!"
 
 *「……よし！」*
 
 &nbsp;
 
-We have to ride this big wave.
+I have to ride this big wave.
 
 *乗るしかないこのビッグウェーブに。*
 
-I gently lay down too. It would be nice and easy if I could pretend to be asleep and they would carry me to the dragon.
+I also quietly laid down. If I pretend to sleep, it would be nice if they carry me to the dragon.
 
 *私もそっと横になった。寝たフリしとけば、ドラゴンのところまで運んでくれるんなら楽でいいね。*
 
-Of course, I'll retaliate later. I'm going to have to make him give up his socks to the dragons. And I also need you to make me a Japanese meal without sleeping pills.
+Oh, of course, I'll take revenge later. I need to send the dragon after them to make them give me their socks. And I need them to make Japanese food without sleeping pills too.
 
 *あ、もちろん後で報復はするぞ。ドラゴンけしかけて靴下差し出させなきゃだからね。それと睡眠薬なしの和食も作ってもらわなきゃだ。*
 
 &nbsp;
 
-Don't touch anything weird, okay?　If it's a girl, you can touch her, though.
+Don't touch the weird parts, okay? If it's a girl, you can touch, though.
 
 *変な所は触るんじゃないぞ？　女の子だったら触っていいけどね。*
 
@@ -195,4 +195,3 @@ Don't touch anything weird, okay?　If it's a girl, you can touch her, though.
 &nbsp;
 
 &nbsp;
-

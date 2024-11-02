@@ -1,11 +1,10 @@
-# Damina Nisseisha (tentative)
+# ダミーナ・ニセイシャ（仮）
 
 ## ダミーナ・ニセイシャ（仮）
 
-(I ran the Yu-Gi-Oh Master Duel festival with a sushi deck, so I bought some half-priced sushi at the supermarket, but I dropped it and smashed the contents all over the supermarket floor. (T-T) I cry...)
+（I participated in the Yu-Gi-Oh! Master Duel festival with a sushi deck, and I bought half-price sushi at the supermarket, but I dropped it and spilled the contents all over the supermarket floor. (Ｔ-Ｔ) So sad.）
 
 *（遊戯王マスターデュエルのフェスを寿司デッキで走ったので、スーパーで半額のお寿司を買ったんですが、落として中身をスーパーの床にぶちまけてしまいました。(Ｔ-Ｔ)泣ける。）*
-
 
 ----------------
 
@@ -13,15 +12,15 @@
 
 &nbsp;
 
-My name is Karina!　I've come to the slaver with a great deal in my hand!
+I am Karina-chan! I came to the slave trader with some great deals!
 
 *私カリーナちゃん！　お買い得情報を手に奴隷商へやってきたの！*
 
-Do you have any bargain slaves worthy of our company?
+Is there a suitable bargain slave among us?
 
 *私たちの仲間にふさわしい、お買い得奴隷さんは居るかしら？*
 
-If a girl looks good in socks, nothing to say!
+If it's a girl who looks good in socks, that would be perfect!!
 
 *靴下が似合う女の子なら言うことなしよ！！*
 
@@ -29,139 +28,139 @@ If a girl looks good in socks, nothing to say!
 
 &nbsp;
 
-A good-looking woman or a skilled man will still cost you a lot of money. ......
+"Good-looking women and those with skills tend to be quite expensive... so for one gold coin..."
 
 *「見目の良い女性や、技能がある者はやはりお高くなりますので……金貨１枚ですと」*
 
 &nbsp;
 
-Well, of course.
+Well, that's only natural.
 
 *まぁ当然だ。*
 
-As one would expect, even with such a large inventory, the best of the best would be immediately sent to the whorehouse. If the senior adventurers are hearing about it, it must have already been scavenged by professionals in that field.
+Even if there are several in stock, the pick of the lot would likely go straight to the brothel. By the time the senior adventurers hear about it, the professionals have probably already fished through them.
 
 *さすがにこの数在庫がいても選りすぐりの器量よしは即娼館行きだろう。冒険者の先輩達に話が聞こえている時点で、もうそっちのプロが漁った後に違いない。*
 
-Still, with this number of arrivals, there must be some bargains that even the professionals could not pick up.
+Still, with this stock, there should be some hidden gems that even the pros couldn't pick up.
 
 *それでもこの入荷数、プロでも拾いきれなかった掘り出し物があるはずだ。*
 
 &nbsp;
 
-"Can't even get an uneducated one?"
+"Would it be impossible for the uneducated?"
 
 *「無教育のでも無理かな？」*
 
-If you undercut the purchase price, you will lose money. Please forgive me. An uneducated village girl will be worth three gold coins, and a pretty girl, say, ...... ah, even a baby?"
+"If the purchase price is too low, it would be a loss. I ask for your understanding. Even an uneducated village girl would be worth three gold coins, and if she's a cute girl... ah, would a baby be acceptable?"
 
 *「買取価格を割ってしまいますれば、損になってしまいます。ご容赦を。未教育の村娘でも金貨３枚にはなりますし、可愛い女の子、となりますと……ああ、赤子でも良いですかな？」*
 
-'Babies are completely out of scope, I guess.
+"A baby is completely off the table."
 
 *「赤ちゃんは完全に対象外なんだよなぁ」*
 
 &nbsp;
 
-Or rather, buying even babies? The last safety net is not so great.
+Wait, they even buy babies? The last safety net isn't just for show.
 
 *というか赤子でも買いとるのか。最後のセーフティーネット伊達じゃねぇな。*
 
-Hmmm, well, I'm not forcing myself to bargain. Three gold coins is well within my budget.
+Hmm, well, I'm not trying to haggle too hard. Three gold coins could be within budget.
 
 *うーん、まぁ無理に値切ろうってわけじゃない。金貨３枚なら予算内ともいえる。*
 
-But if you simply give up the budget cap, you will be squeezed. Let's explore a little more.
+But if I casually reveal my budget limit, I'll just get squeezed dry. I should probe a little more.
 
 *けどあっさりと予算上限を吐けばきっちり搾り取られるのみ。もう少し探ってみよう。*
 
 &nbsp;
 
-I don't care if it's a little scratched up. I just need something nice and cheap."
+"I'm fine with minor injuries. Is there anything good and cheap?"
 
 *「多少傷アリでもいいよ。いい感じに安いのないかなぁ」*
 
-If you want to treat them, we have some in stock. However, if you include the cost of treatment, it is often more economical to buy a decent slave from the beginning.
+"Ah, if you're okay with treatment, I do have some stock available. However, including the treatment costs, it often ends up being more economical to buy a decent slave from the start."
 
 *「ああ、治療前提でよろしければ多少は在庫がございます。ただ、治療費を含めたら最初からまともな奴隷を買う方がお得ということが多々ありますな」*
 
-Depending on the condition of the wound, I may be able to help you at a discount.
+"Depending on the extent of the injuries, I have connections that can treat them cheaply, so we can discuss that."
 
 *「傷の具合によっては安く治せる伝手があるんで、応相談で」*
 
-I envy you. If you introduce me to your contact, we may be able to offer you a further discount.
+"That sounds enviable. If you could introduce me to that connection, I might be able to offer further discounts."
 
 *「それは羨ましい。その伝手を紹介していただければ、更に値引きも対応できるかもしれません」*
 
 &nbsp;
 
-Hoho, is that one of them?
+Oh, so there are such things.
 
 *ほほう、そういうのもあるのか。*
 
-Let me introduce you to Karina Dymahotsky: ...... No, wait?
+Should I introduce Karina Daimahotsukai... wait a minute?
 
 *カリーナ・ダイマホーツカイを紹介しちゃおうかなぁ……いやまてよ？*
 
-Slave, I was only thinking of picking socks or doing something nasty, but how about something like this ......?
+I was only thinking about getting a slave to do something lewd with socks... but what if it was something like this?
 
 *奴隷、靴下を採るかいやらしい事するしか考えてなかったけど……こういうのはどうだろうか？*
 
 &nbsp;
 
-
+～・～・～・～・～・～・～・～
 
 *～・～・～・～・～・～・～・～*
 
 &nbsp;
 
-My name is Damina Nisseisha (tentative). Come, let me heal your daughter's wounds. The cost of the treatment is five gold coins and your daughter's socks."
+"My name is Damina Niseisha (temporary). Now, let’s heal your daughter's injuries. The treatment fee is five gold coins and your daughter's socks."
 
 *「我が名はダミーナ・ニセイシャ（仮）。さぁ、あなたの娘の傷を癒しましょう。治療費は金貨５枚と娘さんの靴下です」*
 
-That's outrageous!　And with socks!　But for my daughter's sake, I'll pay ...... Okay, I'll pay!"
+"W-What an outrageous fee! And socks, too!? But for my daughter... I understand, I will pay!"
 
 *「そ、そんな法外な！　しかも靴下とは！？　しかし娘のためなら……わかりました、払います！」*
 
-I wanted to hear you say that!　Ah, a passing merchant. Please sell me the tools needed for the healing ritual. The receipt should be addressed to Damina Niseisha (pseudonym)."
+"That's the word I wanted to hear! Oh, passing merchant. Please sell me the tools needed for the treatment ritual. The receipt should be addressed to Damina Niseisha (temporary)."
 
 *「その言葉が聞きたかった！　あ、通りすがりの商人さん。治療の儀式に必要な道具を売ってください。領収書の宛名はダミーナ・ニセイシャ（仮）で」*
 
-Yes, maido! (Carina-chan secretly treating him)"
+"Sure thing! (Secretly treating Karina-chan)"
 
 *「はーい、まいど！（こっそり治療するカリーナちゃん）」*
 
-"Then we will perform the ritual. ...... Ee-ei, mmmm! (He's already healed, so I'll pretend to heal him.)...... I'll take the gold coins and socks, then. This is Damina Nisseisha.
+"Now, I will perform the ritual... hey hey, muhn! (Pretending to heal since she's already fine)... phew. Now, I will take the gold coins and the socks. That was Damina Niseisha (temporary)."
 
 *「では儀式を行います……えいえい、むんっ！（もう治ってるので治すフリ）……ふう。では金貨と靴下はいただいていきますね。以上、ダミーナ・ニセイシャ（仮）でした」*
 
-The girl was saved, but five gold coins were still outrageous. But five gold coins are still outrageous. Damina, you son of a bitch!　And what a pervert to take my daughter's socks. Damina, Damina, Damina!
+"Ugh, my daughter was indeed saved. But still, five gold coins is outrageous. Curse you, Damina! And to take my daughter's socks, what a pervert you are. Curse you, curse you, Damina!"
 
 *「くっ、確かに娘は助かった。が、しかしやっぱり金貨５枚は法外だ。おのれダミーナ！　しかも娘の靴下を持っていくとはなんという変態だ。おのれおのれダミーナ！」*
 
 &nbsp;
 
-
+～・～・～・～・～・～・～・～
 
 *～・～・～・～・～・～・～・～*
 
 &nbsp;
 
-And, like that, he is an attendant who takes on notoriety on my behalf.
+And so, I have a role that takes on the bad reputation in my place.
 
 *と、そんな風に、私の身代わりで悪名を引き受ける係だ。*
 
-Yeah, not bad. Not bad.
+Yeah, not bad. Not bad at all.
 
 *うん、悪くない。悪くないぞ。*
 
 &nbsp;
 
-If he becomes a celebrity, he may not be able to freely visit food stalls. If you are a pervert who makes collecting socks your life's work, even more so.
+If I become famous, I might not be able to wander around food stalls freely anymore. And if I become a pervert who collects socks as a life work, even more so.
 
 *有名人になってしまったら、自由気ままに屋台巡りとかができなくなってしまうかもしれない。靴下集めをライフワークとする変態となれば猶更に。*
 
-So there!　You will take the place of the slave you are about to buy!
+So! I will set up the slave I’m about to buy as my substitute!
 
 *そこで！　これから買う奴隷ちゃんを身代わりにたてるのだ！*
 
@@ -169,75 +168,74 @@ So there!　You will take the place of the slave you are about to buy!
 
 &nbsp;
 
-This is a sudden idea, but it's a good one.
+It's a sudden thought, but this is a brilliant idea.
 
 *唐突な思い付きだけど、これは名案だ。*
 
-Even if I had put on a mask, Old Maria would have recognized me, but if I had been a different person in the first place, she wouldn't have!
+Even if I wear a mask, Maria-baba would see right through it, but if I were a completely different person, I wouldn't be caught!
 
 *私が仮面付けてもマリア婆にバレバレだったけど、そもそも別人ならバレなかったはずだし！*
 
-If we introduce them to the slavers here as a source of treatment, we are sure to get a lot of work done!
+If I introduce the slave trader as a connection for treatment, it seems like I wouldn't have to worry about running out of work!!
 
 *ここで奴隷商に治療先の伝手ということで紹介すれば、仕事のくいっぱぐれなさそうな気配だし！！*
 
 &nbsp;
 
-Also, when Mr. Dear asks me, "Why are you buying slaves?" and it's a good excuse like that when he asks for an explanation!
+Also, when Dia-kun asks me, "Why are you buying a slave?" I can have a plausible excuse!!!
 
 *あとディア君に「なんで奴隷を買うんですか？」と説明を求められたときにそれっぽい言い訳になるし！！！*
 
 &nbsp;
 
-ahem.
+Ahem.
 
 *ごほん。*
 
 &nbsp;
 
-I'm not sure I can refer you right now, so I was wondering if you could give me a discount, like a partial refund, if I refer you at a later date?"
+"It's difficult to introduce someone right now, so could you give me a discount later if I introduce them and you refund part of the payment?"
 
 *「今すぐ紹介するのは難しいから、後日紹介したら一部返金って感じで値引きしてくんないかな？」*
 
-I'm good. The amount of the refund depends on how useful the message is."
+"That's fine. The refund amount will depend on how useful the connection is."
 
 *「良いですよ。返金額はどのくらい有用な伝手かにもよりますが」*
 
-Okay, we have a deal. Now let's see the actual slave. I'm fine with a missing arm. Preferably one arm, but if you want, both arms can be missing.
+"Alright, negotiation settled. Now, let me see the actual slave. Oh, if she’s just missing an arm, that’s fine. Ideally, I’d prefer one arm, but I wouldn’t mind if she’s missing both arms."
 
 *「よし、交渉成立。じゃ、実際に奴隷を見せてもらおうかな。あ、腕が欠損してるくらいなら大丈夫だから。できれば片腕がいいけど、なんなら両腕もげててもいいよ」*
 
-What about?" ......I see."
+"Huh? ...I-I see."
 
 *「は？……そ、そうですか」*
 
 &nbsp;
 
-If you have a missing foot, you won't be able to pick up a sock even if I heal you.
+If she's missing legs, I won't be able to collect socks even if I heal her.
 
 *足が欠損してると、私が治しても靴下が採れなくなっちゃうからね。*
 
 &nbsp;
 
-"If you're at ......, there's one who's just right. He is a former minstrel who lost both arms, his beauty and his voice. The price is only one gold coin. Do you really think you can fix him?"
+"…In that case, I have just the right person. A former bard who has lost both arms, beauty, and voice. The price is one gold coin, which is quite reasonable. Can you really heal her?"
 
 *「……であれば、丁度いいのが一人おりますな。両腕と美貌と声を失った、元吟遊詩人です。お値段は金貨１枚で結構。本当に治せますかな？」*
 
 &nbsp;
 
-Oops, here comes a very suitable one.
+Whoa, this is a perfect match.
 
 *おっとぉ、すげぇおあつらえ向きなの来たな。*
 
-What is this, God wants that kid's socks?
+What is this, is God wanting her socks?
 
 *なにこれ、神様がその子の靴下欲してるの？*
 
-I get it. You just have to fix it. I'll take care of it.
+Got it, I just need to heal her. Leave it to me.
 
 *わーったよ、治せばいいんでしょ。任せろやい。*
 
 &nbsp;
 
 &nbsp;
-

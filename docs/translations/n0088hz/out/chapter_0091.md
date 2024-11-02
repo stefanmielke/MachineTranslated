@@ -1,4 +1,4 @@
-# Oh, Sati, you're so good at your business!
+# Oh my, Sati-chan is such a good merchant!
 
 ## んもう、サティたんの商売上手っ！
 
@@ -6,73 +6,73 @@
 
 &nbsp;
 
-Wait a minute. I'll finish this side of the transaction first.
+"Just wait a moment. I need to finish this transaction first!"
 
 *「ちょっとまってねぇ。先にこっちの取引済ませちゃうからぁー」*
 
 &nbsp;
 
-Saying this, Satitan took out a barrel of liquor from his backpack. It looks like the honey wine he sold me as well. He is accustomed to dealing with shopkeepers by means of merchant guild certificates.
+Sati-chan said as she took a barrel of alcohol out of her backpack. It seems to be the honey wine she sold me. She is engaged in a familiar exchange with the shopkeeper, conducting the transaction using her merchant guild certificate.
 
 *そう言ってサティたんはリュックから酒樽を取り出した。私にも売りつけた蜂蜜酒のようだ。店主とは慣れたやり取りで商人ギルド証による取引をしている。*
 
-And then another barrel of sake goes into the once-flattened backpack.
+Then, another barrel of alcohol goes into the once flattened backpack.
 
 *そして、一度ぺしゃんこになったリュックに別の酒樽が入っていく。*
 
 &nbsp;
 
-'Need a bottle of Crunchy too?　Crawler sake. It's tangy and dry."
+"Do you want a bottle of Crawlers too? It's a spicy one."
 
 *「カリカリも１本いる？　クローラー酒。ピリリと辛口なの」*
 
-Oh, just one then."
+"Oh, then just one bottle."
 
 *「あ、じゃあ１本だけ」*
 
-Two bottles of sake for 50 coppers. That's my family's price.
+"Two bottles for 50 copper coins. It's the family price!"
 
 *「酒瓶２本で銅貨５０枚ね。身内価格だよぉ」*
 
 &nbsp;
 
-Churn. Carina Shonin now has 3 silver coins and 50 copper coins left.
+Ching! Karina Shonin's remaining balance is now 3 silver coins and 50 copper coins.
 
 *ちゃりーん。カリーナ・ショーニンの残金は銀貨３枚と銅貨５０枚になった。*
 
-I said one bottle, but they made me buy two. ......　I love it!
+I said one bottle, but I ended up buying two...! I love it!!
 
 *１本って言ったのに２本買わされちゃったよぉ……！　好き！！*
 
 &nbsp;
 
-"Hey, Satty. You're new here, aren't you?　Go easy on her a little."
+"Hey Sati. This girl is a newbie, right? Go easy on her."
 
 *「おいサティ。この嬢ちゃん新人だろ？　少し手加減してやれよ」*
 
-I guarantee the quality of the liquor. Besides, without a liquor license, it costs 25 coppers a bottle, so I'm not giving you anything for your money, am I?
+"I guarantee the quality of the alcohol. Besides, without a liquor license, one bottle costs 25 copper coins, so I'm not making her lose out, right?"
 
 *「お酒の質は保証するよぉ。それに酒免許なしだと１本銅貨２５枚なんだから損はさせてないでしょー？」*
 
 &nbsp;
 
-I heard that if you have a license and buy in bulk, you get 20 copper coins per bottle. So we can make a profit of 10 copper coins just by passing them from right to left right there on the spot. Oh my God, Sati is so good at her business!　She is so cute!
+With a license and buying in bulk, it seems one bottle costs 20 copper coins. Just passing it from right to left at the spot nets a profit of 10 copper coins. Oh my, Sati-chan is such a good merchant! So cute!
 
 *免許ありでまとめ買いだと１本あたり銅貨２０枚らしい。仕入れたその場で右から左に渡すだけで銅貨１０枚分の儲けかぁ。んもう、サティたんの商売上手っ！　可愛い！*
 
 &nbsp;
 
-Look, he's happy with the crunch, so we're good, right?"
+"Look, Karikari is happy too, so there's no problem, right?"
 
 *「ほら、カリカリも喜んでるから問題なしだよねぇ？」*
 
-Well, okay." It's a ...... freebie. Take it."
+"Well, that's fine... Here's a bonus. Take it."
 
 *「まぁいいけどよ。……オマケだ。もってけ」*
 
 &nbsp;
 
-and I was given two pieces of dried crawler meat. Wow, thank you. I'll have some as a snack.
+I received two pieces of dried meat from Crawlers. Wow, thank you. I'll have it as a snack.
 
 *と、クロウラーの干し肉を２枚もらった。わー、ありがとう。おつまみにするね。*
 
@@ -82,233 +82,233 @@ and I was given two pieces of dried crawler meat. Wow, thank you. I'll have some
 
 &nbsp;
 
-Leaving the store, we headed for the Adventurers' Guild.
+After leaving the shop, we head to the Adventurers' Guild.
 
 *商店を後にして、私たちは冒険者ギルドへ向かう。*
 
-It's to collect your allowance from your load-carrying job.
+It's to collect my pocket money from the delivery job.
 
 *荷運びのお仕事でのお小遣いを回収するためだ。*
 
-My luggage is one box of parcels. On the other hand, Satitan has plenty of letters, which are not as bulky as the fee. It's a difference in trust, isn't it?
+I have one box of packages. On the other hand, Sati-chan has a lot of letters that don't take up much space compared to the fees. It's a matter of trust.
 
 *私の荷物は小包を１箱。一方でサティたんは料金と比べてかさばらないお手紙をたっぷり。信用の差だねぇ。*
 
 &nbsp;
 
-Satitan owns a small carriage and allowed me to take a ride in it.
+Despite her small size, Sati-chan owns a carriage, and I hitched a ride with her.
 
 *サティたんは小さいながらも馬車を所有しており、便乗させてもらった。*
 
-Sati-tan, who is operating a carriage bird - a big bird called a carriage bird because it is a bird that pulls a carriage - on the Gosha-dai. Me sitting next to her.
+Sati-chan is driving the carriage bird—a big bird that pulls the carriage—while I sit next to her.
 
 *御者台で馬車鳥――馬車をひく鳥だから馬車鳥と呼ばれているデカい鳥――を操るサティたん。隣に座る私。*
 
 &nbsp;
 
-I'm just wondering why you're here, Crunchy?　Didn't you say you were going to Velarde?"
+"By the way, why is Karikari here? Didn't you say you were going to Verald?"
 
 *「それにしてもカリカリってばなんでここにいんの？　ヴェーラルド行くって言ってなかったっけ？」*
 
-Oh, that's perfect! That's perfect!　I bought the liquor from Sati and sold it to the merchant guild for a good profit.
+"Oh, that's right! I managed to sell the alcohol I bought from Sati-chan at the merchant guild and made a nice profit!"
 
 *「ああ。それならバッチリ！　サティたんから買ったお酒を見事商人ギルドで売りさばいて利益がっつり得られた次第よ」*
 
-What did you do?　What did you do with all the profits from the merchant guild?"
+"Really? Making a nice profit at the merchant guild, what did you do?"
 
 *「へぇ？　商人ギルドで利益がっつりとか、何したのよ」*
 
 &nbsp;
 
-On the way to the Adventurer's Guild, I tell them about my exploits in Velarde.
+On the way to the Adventurers' Guild, I recount my exploits in Verald.
 
 *冒険者ギルドへ向かう道すがら、私はヴェーラルドでの活躍を語る。*
 
-However, he is a great magician without being a great magician.
+That said, I leave out my achievements as a great magician.
 
 *とはいえ、大魔法使いとしての活躍は抜きだ。*
 
 &nbsp;
 
-Pirates got involved," he said. Oh, and then we had a drinking contest, and I won."
+"There were some pirates involved. Oh, and then I had a drinking contest and won."
 
 *「海賊が絡んできてねぇ。あ、そのあと飲み比べして勝ったよ」*
 
-......Caricatures, you're not that strong of a drinker, how did you win?"
+"…Karikari, you're not that strong with alcohol, how did you win?"
 
 *「……カリカリってばお酒そんな強くないのに良く勝てたねぇ」*
 
-I faked drinking to cover it up."
+"I pretended to drink and faked it."
 
 *「飲んだフリして誤魔化した」*
 
-Oh, no!　No, you can't do that!　You have to drink properly to compare drinks. Mek!"
+"Oh! That's not good! You have to drink properly in a drinking contest. No way!"
 
 *「あー！　ダメよそういうの！　飲み比べはちゃんと飲まなきゃ。めっ！」*
 
-Ugh, I'm sorry."
+"U-uh, I'm sorry."
 
 *「う、ご、ごめんなさい」*
 
 &nbsp;
 
-It seems that in the dwarf's view, it is a rather serious offense to foul up in a drinking contest.
+In Dwarven culture, cheating in a drinking contest is considered a pretty serious crime.
 
 *ドワーフ的には飲み比べで反則するのは割と重い罪らしい。*
 
-Sorry. Don't pinch me.
+I'm sorry. Please don't poke at me.
 
 *ごめんて。つつかんといて。*
 
 &nbsp;
 
-'Hmmm, ah, but they're against Velarde pirates, right?　That's OK then. I've only heard bad things about them.
+"Well, but the opponent was a pirate from Verald, right? Then it's fine. I've only heard bad rumors about them."
 
 *「ん、あー、でも相手はヴェーラルドの海賊だっけ？　それならいいや。あいつら良くない噂しか聞かないしぃ」*
 
-Oh, you're sure?"
+"Oh, is that okay?"
 
 *「あ、いいんだ？」*
 
-I really shouldn't have done that. But you'll forgive me because I'm a pirate and you're crunchy, won't you?"
+"Actually, it's not, but since they were pirates and it's Karikari, I'll let it slide."
 
 *「ホントはダメなんだけどねぇ。相手が海賊で、カリカリだから許すんだからねぇ？」*
 
-Wow, thank you Saty-tan!"
+"Yay, thank you, Sati-chan!"
 
 *「わーい、ありがとうサティたん！」*
 
-I'm in the middle of a big party, so we'll cuddle later, okay?
+"Since I'm driving, you can hug me later."
 
 *「御者中だから抱きつくのはまた後でねぇー」*
 
 &nbsp;
 
-Ummm, that's so cute.
+Hehe, so cute.
 
 *うふふ、可愛いわぁ。*
 
-While we were talking like that, we quickly arrived at the Adventurers' Guild.
+As we chat like this, we quickly arrive at the Adventurers' Guild.
 
 *そんな風に話をしているうちに、さくっと冒険者ギルドへ到着。*
 
 &nbsp;
 
-Deposit your carriage and deliver your luggage to the Adventurer's Guild counter. Get pocket money.
+We drop off the carriage and deliver the packages to the Adventurers' Guild counter. Pocket money secured.
 
 *馬車を預け、荷物を冒険者ギルドのカウンターにお届け。お小遣いゲット。*
 
-Satitan also delivered a letter and received several silver coins.
+Sati-chan also delivers her letters and receives a few silver coins.
 
 *サティたんも手紙を届けて銀貨数枚を受け取っている。*
 
 &nbsp;
 
-Oh, so you got something? ...... I see. Keep up the good work.
+"Oh, did you get any information? ...I see. Thanks for your continued support."
 
 *「あ、それで何か情報入ったぁ？……そっかぁ。引き続きよろしくねぃ」*
 
 &nbsp;
 
-Sati Tan talks to the receptionist and returns half of the rewarded silver coins to the counter.
+After talking with the receptionist, Sati-chan returns half of her reward silver coins to the counter.
 
 *受付嬢さんと話して、報酬の銀貨のうち半分をカウンターに戻すサティたん。*
 
 &nbsp;
 
-"Sati, are you looking for something?"
+"Sati-chan, are you looking for something?"
 
 *「サティたん、なにか探し物でもあるの？」*
 
-Hmm?　I wonder if it's information about good sake. I'm disappointed that I didn't get any information.
+"Hmm? Maybe information about delicious alcohol. I'm disappointed that I haven't received any information."
 
 *「んー？　美味しいお酒の情報とかかなぁ。何も情報入ってなくてがっかりだよぅ」*
 
 &nbsp;
 
-It's obviously a lie. Well, if you don't want to say it, it's okay.
+That's clearly a lie. Well, if she doesn't want to say, that's fine.
 
 *明らかに嘘くさい。まぁ言いたくないなら別にいいか。*
 
 &nbsp;
 
-'Speaking of good drinks, I had a glass of wine at Velarde's. I compared it to the pirate you mentioned earlier."
+"Speaking of delicious alcohol, I had some wine in Verald. It was during the drinking contest with the pirates I mentioned earlier."
 
 *「美味しいお酒といえば、ヴェーラルドでワイン飲んだよ。さっき言ってた海賊との飲み比べで」*
 
-Wine. It's a specialty of the Vertokus. I think it's made from grapes. ......I see, maybe I wasn't looking for that one. ...... but the elven lands are a bit tricky to get permission to enter.
+"Wine, huh? That's a specialty of Beltux. It's made from grapes, right? ...I see, maybe I wasn't looking for that... but you need permission to enter the Elf country."
 
 *「ワインかぁ。ベルトクスの名産品だねぇ。たしかブドウから作るお酒だっけ。……そっか、そっちは探してなかったかも……でもエルフの国は入るのに許可がなぁ」*
 
 &nbsp;
 
-Sigh, sighs Satitan.
+Sati-chan sighs.
 
 *はぁー、とため息をつくサティたん。*
 
-Mmmm, I would like to help you with this!
+Hmm, I want to help her!
 
 *むむむ、これは力になってあげたい！*
 
 &nbsp;
 
-Do you need permission to enter the land of the elves?"
+"Is it true that you need permission to enter the Elf country?"
 
 *「エルフの国って入るのに許可がいるの？」*
 
-I guess so. If you are an adventurer, you can get in with a B rank or higher, but if you are a merchant, you have to have good contacts to get in. Especially since I'm a dwarf, it's not that easy.
+"Yeah. Adventurers can enter if they're B rank or higher, but merchants need some connections to get in. Especially since I'm a Dwarf, it's quite difficult."
 
 *「そだねぇ。冒険者ならＢランク以上で入れるけど、商人ならそれなりのツテが無いと入れない感じかなぁ。特に私ってばドワーフだし、難しいんだよねぇ」*
 
-I'll tell you what," he said, "I'll tell you what, ...... Saty-tan Saty-tan. Between you and me, I have an elf message for you."
+"Oh ho... Sati-chan, just between us, I have connections to the Elves."
 
 *「ほほう……サティたんサティたん。ここだけの話、エルフの伝手、ありますぜ」*
 
-Seriously?"
+"Really?"
 
 *「まじで？」*
 
 &nbsp;
 
-Seriously. My Dia is actually an elf nobleman. I'm sure he can introduce you to one or two of his contacts.
+Really, really. My dear Dia-kun, despite how he looks, is actually an Elven noble. I can definitely introduce one or two connections.
 
 *マジマジ。ウチのディア君はああみえて実はエルフのお貴族様なのだ。伝手のひとつやふたつ、紹介できるにちがいない。*
 
 &nbsp;
 
-I've actually put together a party," he said. And one of the members is an elf."
+"Actually, I formed a party. And one of the members is an Elf."
 
 *「実は私、パーティーを組んだんだよ。で、そのメンバーがエルフなの」*
 
-'Hmmm. I wonder if I can get an introduction to ......?"
+"I see... Can you introduce me?"
 
 *「ふーん。……紹介してもらえるのかなぁ？」*
 
-Hmph, that's up to Sati-tan: ......"
+"Hehe, that's up to Sati-chan..."
 
 *「フフフ、それはサティたん次第……」*
 
-Okay, I'll give you a pair of socks and you can introduce me."
+"Okay, I'll give you some socks, so introduce me."
 
 *「わかったよぅ、靴下あげるから紹介して」*
 
-Okay, then!　Let's go!　We're probably at a hotel by now!"
+"Okay! Let's go! They are probably booking a room right now!"
 
 *「おっけー！　じゃ、いこっか！　多分今頃宿とってるところだよ！」*
 
 &nbsp;
 
-Hmm?　But thinking about it, aren't those socks you're wearing the ones I copied before?
+Hmm? But now that I think about it, the socks Sati-chan is wearing are the ones I copied before.
 
 *ん？　でもよく考えたらサティたんの履いてる靴下、私が前にコピーしたやつじゃね。*
 
-If so, I can't offer it to God. ...... Well, okay.
+If that's the case, I can't offer them to the gods... well, whatever.
 
 *だとしたら神様には捧げられないなぁ……ま、いっか。*
 
 &nbsp;
 
-If a beautiful girl is in trouble, it is reasonable to help her!
+If a beautiful girl is in trouble, it's only right to help her!
 
 *美少女が困ってるなら助けてあげるが道理なのだ！*
 
@@ -317,4 +317,3 @@ If a beautiful girl is in trouble, it is reasonable to help her!
 &nbsp;
 
 &nbsp;
-

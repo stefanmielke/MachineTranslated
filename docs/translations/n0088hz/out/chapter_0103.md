@@ -1,18 +1,18 @@
-# Hi glad to hear it!
+# Hi, I'm happy to be here!
 
 ## ハイ喜んでー！
 
 &nbsp;
 
-I'm Karina!
+I'm Karina-chan!
 
 *私カリーナちゃん！*
 
-I woke up the next day with my dwarf sisters (one half) on my right and left.
+The next day, when I woke up, I found myself flanked by dwarf sisters (one of them is a half-dwarf).
 
 *翌日目を覚ました私は、右と左にドワーフ姉妹（片方はハーフ）を従えていたの。*
 
-All three of them were dressed in their undies. Oh, Dear, you were not there. Safe?
+All three of us were in revealing underwear. Oh, and Dia-kun wasn't there. Safe?
 
 *三人ともあられもない下着姿である。あ、ディア君はいなかった。セーフ？*
 
@@ -20,17 +20,17 @@ All three of them were dressed in their undies. Oh, Dear, you were not there. Sa
 
 &nbsp;
 
-No, well, the story of how this happened is simple.
+Well, the reason for this situation is quite simple.
 
 *いやまぁ、何でこうなったかの話は簡単なのだ。*
 
-As soon as I got back from the dungeon, he said to me, "Let's sleep with crunchy today, and we'll have a drink together at the launch. I did. I had an original appointment.
+Right after returning from the dungeon, I was told, "So today, let's sleep together, Karikari, and have a drinking party!" and I ended up saying, "Hi, I'm happy to be here!" after all. There was also the original promise.
 
 *ダンジョンから帰ってすぐ「じゃあ今日はカリカリと寝ようねー、打ち上げで一緒に酒盛りだよぉ」と言われて「ハイ喜んでー！」してしまったのだ。元々の約束もあったし。*
 
 &nbsp;
 
-As for Dia, I said, "Well, it's a girls' night out for everyone! I said, "Oh, I'm a guy, so I'll refrain from doing that! I'm a guy, so I'll pass! I don't understand. Saty-tan seemed to have no idea which one was the guy.
+As for Dia-kun, when I said, "Well then, today it's a girls' gathering!" he replied, "Oh, I'm a boy, so I'll pass!" and left. I don't understand. And Sati-tan seemed to not realize which one he was and said, "Oh, so you were a boy."
 
 *尚、ディア君については「そんじゃ、今日はみんなで女子会だね！」と言ったら「あ、ボク男なので遠慮しておきますね！」と退散してしまったのだ。解せぬ。そしてサティたんは「あ、男の方だったんだね」と実はどっちか分かっていなかったようだった。*
 
@@ -38,155 +38,154 @@ As for Dia, I said, "Well, it's a girls' night out for everyone! I said, "Oh, I'
 
 &nbsp;
 
-Ugh, and then it happened, another waste of ...... memory due to alcohol!　Damn!
+Ugh, still, I messed up, my memories are fading again because of the alcohol... what a waste! Damn it!
 
 *ううっ、それにしてもしまった、またお酒のせいで記憶が……もったいない！　くそう！*
 
-But I tried too!　And yet, the moment I tried to fool her with spatial magic, Sati said, "What is it?　What are you up to?　Are you trying to cheat me out of my drink? I was forced to drink it, or rather, I wondered how she knew!
+But I tried my best too, you know!? Yet the moment I tried to use spatial magic to cover it up, Sati-tan glared at me and said, "Hey? Are you plotting something? Trying to sneak my alcohol?" and I had no choice but to drink it, wondering how she figured it out!
 
 *でも私だって頑張ったんだよ！？　なのに空間魔法で誤魔化そうとした瞬間にサティたんが「あれぇ？　何か企んでる？　私の酒をちょろまかそうっての？」と睨んできては飲まざるを得ないというかなんでバレるのかなぁって！*
 
 &nbsp;
 
-What, "I can tell by your crunchy face"?
+What, "You can tell just by looking at Karikari's face"?
 
 *え、「カリカリの顔見れば分かるよぉ」って？*
 
-Oh, no!　Sati-tan likes me too much!　I love you!
+Geez! Sati-tan, don't you like me too much!? I like you!
 
 *んもー！　サティたん私の事好きすぎじゃない！？　好き！*
 
 &nbsp;
 
-Well, I had a drink with Sati and Isiah and started to eat ...... Crowler's dried meat was surprisingly addictive and I might have eaten too much of it. I'm amazed that after being dried in the sun and then soaked in water for 10 minutes, the meat returns to its original plump texture. I wonder if this creature was actually created for preserving food.
+Well, with that, I started drinking with Sati-tan and Aishia... The dried meat from the crawler had an unexpectedly addictive taste, and I might have eaten too much. It's amazing how it returns to a plump texture after soaking in water for 10 minutes. Did the crawler actually evolve as a preserved food?
 
 *まぁそんなこんなでサティたんとアイシアと酒盛りしはじめて……クロウラーの干し肉が意外とクセになる味で食べ過ぎたかもしれん。天日干ししたのを水に１０分漬けたらぷりっとした食感に戻るとかすげーよクロウラー。実は保存食のために生まれた生物かよ。*
 
-...... Well, what happened from there...... Well, anyway, it is a small character, not a river character. I gently stroke the two adorable angels on either side of me. They have red hair just like me, and they are very close to each other. Ahhh, I'm so happy.
+...Hmm, what happened after that... Anyway, we were lying in a small line. I gently stroked the two adorable angel girls beside me. They had similar red hair and felt nice to touch. Ahh, so happy.
 
 *……うーん、そこからどうなったんだっけ……まぁともあれ、川の字ならぬ小の字である。私は両隣の可愛らしい天使ちゃん２人をそっと撫でておく。そっくりな赤毛で撫で心地も近い。あぁーしあわせぇ。*
 
 &nbsp;
 
-I said, "Huh. ...... Hey, crunchy good morning. You were awake?"
+"Yawn... Oh, Karikari, good morning. You were awake?"
 
 *「ふぁぁ……あれ、カリカリおはよぉ。起きてたんだ？」*
 
-I just woke up. I love you, Sati-tan. ......!"
+"Mm, just woke up. I love you, Sati-tan...!"
 
 *「ん、今起きたとこ。愛してるぜサティたん……！」*
 
-Me too, mmm.
+"I love you too, mm..."
 
 *「私もだよぉ、んー」*
 
 &nbsp;
 
-Sati-tan rubs her head against my chest. Haha that tickles and feels so good.
+Sati-tan rubbed her head against my chest. Ahahaha, it tickles and feels good.
 
 *すりすりと胸に頭をこすりつけてくるサティたん。あはははくすぐったい気持ちいい。*
 
 &nbsp;
 
-"Dear Master, I adore you... ......"
+"Master, I adore you..."
 
 *「あるじ様ぁ、お慕いしておりますぅー……」*
 
-The first thing to do is to take a look at the "Aixia Oha, no, she's still sleeping, right? I'm still sleeping....
+"Oh, Aishia, good—no, you're still asleep. Hey, don't kiss my armpit, ahh!"
 
 *「あ、アイシアおは、いやまだ寝てるなコレ。ってひゃふっ、腋にちゅっちゅしないでぇあふんっ」*
 
-"Oh, that sounds like fun."
+"Oh, you all look like you're having fun."
 
 *「おー、楽しそうだねぇ」*
 
 &nbsp;
 
-Saying so, Sati-tan also started tickling my armpits. I'm weak in the armpits and armpits, ahiyee. Wake up, ayesir.
+Sati-tan then started tickling my sides. My sides and armpits are weak, ahh! Wake up, Aishia!
 
 *そう言ってサティたんも腋腹をくすぐり始めてきた。脇腹とか脇の下とか弱いのぉ、あひぃー。起きてアイシアー。*
 
 &nbsp;
 
-"Huh, I was dreaming of eating some kind of pickle, Aruji-sama's pickle. ...... My mouth tasted slightly sour. ......!"
+"Ah, I was dreaming about eating your pickles, Master... My mouth has a slight sour taste...!"
 
 *「ふあっ、なんかあるじ様のピクルス食べる夢見てました……口の中がほんのり酸っぱ味……！」*
 
-Oh, oh, good morning. ......
+"O-oh, good morning..."
 
 *「お、おう、おはよう……」*
 
-Good morning, Mister.
+"Good morning, Master!"
 
 *「おはようございます、あるじ様っ」*
 
 &nbsp;
 
-What's with my pickles? You mean my homemade pickles?　Or is it a cryptic term?　If you're saying you used to eat me as a pickle, that's a little scary, don't you think?
+What do you mean by my pickles? Are you saying I made them? Or is it a euphemism? If you were pickling me and eating me, that sounds a bit scary?
 
 *なんだよ私のピクルスって。私お手製ってことか？　それとも隠語か？　私を漬物にして食べてたっていうのだとちょっと怖いぞ？*
 
 &nbsp;
 
-"It was a pleasure to have that ...... favor last night. ......!
+"Last night, I was... so happy to receive your affection...!"
 
 *「昨晩はその……寵愛をいただけて、嬉しゅうございました……っ！」*
 
-Oh, my sister Ai has a female face."
+"Oh, Aishia has a feminine look."
 
 *「あ、アイ姉がメスの顔してる」*
 
-I'm just jealous that you got to try it before me!　I'm only jealous because you ate it before me!　Oh, but you sucked on my feet like that. Did you really enjoy my feet and Sati's so much?"
+"Shut up, Sati! You're just jealous because I was eaten by Master first! Ah, but Master, you were nibbling on my and Sati's legs so much. Were they that delicious?"
 
 *「だまらっしゃいサティ！　一足先にあるじ様にお召し上がりされたからって羨ましいだけなんだからね！　ああ、でもあるじ様ったらあんなに足にしゃぶりついて。そんなに私とサティの足が美味しかったんですか？」*
 
 &nbsp;
 
-Ah. Yup. I guess I guessed it when I got into this state, but I guess I ate Isiah too. ...... In a sexual way, of course. I don't know why I don't remember. I'm not sure why I don't remember!
+Ah, yeah. I had a feeling this would happen, but Aishia also got eaten... of course, in a sexual sense. Damn it, why can't I remember? It's all the alcohol's fault!
 
 *あー。うん。この状態になった時点で察してたけど、アイシアも食べてしまったか……もちろん性的な意味で。くそう、どうして覚えてないんだ私は。お酒が、なんもかんもお酒が悪いんや！*
 
 &nbsp;
 
-'The booze isn't bad, okay?　Crunchy. Right?"
+"Alcohol isn't to blame, right? Karikari. Right?"
 
 *「お酒は悪くないよ？　カリカリ。ね？」*
 
-"Yes!　It's not my fault!
+"Y-yes! It’s not bad at all!"
 
 *「ひゃいっ！　わ、悪くありましぇん！」*
 
 &nbsp;
 
-Sati-tan's killing spirit. You read my mind!　How well you understand me, I love you!
+Sati-tan's killing intent. She read my mind! How much does she understand me? I love it!
 
 *サティたんの殺気。心を読まれたぁ！　私のことどれだけ理解してるの、好きっ！*
 
 &nbsp;
 
-Sati, if you get too carried away, you may find that even if the Uncle forgives you, I may not?"
+"Sati, if you get too carried away, even if Master forgives you, I might not."
 
 *「サティ、あんまり調子に乗ってると、あるじ様が許しても私が許さないことがあるかもしれませんよ？」*
 
-Hmmm?"　What do you mean if you don't forgive me? You think that Ai's sister, a crunchy slave, would harm me, a crunchy lover?　Come on, come on, what are you doing?
+"Hmm? If you won't forgive me, what will you do? Aishia, Karikari's slave, would harm me, Karikari's lover? Come on, what will you do?"
 
 *「ふぅん？　許さないなら何だってのさ。カリカリの奴隷のアイ姉が、カリカリの恋人である私に危害を加えるとでもー？　ほらほら、何するってぇ？」*
 
-I'm going to reveal a childhood secret. Dear Uncle, have you ever wondered how old Sati was when she used to wet the bed?"
+"I'll expose a childhood secret. Master, aren't you curious how long Sati wet the bed?"
 
 *「子供の頃の秘密を暴露します。あるじ様、サティが何歳までおねしょしていたか気になりませんか？」*
 
-I'm sorry.
+"I'm sorry!"
 
 *「ごめんて」*
 
 &nbsp;
 
-Haha, close sisters. And me being sandwiched between them. I'm so happy.
+Ahaha, the friendly sisters. And I'm sandwiched between them. So happy.
 
 *あはは、仲良し姉妹。そしてその間に挟まれる私。幸せぇ。*
 
 &nbsp;
 
 &nbsp;
-

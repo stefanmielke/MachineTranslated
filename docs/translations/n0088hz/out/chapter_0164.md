@@ -1,20 +1,20 @@
-# Capital city Akahagane ●Illustration Ari
+# Capital Akahagane ● With Illustrations
 
 ## 首都アカハガネ　●挿絵アリ
 
 &nbsp;
 
-The capital city, Akahagane. The town was built by hollowing out half of a huge mountain.
+Capital Akahagane. A town built as if half of a giant mountain had been hollowed out.
 
 *首都アカハガネ。巨大な山を半分くりぬくようにして作られた町。*
 
-It is said that the town began as a crater created by a meteorite that fell on the mountainside and was developed as a mine. Perhaps that is why the air is a bit dusty and rough.
+It seems that the town began when a meteorite fell on the mountainside, creating a crater that was developed as a mine. Perhaps that's why the air is somewhat dusty and gritty.
 
 *山の中腹に落ちた隕石が作り出したクレーターを、そのまま鉱山として開発したのがこの町の始まりらしい。ややホコリっぽいざらついた空気なのはそのせいだろうか。*
 
 &nbsp;
 
-The gouged-out mountain like a sundial looks like it might collapse at any moment, but I heard that the first king managed it with magic. ...... Magic is amazing.
+The mountain, resembling a sundial, stands tall and looks like it could collapse at any moment… but apparently, the first king managed to do something about it with magic. Magic is amazing.
 
 *日時計のような、抉り削れてそそり立つ山は今にも崩れそうで怖いのだが……そこは初代国王様が魔法でなんとかしたんだそうな。魔法ってしゅごい。*
 
@@ -22,93 +22,93 @@ The gouged-out mountain like a sundial looks like it might collapse at any momen
 
 &nbsp;
 
-The town is still dwarf-sized overall.
+The town is overall dwarven-sized.
 
 *町はやはり全体的にドワーフサイズ。*
 
-On the other hand, stores for other species have large entrances, but most of the stores on the main street were like that, so this place looks like a normal town to me.
+Conversely, shops aimed at other races have larger entrances, but since most shops facing the main street are like that, it looks like an ordinary town to me.
 
 *逆に他種族向けの店なんかは入口が大きいわけだが、大通りに面している店は大体そうだったのでここは私にとっては普通の町のように見える。*
 
 &nbsp;
 
-The gatekeeper seemed upset.
+"That gatekeeper seemed a bit flustered."
 
 *「なんか門番の人動揺してたね」*
 
-It's probably because of the gifts that my grandmothers gave me," he said. If anyone sees it, they will immediately recognize it as a gem."
+"That would probably be because of the gift our lord received from the grandmothers. Anyone who knows would immediately recognize it as a fine item."
 
 *「あるじ様がおばあちゃん達から貰ったプレゼントが原因でしょうね。見る人が見れば、すぐ逸品だと分かりますから」*
 
-I don't want to take it off if I want to avoid a fuss. ...... but it's a nice present and I don't want to take it off!"
+"Hmm, if we want to avoid a commotion, maybe we should take it off… but it’s such a precious gift, I don’t want to take it off!"
 
 *「うーん、騒ぎを避けるなら外しといたほうが良いかなぁ……でも折角のプレゼントだし、外したくないっ！」*
 
 &nbsp;
 
-These items were handmade for me by the five grand elders, who are cute little girls (by my standards).
+The items that the cute little elders (by my standards) made for me by hand.
 
 *かわい子ちゃん（私基準）な五大老が私のために手作りしてくれたアイテム達である。*
 
-Even though spatial magic would be nearly useless, it would be polite to at least keep it on while we are in this country!　Perhaps!
+Even though they are almost useless with spatial magic, it is only proper to wear them at least while I’m in this country! Probably!
 
 *空間魔法があればほぼほぼ無用だとはいえ、せめてこの国にいる間だけでもつけておくのが礼儀というもの！　多分！*
 
 &nbsp;
 
-What?　You think it will come back even if you take it off?
+Huh? You think it’ll come back even if I take it off?
 
 *え？　外しても戻ってくるんじゃないかって？*
 
-That's it. As a higher level spatial magic user, if I wanted to remove it, I could remove it while it is still equipped. I can put it away with a little touch on my body, for example.
+That’s a different story. As a user of higher-level spatial magic, I can remove it while keeping it equipped. Like, I could just store it while lightly touching my body.
 
 *それはそれ。より上位の空間魔法の使い手である私が外そうとすれば装備したまま外すこともできるのさ。身体にちょんと触れた状態で仕舞っとくとかね。*
 
 &nbsp;
 
-Miss. Miss Isiah. Don't forget that we have dragons following us?"
+"Um, sis. Aisia-san. Don’t forget that you’re accompanied by a dragon, okay?"
 
 *『あのー、姐さん。アイシアさん。ドラゴンを従えてるってのも忘れないでくださいっす？』*
 
-Oh, shit, I got that one, too."
+"Oh right, that was a thing."
 
 *「やっべ、それもあったわ」*
 
-...... I completely forgot you were a dragon, Mr. Arthur."
+"…I completely forgot, but it was a dragon, wasn’t it, Arthur-kun?"
 
 *「……すっかり忘れてましたが、ドラゴンでしたねアーサー君」*
 
 &nbsp;
 
-Well, it was noticeable that he had a dragon with him.
+Speaking of which, having a dragon with me is quite conspicuous.
 
 *そういやドラゴン連れてるのも目立つんだったわ。*
 
-Rather, the Thunder Dragon deserved all the attention as a vermin that was hindering the distribution of goods in the country. And this guy was the man himself.
+In fact, the Thunder Dragon would naturally attract attention as a pest disrupting the country’s distribution. And this one is the very same.
 
 *むしろサンダードラゴンは国の流通を妨げてた害獣として注目を集めても当然。しかもこいつがそのご本人だったわ。*
 
 &nbsp;
 
-I'm just a zakolizard, aren't I?　Are you just a lizard?
+"Dear-kun, am I kind of inconspicuous?! Am I just a weak lizard?!"
 
 *『ディア君、自分って影薄いんすかね！？　所詮ザコトカゲっすかね！？』*
 
-No, it's a dragon. It's not like that. Yes."
+"No, no, it’s a dragon, so that’s not the case. Yes."
 
 *「いやぁ、ドラゴンですしそんなことはないですよ。ええ」*
 
-'Di, dia-kun-chan!　Kuun!　Kuhn!
+"Di, Dear-kun! Woof! Woof!"
 
 *『ディ、ディア君ちゃぁん！　くぅーん！　くぅーん！』*
 
 &nbsp;
 
-Arthur is comforted by Dia-kun.
+Arthur-kun is being comforted by Dear-kun.
 
 *ディア君によしよしと慰められるアーサー君。*
 
-I thought to myself, "That's already a dog or a cat. I thought, but I didn't tell him.
+It’s already like a dog or cat. I thought, but I didn’t say it out loud.
 
 *もう犬か猫のそれじゃん。とか思ったけど言わないでおいてあげた。*
 
@@ -118,19 +118,19 @@ I thought to myself, "That's already a dog or a cat. I thought, but I didn't tel
 
 &nbsp;
 
-I entrusted Dia, Aisia, and Arthur to report to the Adventurers' Guild and report the accomplishment of the delivery request they were casually doing, as well as to secure a place to stay.
+I leave the report to the Adventurers' Guild, the subtle delivery request I was doing, and securing a lodging to Dear-kun, Aisia, and Arthur-kun.
 
 *ディア君とアイシア、ついでにアーサー君には冒険者ギルドへの報告とさりげなくやっていた配達依頼の達成報告、それと宿の確保を任せておく。*
 
 &nbsp;
 
-So, I came to the church as soon as I could.
+As for me, I headed straight to the church.
 
 *で、私はというと、早速教会へとやってきた。*
 
 &nbsp;
 
-It was a human-sized church because outsiders would come, but the siesta that greeted me was a loli child the size of a dwarf.
+Since outsiders come too, it was a human-sized church, but the one who welcomed me, Siesta, was surprisingly a dwarven-sized loli.
 
 *外部の人も来るので人間サイズの教会だったが、出迎えてきてくれたシエスタは、なんとドワーフサイズのロリっ子だった。*
 
@@ -140,63 +140,63 @@ It was a human-sized church because outsiders would come, but the siesta that gr
 
 &nbsp;
 
-"Welcome, my colleagues."
+"Welcome, fellow comrades."
 
 *「いらっしゃいませ御同輩」*
 
-Oh, Siesta is so tiny. So cute."
+"Oh, Siesta is so small. So cute!"
 
 *「あ、シエスタちっちゃい。かわいー」*
 
-'Hmmm, because from a Dwarf point of view, this is the best size.'
+"Hehehe, for dwarves, this size is the best."
 
 *「ふふふ、ドワーフ的にはこのサイズがベストなので」*
 
 &nbsp;
 
-It's called regional color. It's a local siesta.
+It’s a matter of regional characteristics. A local Siesta.
 
 *地域色というやつだな。ご当地シエスタだ。*
 
 &nbsp;
 
-Do siestas in the land of the beasts have chemo ears?"
+"Does Siesta from the beastman country have animal ears?"
 
 *「獣人の国のシエスタはケモ耳だったりするの？」*
 
-I'll do it. I have rabbit ears."
+"She does. She has rabbit ears."
 
 *「しますよ。ウサギ耳生えてます」*
 
 &nbsp;
 
-I'd like to see that for sure. I'd love to go there next time.
+What’s that? I absolutely want to see that. It would be nice to go there next time.
 
 *なにそれ絶対見たい。この次はそっちに行くのもいいなぁ。*
 
 &nbsp;
 
-God is waiting for you.
+"More importantly, the deity is waiting, so please offer it quickly."
 
 *「そんなことより神様がお待ちですよ、早く捧げてくださいな」*
 
-I was just thinking, "Oops, that's right. There was no church in Isiah's village, though there was a Shinto altar.
+"Oh right, I forgot. There wasn’t a church in Aisia’s village, but there was a god shelf."
 
 *「おっと、そうだった。アイシアの里には教会なかったんだよねぇ、神棚はあったけど」*
 
 &nbsp;
 
-So I could not deliver the product, and God had to leave it in my hands. The urging was so annoying that I was not happy about it.
+So I couldn’t make the offering, and the deity was left waiting. The reminders were subtly annoying.
 
 *なので納品できず、神様もお預け状態だったのだ。催促が地味にうるさくてかなわん。*
 
 &nbsp;
 
-I sit at the front of the chapel and pray.
+I sat in the front row of the chapel and offered my prayers.
 
 *私は礼拝堂の一番前の席に座り、祈りを捧げる。*
 
-God.
+God…
 
 *神様ー。*
 
@@ -204,57 +204,54 @@ God.
 
 &nbsp;
 
-God* descended!　Now, we've been waiting for you, Karina-chan!　Godairoshun jyoshiteru hagushoku haya yakuyaku!"
+"God☆Descend! Ah, I’ve been waiting for you, Karina-chan! Hurry up with the Five Great Elders’ Spring Revival Female Blushing Socks!"
 
 *「神☆降臨！　さぁ、待ちに待ってましたよカリーナちゃん！　五大老回春雌照れ靴下はやくはやくぅー！」*
 
-The five great old spring female shy socks!　I've never heard that word before in my life. ......"
+"Five Great Elders’ Spring Revival Female Blushing Socks?! That’s a word I’ve never heard in my life…"
 
 *「五大老回春雌照れ靴下！？　人生で初めて聞くワードっすわ……」*
 
-'Just get it out of here, or I, the loli god, will ring the bell and requisition you?　Are you sure?"
+"Just hurry up and bring them out, or else I, the loli deity, will ring the bell and perform a requiem, okay? Is that alright?"
 
 *「いいから早く出しなさい、さもなくばロリ神様である私が鐘を鳴らしてレクイエムしますよ？　いいんですか？」*
 
 &nbsp;
 
-I don't know what you mean, but it's kind of scary, so I'll just deliver it quickly. I'll deliver it as soon as I can.
+I don’t understand what that means, but it sounds terrifying, so I’ll hurry up and make the offering. Yes.
 
 *言ってる意味は分からんけどなんか恐ろしいのでさっさと納品しますよ。ええ。*
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(Notice below)
+(Announcement below)
 
 *（以下お知らせ）*
 
-I put it at the bottom of the page!　I put it at the bottom of the page!
+The book cover has been releasedーーー!!! I’ve also placed it at the bottom of the page!!
 
 *書影でましたわーーー！！！　ページ下のとこにも置いときました！！*
 
-(Note that the link you clicked on the image is the official X (formerly Twitter) account for the work!)
+(Note: The link clicked on the image leads to the official X (formerly Twitter) account of the work!)
 
 *（なお、画像クリックしたリンク先は作品の公式X（旧ツイッター）アカウントとなっています！）*
 
 &nbsp;
 
-Thanks Dr. Ixy!　Super nice!
+Thank you, Ixy-sensei!! It’s super wonderful!!!
 
 *ありがとうIxy先生！！　超素敵！！！*
 
 &nbsp;
 
-And I heard that the limited edition with the cover art as an acrylic figure is now available for pre-order at Gamers!
+Also, it seems that a limited edition with the cover art made into an acrylic figure is available for pre-order at "Gamers"!
 
 *で、表紙絵をアクリルフィギュアにした限定版が『ゲーマーズ』さんで予約開始してるとかだそうですわよ！*
 
 https://twitter.com/atogozi/status/1712407811760726490
 
 *https://twitter.com/atogozi/status/1712407811760726490*
-

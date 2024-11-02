@@ -1,128 +1,128 @@
-# Was the species recommended?
+# Was it a Racial Recommendation?
 
 ## 種族推奨だったのか
 
-I quickly learned the dragon language from the catalog: ...... Oh, this is the type of skill that allows you to talk to dragons while they consume magic power.
+I quickly learned the Dragon language from the catalog... Oh, this is a skill that lets me talk to dragons while consuming magical power.
 
 *早速カタログからドラゴン語を習得した……あ、これ魔力消費してる間ドラゴンと話せるタイプのスキルなのね。*
 
-Activate the skill and talk to the dragon again.
+I activated the skill and spoke to the dragon again.
 
 *スキルを発動して、改めてドラゴンに話しかける。*
 
 &nbsp;
 
-'In. Why were you chasing that carriage?　I've learned to speak dragon, so you can speak it as it is.'
+"So, why were you chasing that carriage? You can just talk since you learned the Dragon language."
 
 *『で。あの馬車を追いかけていたのはなんで？　ドラゴン語覚えたからそのまま話していいよ』*
 
-'Ah, Miss!　The language of dragons!　You mean you've mastered it in this short time, how smart you are, great!'
+"Oh, sister! You learned the Dragon language!? Did you really master it in such a short time? What a smart person you are, amazing!"
 
 *『あ、姐さん！　ドラゴンの言葉を！？　この短い時間で習得したというのか、なんて頭のいい人なんだ、凄い！』*
 
 &nbsp;
 
-I was called Miss.
+So, I was being called sister.
 
 *私、姐さんって呼ばれていたのか。*
 
 &nbsp;
 
-I'm actually in heat, you know. ...... I got hit once by her and came to my senses.　Normally I'm mild-mannered and harmless, except when I'm attacked.
+"Well, actually, I've entered my mating season... and after being punched by you, I regained my sanity? Normally, I'm gentle and harmless, but, well, if attacked, that's different."
 
 *『いやぁ、実は自分、発情期になっちゃってましてぇ……姐さんに一発殴られて正気を取り戻した的な？　普段は温厚で無害なんですよ、あ、襲われたら別っすけど』*
 
-I see. I see.　Does that mean you were chasing that big iguana-like lizard to ask him to marry you?'
+"I see. Huh? So you were chasing that big iguana-like lizard to propose to it?"
 
 *『なるほどね。ん？　っていうことはあのイグアナっぽい大きいトカゲに求婚しようと追いかけてたの？』*
 
-No, no, no, no, no, no, no, no, no, no, no, no, no, no, no!　That's a male!　She is a nice, white girl on the back side!　She had such a soft body that I couldn't wait to hug her!
+"No, no, that's outrageous! That's a male! More than that, it's the lovely white one behind! I couldn't help but want to hug that soft body!"
 
 *『いやいやとんでもない！　あれオスっすよ！　そんなのより、後ろ側の白くて素敵な彼女っす！　抱きしめたくてたまらない柔らかそうなボディーでしたねぇ！』*
 
 &nbsp;
 
-That's a carriage. It's a covered horse.
+That's a carriage. It's a draft horse.
 
 *それ馬車だよ。幌馬だよ。*
 
 &nbsp;
 
-You don't have to look at me like that, I know I'm not a dragon.　There is a reason for this. You see, dragons are basically the strongest creatures, aren't they?
+"I know I'm not a dragon just by looking at me, right? There's a reason for this. You see, dragons are basically the strongest creatures, right?"
 
 *『そんな目で見られなくてもドラゴンじゃないのは分かってるすよ？　これには理由があるんすよ。ほら、ドラゴンって基本最強生物じゃないっすか？』*
 
-I think it's hilarious that he's the strongest creature in the world after being one-upped by me.
+"It's laughable that you call yourself the strongest creature after being knocked out by me."
 
 *『私にワンパンされといて最強生物とか笑えるんだけど』*
 
-Miss is too strong!　And the Dragon King told me not to increase the number unnecessarily. So a horse-drawn carriage was recommended as an alternative to sex drive. ......
+"You're just too strong, sister!! And, to prevent reckless breeding, the Dragon King issued an order. So, as a substitute for releasing sexual desire, carriages are recommended..."
 
 *『姐さんが強すぎるんすよ！！　んで、むやみに増えないようにって竜王様からお達しがありまして。そこで性欲発散の代替品として馬車が推奨されてて……』*
 
-I see."
+"I see?"
 
 *『……なるほどね？』*
 
 &nbsp;
 
-Was it a species recommendation or a dragon car something?
+So it was a racial recommendation for dragon carriages or something.
 
 *種族推奨だったのかドラゴンカーなんちゃら。*
 
 &nbsp;
 
-I was not expecting her to be defeated by a single blow!　I didn't think she would be beaten with a single blow. ...... Oh, her fangs are broken. I'm so depressed.
+"Still, sister, you were really strong! I never thought I'd be taken down in one hit... Oh, my fangs are broken. I'm bummed."
 
 *『にしても、姐さんホント強かったっすね！　まさか一撃でのされるとは……あ、牙折れてる。へこむ』*
 
-'Ahh. Let's just stick it on, shall we?　You can do that kind of thing, can't you, me?'
+"Ah. Should I fix them? I can do that, you know."
 
 *『あー。くっつけとこうか？　そういうのもできるんだよね私』*
 
-I was surprised that you can use recovery magic even though you have such a strong body. I appreciate the sentiment, but ordinary recovery magic doesn't work on dragons. They have high magic resistance.
+"Wow, sister, you have such a strong body and can use healing magic too. I appreciate the sentiment, but regular healing magic doesn't work on dragons. Our magical resistance is high."
 
 *『へー、姐さんあんなに強い肉体なのに回復魔法まで使えるんすね。気持ちはありがたいっすけど、ドラゴンって普通の回復魔法じゃ効かないんすよ。魔法抵抗力も高くて』*
 
-'Which one? ...... Yeah, it's stuck!'
+"Let me see? ... Yeah, it's fixed!"
 
 *『どれどれ？……うん、くっついた！』*
 
-'............ Wow, seriously!　Who are you, Miss?
+"......Wow, it's true! Who are you, sister!?"
 
 *『…………うわマジだ！　何者っすか姐さん！？』*
 
 &nbsp;
 
-I tried it and it stuck normally. Well, it's not ordinary recovery magic, it's God's magic.
+When I tried it, it fixed normally. Well, it's not regular healing magic; it's divine magic after all.
 
 *試してみたら普通にくっついた。ま、普通の回復魔法じゃなくて神様の魔法だものな。*
 
 &nbsp;
 
-'Well, if you've come to your senses, you're all right now. Go home.
+"Well, if you've returned to your senses, then you should be fine now. Go home."
 
 *『まー、正気に戻ったってんならもう大丈夫だね。おうちにお帰り』*
 
-Are you sure?"
+"Eh, is that okay?"
 
 *『え、いいんすか？』*
 
-'I can't bring myself to kill someone I've talked to so openly. I'm not that much of an ogre, okay?"
+"I can't bring myself to kill someone I've talked to so casually. I'm not that much of a demon, you know?"
 
 *『ここまで気さくに話し込んだ相手を殺す気にはなれないよ。私、そこまで鬼じゃないからね？』*
 
-I was surprised to hear that she was a half-organ. That's why you are so powerful!
+"So you're a half-ogre, sister. No wonder you're so strong!"
 
 *『姐さんハーフオーガだったんすか。どおりで怪力なわけっす！』*
 
-Correction. I'm not a demon. My race is human. ...... maybe."
+"Correction. I'm not a demon. My race is human. ...Probably."
 
 *『訂正。鬼じゃないからね私。種族は人間。……多分』*
 
 &nbsp;
 
-She is supposed to be a normal beautiful girl except for her magical power level, which only allows her to use invincible space magic. In terms of specs.
+I should just be an ordinary beautiful girl aside from being able to use invincible space magic. In terms of specs.
 
 *無敵の空間魔法が使えるだけで、魔力量以外はフツーの美少女のはず。スペック的には。*
 
@@ -130,63 +130,63 @@ She is supposed to be a normal beautiful girl except for her magical power level
 
 &nbsp;
 
-There it is!　There's the dragon!
+"There it is! A dragon!!"
 
 *「いたぞー！　ドラゴンだ！！」*
 
-Hmm?"
+"Huh?"
 
 *『ん？』*
 
 &nbsp;
 
-I looked in the direction of the voice and saw a group of dwarves in full armor charging toward us. They were riding a giant, quadrupedal tortoise that looked like a giant, flattened Zenigame - a cavalry beast that runs so fast that it blasts off at a habitual pace that it produces a cloud of dust - and they were standing on their niohs.
+When I looked in the direction of the voice, fully armored dwarves were charging towards us. They were riding on a giant turtle that looked like a flat-shelled turtle, running at such speed that it kicked up dust—like a beast of burden.
 
 *声のした方を見るとフルアーマーのドワーフたちがこちらに向かって突撃してきていた。平たいゼニガメを巨大にしたような、四足歩行の大亀――その癖に土煙が出るほどに爆速で走る騎獣のようだ――に、仁王立ちで乗っている。*
 
 &nbsp;
 
-Oh no!　Oh no, I'm a dwarf, I've been found!　Help me, Miss!
+"Yikes!? Oh no, it's dwarves, I've been spotted! Help me, sister!!"
 
 *『げっ！？　しまったドワーフっす、見つかったっす！　助けて姐さん！！』*
 
-'Hey, don't hide behind me!　I had nothing to do with this!"
+"Hey, don't hide behind me! I'm not involved!"
 
 *『おい私の後ろに隠れるんじゃない！　私は無関係だろ！』*
 
-I don't like ningen because if you kill them, they will attack you in packs until you run out of power!　Ah, maybe that corpse was found. The one who stomped the adventurer who sniffed her aphrodisiac. ......
+"Humans are troublesome because they attack in packs until we exhaust our strength! Ah, they probably found that corpse. The adventurer who made me sniff aphrodisiac...”
 
 *『ニンゲンは殺したらこっちが力尽きるまで群れで襲い掛かってくるから厄介で嫌なんすよぉー！　あー、多分あの死体が見つかったんだ。自分に媚薬嗅がせてきた冒険者を踏みつぶしたやつ……』*
 
 &nbsp;
 
-What's with the adventurers? He got what he deserved.
+What, was it the adventurer's doing? Serves him right.
 
 *なんだよ冒険者の仕業かよ。自業自得だな。*
 
-Because we were carefree in our argument, the Thunder Dragon and I were surrounded by dwarves. However, the sky is still open, so we could escape if we wanted to. ...... No, run away. Why are you curled up behind me.
+Since I was casually arguing like that, the Thunder Dragon and I were surrounded by dwarves. However, since there's still space in the sky, we could escape if we wanted to... No, we should escape. Why are you curled up behind me?
 
 *のんきにそんな言い争いをしてたもんだから、私とサンダードラゴンはドワーフに包囲されていた。とはいえ、空がまだ残ってるから逃げようと思えば逃げられるけど。……いや逃げろよ。なんで私の後ろで丸まってんの。*
 
 &nbsp;
 
-Oh, a guy with a great beard who seemed to be a representative of the dwarves spoke to me while standing on a turtle.
+Oh, a representative dwarf with a magnificent beard stood on the turtle and spoke to us.
 
 *お、ドワーフの代表らしき髭の立派な奴が亀の上に仁王立ちしたまま話しかけてきた。*
 
 &nbsp;
 
-We are the Knights of the Tessin Mobile Tortoise. We are the Knights of the Tessin Mobile Tortoise. Why is the dragon behind you?"
+"Hey, woman. We are the Tesshin Mobile Turtle Knight Corps. Why is a dragon behind you?"
 
 *「そこな女人よ。我々はテッシン機動亀騎士団である。なぜドラゴンが貴殿の後ろにいる？」*
 
-Help me, Miss!　These guys are a real nuisance, hide me!
+"Help me, sister! These guys are really troublesome, hide me!"
 
 *『助けて姐さん！　こいつらマジ厄介なの、匿って！』*
 
 &nbsp;
 
-And the Thunder Dragon that clings to you. What a pity. What the hell, I can't help it.
+The Thunder Dragon clung to me. How pathetic. Seriously, what a pain.
 
 *と、縋りついてくるサンダードラゴン。情けな。ったく、仕方ねぇなぁ。*
 
@@ -194,7 +194,7 @@ And the Thunder Dragon that clings to you. What a pity. What the hell, I can't h
 
 &nbsp;
 
-I see that ...... is the Knights of the Mobile Turtle. Oh, it's called Dodai Turtle?　It's a moving foundation. Wow, there's such a thing?
+...By the way, it's the Mobile Turtle Knight Corps, huh? Wait, is it called Dodaiturtle? It's literally a moving platform. Amazing that something like this exists.
 
 *……てか、機動亀騎士団なんだね。え、ドダイタートルっていうの？　まんま動く土台じゃん。すげーなこんなのも居るのか。*
 
@@ -204,13 +204,10 @@ I see that ...... is the Knights of the Mobile Turtle. Oh, it's called Dodai Tur
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(Oooooooh, the percentage of new books is increasing!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!)
+(Woohoo, the ratio of new writing is increasing!!!)
 
 *（うおおお、書下ろし割合増加中じゃーーーい！！！）*
-

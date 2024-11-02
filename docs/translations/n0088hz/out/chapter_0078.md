@@ -1,11 +1,10 @@
-# If I don't get the procedure done soon! (slaver's point of view)
+# I must proceed immediately!! (From the perspective of a slave trader)
 
 ## すぐに手続きしなければぁ！！（奴隷商視点）
 
-(Oh shit, I made a mistake posting my reservation and posted two episodes.)
+(I messed up the scheduled post and ended up posting two chapters)
 
 *（しまった予約投稿ミスって２話投稿してた）*
-
 
 ----------------
 
@@ -17,67 +16,67 @@
 
 &nbsp;
 
-A previous slave trader was arrested for selling illegal slaves.
+The previous slave trader was arrested for selling illegal slaves.
 
 *前の奴隷商が違法奴隷を売っていたため、逮捕された。*
 
-And as a replacement, I became the new slaver of the town of Solacidore.
+And as his successor, I became the new slave trader in the town of Sorashidore.
 
 *そして後釜として、私が新たにソラシドーレの町の奴隷商となった。*
 
 &nbsp;
 
-For the time being, he will be covering his predecessor's ass.
+For the time being, I will likely be cleaning up after my predecessor.
 
 *当面は前任者の尻ぬぐいになるだろう。*
 
-The fact that my predecessor had been involved in crime meant that I would be under intense scrutiny for a while. Just as I was thinking that I had to be honest in my dealings for at least a few years, word came to me that a neighboring country had been destroyed.
+Since my predecessor was involved in crime, the scrutiny from those around me will be strict for a while. At the very least, I must engage in honest transactions for several years――just as I was thinking that, news arrived that the neighboring country had fallen.
 
 *前任者が犯罪に手を染めていた分、暫くは周りからの視線も厳しくなる。少なくとも数年は誠実な取引をしなければならない――と、そう思っていた矢先に隣国が滅んだという話がやってきた。*
 
 &nbsp;
 
-A country dying is a big deal, and of course, the slavers were no exception. In fact, the slavers were the busiest part of the business.
+The fall of a country is a major event, and of course, it is no exception for slave traders. Rather, it is precisely the slave traders who become the busiest.
 
 *国が滅ぶとは一大事である、当然、奴隷商にとっても例外ではない。むしろ、奴隷商こそ一番忙しくなるところだった。*
 
-So, I was in the midst of purchasing from the refugees of the Alchemy Kingdom - only legally and conscientiously, unlike my predecessor - and my inventory was nearly overflowing.
+Thus, I was in the midst of sourcing from the refugees of the Alchemy Kingdom――legally and ethically, unlike my predecessor――and my stock was overflowing.
 
 *そんなわけで、錬金王国難民からの仕入れを――前任者と違い、あくまで合法的に、良心的に――行って、在庫が溢れかけている最中のこと。*
 
 &nbsp;
 
-A dying slave that the previous slaver had been holding was sold.
+A dying slave that the previous slave trader had was sold.
 
 *前の奴隷商が抱えていた、死にかけの奴隷が売れたのである。*
 
-It was bought by a new merchant. The source of the funds would be the noble lady who was accompanying him.
+The buyer was a new merchant. The source of the funds was likely the noble lady who accompanied him.
 
 *買ったのは、新人商人。資金の出どころは付き添っていた貴族のお嬢様だろう。*
 
-I did say that I would accept returns because I am determined to do business in good faith. ......
+Since I decided to conduct honest transactions, I had mentioned that I would accept returns...
 
 *誠実な取引を行うと決めているため、返品を受け付けるとは言っておいたが……*
 
 &nbsp;
 
-It seems that this new merchant came in early.
+It seems that the new merchant has come right away.
 
 *早速その新人商人がやってきたらしい。*
 
-I guess he couldn't be healed after all. Even the rumored sacred magic would not be able to heal such an old wound. Besides, he even had a cursed tattoo on his body that inhibited his recovery magic.
+He probably couldn't heal the slave. With such an old injury, I wonder if even the rumored holy magic could heal it. Moreover, there was a cursed tattoo on the body that hindered recovery magic.
 
 *やはり治せなかったのだろうな。あれほどの古傷、噂に聞く神聖魔法でも治せるかどうか。それに、身体には回復魔法を阻害する呪いの入れ墨まで入れられていたのだ。*
 
 &nbsp;
 
-However, there was no particular problem, since the slaves were originally put out with the idea of first showing the worst slaves and then introducing the better ones. The previous owner had also purchased the slaves with the intention of using them in that way, with the assumption that they would eventually be disposed of.
+However, since I had presented the worst slave first, with the intention of introducing better ones afterward, there is no particular problem. The previous trader had planned to use it that way, as it was a slave intended for disposal.
 
 *ただ、元よりまず一番ひどい奴隷を見せて、それからマシなのを紹介しようという考えで出した奴隷だったので、特に問題はない。前任者もそのように使う予定で仕入れた、いずれ処分する前提の奴隷だったのだ。*
 
 &nbsp;
 
-Now, I have to give you gold coins in response to your refund. Next time, I'll show you some better slaves.
+Now, I need to handle the refund and give him the gold coins. Next, I will introduce a slightly better slave.
 
 *さて、返金対応で金貨を渡さないと。次はもう少しマシな奴隷を紹介しよう。*
 
@@ -85,105 +84,105 @@ Now, I have to give you gold coins in response to your refund. Next time, I'll s
 
 &nbsp;
 
-"Hello, slaver. I bought a slave the other day."
+"Hey, slave trader. I'm the one who bought the slave the other day."
 
 *「やぁ奴隷商さん。先日奴隷を買った者だけど」*
 
-Oh, it's Carina Shonin, isn't it? Are you returning the stone? ...... Oh, and your daughter is ......"
+"Oh, if I remember correctly, you are Karina Shonin, right? So, you are returning it? ...Oh, and that lady over there is..."
 
 *「おや、確かカリーナ・ショーニンさんでしたか。流石に返品ですかな？……おや、そちらのお嬢さんは……」*
 
-Oh, thank you very much for your help. Thanks to you, this street ......"
+"Th-thank you for your help. Thanks to you, as you can see..."
 
 *「お、お世話になりました。おかげさまで、この通り……」*
 
-What?　Oh, um. If you are this way..."
+"What! Ah, um. Could it be that this person is..."
 
 *「えっ！　あ、あの。もしや、こちらの方は」*
 
-I'm all healed up. So I'm going to go and do the procedures now. Oh, the slaver's side has already gone through the procedures, right?"
+"Yeah, she's all healed up. So I'm here to take care of the procedures. Oh, you’ve already completed your side of the paperwork, right?"
 
 *「うん、バッチリ治ったよ。というわけでこれから手続きしてくるところ。あ、奴隷商さん側の手続きは終わってるよね？」*
 
-Huh?
+"What!?"
 
 *「ほぁ！？」*
 
 &nbsp;
 
-Oh, no way!　I was a slave in the worst condition in the inventory!
+N-no way! She was in the worst condition among the stock!
 
 *そ、そんなまさか！　在庫の中で一番ひどい状態の奴隷だったのに！*
 
-I thought he might be pretending to be another person as a slave - I had to have a magic match, but it was definitely that dying slave we sold at our place. I was surprised that he was able to recover from that ...... condition!
+I wondered if he was pretending that a different person was a slave――but after checking the magical signature, it was undoubtedly the dying slave we sold. ...To think she could recover from that state!
 
 *別人を奴隷と偽っているのでは――と思って魔力照合させてもらうが、間違いなく、ウチで売った、あの死にかけ奴隷であった。……あの状態から治るだなんて！*
 
 &nbsp;
 
-So I thought I'd introduce you to the healer who fixed this."
+"And so, I thought I would introduce the healer who treated her."
 
 *「それで、これを治した治療士を紹介しようと思ってね」*
 
-Can you refer me to someone who can treat me as well as this?"
+"Y-you can introduce someone who can perform such healing?"
 
 *「こ、これほどの治療ができる方を紹介していただけるのですか？」*
 
-If it's convenient, I'll bring him in this afternoon. How's that?"
+"Yeah, if it’s convenient, I can bring her this afternoon. How about that?"
 
 *「うん、都合がよければ、今日の午後連れてくるけど。どう？」*
 
 &nbsp;
 
-The cursed tattoos are gone, healed an old burn, healed a drugged throat, and even healed a missing arm in such a short time. And all this in such a short period of time.
+The cursed tattoo was gone, the old burn wounds healed, the throat that had been crushed by drugs was restored, and even the missing arms were healed in such a short time.
 
 *呪いの入れ墨も消えていて、古傷の火傷を治し、薬で潰された喉を癒し、そのうえ欠損した両腕すら治してしまう凄腕。それも、この短期間で。*
 
 &nbsp;
 
-A connection with such a healer, of course you want it by the throat.
+A connection with such a healer is something I would want desperately.
 
 *そんな治癒士とのコネクション、喉から手が出るほどに欲しいに決まっている。*
 
 &nbsp;
 
-'No, we'll pay your referral fee, even if you pay in advance. Full refund, one gold coin."
+"No, I’ll pay the introduction fee upfront. Full refund, one gold coin."
 
 *「いえ、紹介料は先払いでも払いましょう。全額返金、金貨１枚です」*
 
-"Oh, you don't mind?"
+"Eh, is that okay?"
 
 *「え、いいの？」*
 
-Yes. And then, when I am able to commission the work to that healer, I will pay you one more gold coin for the additional work."
+"Yes. And once I can request work from that healer, I will pay an additional gold coin."
 
 *「ええ。その上でその治癒士様に仕事が依頼できるようになったら、追加でもう金貨１枚をお支払いします」*
 
-Oh!　You're so generous. Okay, I'll bring him back this afternoon!"
+"Oh! How generous! Alright, I’ll bring her this afternoon!"
 
 *「おお！　太っ腹だねぇ。分かった、じゃあ午後に連れてくるね！」*
 
-Yes, I will do so.
+"Yes, let’s do that."
 
 *「ええ、そのようにいたしましょう」*
 
 &nbsp;
 
-If this connection is true, it would pay for itself with 100 gold coins.
+If this connection is genuine, even paying a hundred gold coins would be worth it.
 
 *もしこのコネクションが真実であれば、金貨１００枚積んでも元が取れるだろう。*
 
-Hopefully, this is just a small expense.
+If all goes well, this amount is not a big expense.
 
 *うまく行けばこれくらいはなんてことない出費だ。*
 
-It is a gamble whether they will really bring him, but it should not be a bad gamble because they will bring him.
+It is a gamble whether she will actually bring her, but since she said she would, it shouldn’t be a bad bet.
 
 *本当に連れてくるかは賭けではあるが、連れてくるというのだから分の悪い賭けではないはずだ。*
 
 &nbsp;
 
-The new merchant received one gold coin and hummed it into his wallet.
+The new merchant received one gold coin and put it in his wallet, humming a tune.
 
 *新人商人は金貨１枚を受け取り、鼻歌交じりに財布にしまった。*
 
@@ -191,11 +190,11 @@ The new merchant received one gold coin and hummed it into his wallet.
 
 &nbsp;
 
-I didn't process ...... because I thought it was a return anyway!
+...Wait, I hadn’t processed the paperwork since I thought it was a return!
 
 *……って、どうせ返品だと思って手続きしていなかった！*
 
-I'll have to get ahead of this and get the procedure done right away!
+I must hurry and take care of the procedures immediately!!
 
 *先回りしてすぐに手続きしなければぁ！！*
 
@@ -205,305 +204,304 @@ I'll have to get ahead of this and get the procedure done right away!
 
 &nbsp;
 
-Then in the afternoon. The new merchant came again with his healer.
+And in the afternoon, the new merchant returned with the healer.
 
 *そして午後。新人商人が治癒士を連れて再度やってきた。*
 
-Dressed in a robe and wearing a mask, he has a suspicious appearance. He is clearly dressed to hide his original shape.
+Dressed in a robe and wearing a mask, they had a suspicious appearance. Clearly, they were hiding their original body shape.
 
 *ローブに身を包み、仮面をつけた怪しい風体。明らかに着込んで元の体型を隠している。*
 
-I guess that's how much they don't want to reveal themselves.
+It seems they are very keen on not revealing their identity.
 
 *それほどまでに正体を明かしたくないということだろう。*
 
-Whether it is to hide its power or whether it is a fraud ...... will remain to be seen.
+Whether that is to hide their power or because they are a fraudster... that will be revealed soon.
 
 *果たしてそれがその力を隠すためか、はたまた詐欺師なのか……それはこれから分かるところだろう。*
 
 &nbsp;
 
-Hey there, I brought you.
+"Hey, I brought her."
 
 *「やぁどうも、連れてきたよ」*
 
-Well, well, well. Welcome, welcome. Is that the healer in question?"
+"Well, well, welcome. Is that the healer in question?"
 
 *「これはこれは、ようこそいらっしゃいました。そちらが件の治癒士様ですか？」*
 
-He's shy. He's shy. Well, you know, guess what?"
+"Yeah. He’s a bit shy, so, well, just take the hint."
 
 *「うん。彼は照れ屋さんでね、まぁその、察してよ」*
 
 &nbsp;
 
-A suspicious figure bows with a small bow. I wondered if he was a man.
+The suspicious figure gave a small bow. Since he referred to them as "he," it seems to be a man.
 
 *ぺこり、と小さく会釈する怪しい人物。彼ということは男なのだろうか。*
 
 &nbsp;
 
-Some diseases can't be cured, but a lot of them can.
+"There are some illnesses I can’t heal, but I should be able to heal quite a lot."
 
 *「病気とかだと治せないのもあるけど、割と多くは治せるはずだからさ」*
 
-Yes, as long as the healing power is real. As long as the healing power is real, we don't mind. So, what should I call you?
+"Yes. As long as the healing power is genuine, I have no particular concerns. By the way, how should I address you?"
 
 *「ええ。治癒の力が本物であれば、こちらは別段気にしませんとも。それで、何とお呼びすれば宜しいのでしょうか？」*
 
-You can call me the ...... healer."
+"......You may call me Healer."
 
 *「……ヒーラー、と呼ぶがよい」*
 
 &nbsp;
 
-Low, wrinkled voice. Healer, healer. I guess that means he doesn't particularly want to tell me his name.
+A low, hoarse voice. Healer, the healer. It seems he has no intention of revealing his name.
 
 *低くしわがれた声。ヒーラー、治癒士。特に名前を教える気はないということだろう。*
 
-However, that doesn't mean that there is anything in particular to be troubled about. In fact, we should not be in a bad mood by shoving it down their throats. It would be an unnecessary concern if you were a con artist. ......
+However, that doesn’t pose any particular problem. Rather, I should avoid prying too much to not offend him. If he is a fraudster, such concern would be unnecessary...
 
 *もっとも、だからといって困ることは特にない。むしろ下手に突っ込んで機嫌を損なわれないようにすべきだ。詐欺師であれば不要な気遣いだろうが……*
 
 &nbsp;
 
-I'm sorry, but can you show us your power in person? Excuse me, but may I see your power in action?"
+"Then, Healer. Excuse me, but could you demonstrate your power?"
 
 *「ではその、ヒーラー様。失礼ですが、そのお力を実際にお見せいただくことはできますか？」*
 
-"Yo, ......, where's the patient?"
+"Very well... Where is the patient?"
 
 *「よかろう……患者はどこだ？」*
 
-Here."
+"Right here."
 
 *「ここに」*
 
 &nbsp;
 
-With that said, I removed my prosthetic leg.
+Saying that, I removed my prosthetic leg.
 
 *そう言って、私は義足を取り外した。*
 
-The patient is myself. I lost my left leg in a carriage accident about 10 years ago.
+The patient is myself. It was about ten years ago that I lost my left leg in a carriage accident.
 
 *患者は私自身だ。かれこれ１０年前だろうか、馬車の事故で左足を失ったのだ。*
 
-It still hurts on rainy days, a real old wound.
+Even now, it hurts on rainy days; it is a genuine old injury.
 
 *今でも雨の日には痛む、本物の古傷だ。*
 
 &nbsp;
 
-If you can fix this, you are definitely the real deal. Now, let's see how it comes out.
+If he can heal this, he is undoubtedly genuine. Now, let’s see how he responds.
 
 *これを治せるなら、間違いなく本物。さぁ、どう出るか。*
 
 &nbsp;
 
-"...... Alright, I'll be right with you. Lie down there."
+"......Very well. Lie down over there."
 
 *「……よかろう。そこに横になれ」*
 
 &nbsp;
 
-Mr. Healer did not examine the wound, but quickly pointed to a couch in the room.
+The Healer pointed to a long chair in the room without examining the wound.
 
 *ヒーラー氏は傷口を診察するわけでもなく、すっと部屋にあった長椅子を指さした。*
 
 &nbsp;
 
-Here, sir?"
+"Here?"
 
 *「ここで、ですか？」*
 
-Enough is enough. Shaunin, prepare the ritual."
+"It should be sufficient. Shonin, prepare the ritual."
 
 *「十分だろう。ショーニン、儀式の準備をせよ」*
 
-I'll get ready. I'll get ready. I'm just an assistant. I'm just a free assistant, so please don't mind me.
+"Yes, yes. I’ll prepare it. Alright. I’m just a mere assistant, so don’t mind me."
 
 *「はいはい。準備しますねー。はーい。私はタダの助手なんで気にしないでくださいねー」*
 
 &nbsp;
 
-At Mr. Healer's direction, the new merchant places small items around me as I lie down.
+Following the Healer’s instructions, the new merchant placed small items around me.
 
 *ヒーラー氏の指示で、新人商人が横になった私の周りに小物を置いていく。*
 
-The left leg was covered with a cloth. The brush tickled my body, making me itchy.
+A cloth was placed over my left leg. I was tickled with a brush, making me feel itchy.
 
 *左足には布をかけられた。刷毛で身体をくすぐられ、むず痒くなる。*
 
 &nbsp;
 
-Now we will perform the ritual. Keep your eyes on the ceiling, straight ...... Gohon. Jugemu, jugemu, goko no no, slikilee ......."
+"Now, I will perform the ritual. Look at the ceiling, straight ahead... Ahem. Jugemu, Jugemu, Gokō no, Surikire..."
 
 *「では、儀式を行う。天井を見ていろ、まっすぐに……ごほん。ジュゲムー、ジュゲムー、ゴコーの、スリキレー……」*
 
 &nbsp;
 
-As Mr. Healer begins to chant a spell I have never heard before, I feel an itch at the base of my left leg, which I have lost due to my imagination.
+As the Healer began to chant an incantation I had never heard before, I felt a tickling sensation at the base of my lost left leg.
 
 *ヒーラー氏が聞いたことのない呪文を唱え始めると、気のせいか失った左足の付け根がむずむずする。*
 
-...... By the way, how long will I be tickled with a brush?　Wapu, don't do the face!
+...By the way, how long will I be tickled with this brush? Wap! Not the face!
 
 *……ところで私はいつまで刷毛でくすぐられるのだろうか？　わぷっ、顔はやめろ！*
 
 &nbsp;
 
-"Smutcorro in Coonertocorro, Yablacozi's Blacozi ......"
+"Kūnerutokoro ni Sumutokorō, Yaburakōji no Burakōji..."
 
 *「クーネルトコロにスムトコロー、ヤブラコージのブラコージ……」*
 
-Yes, please excuse my face!"
+"Alright, excuse me for covering your face."
 
 *「はーい、顔失礼しますねー」*
 
 &nbsp;
 
-And here the new merchant put a cloth over my face. I can't see ...... anything. Mr. Healer's spell continues.
+At that moment, the new merchant covered my face with a cloth. ...I can’t see anything. The Healer’s incantation continues.
 
 *と、ここで新人商人が私の顔に布をかけた。……何も見えない。ヒーラー氏の呪文は続いている。*
 
 &nbsp;
 
-Pompocopy's, Pompoconer's, ...... chocumee chocumee chocumee!"
+"Ponpokopī no, Ponpokonā no... Chōkyūme no Chōsukē!"
 
 *「ポンポコピーの、ポンポコナーの……チョーキューメーのチョースケェ！」*
 
 &nbsp;
 
-The sound of clapping hands!　and the sound of clapping hands. And then it gets quiet. Is the ...... ritual over?
+With a clap! the sound of hands clapping echoed. Then it became quiet. ...Was the ritual completed?
 
 *ぱちん！　と手を叩く音。そして静かになる。……儀式は終わったのだろうか？*
 
 &nbsp;
 
-That's enough."
+"That’s enough."
 
 *「もう良いぞ」*
 
-"Huh. ......, eh?"
+"Huh... um, what?"
 
 *「はぁ……えっと、え？」*
 
 &nbsp;
 
-Then I got up and looked at my left leg. For the first time in ten years.
+Then I sat up and looked at my left leg. For the first time in ten years.
 
 *そして私は起き上がり、自分の左足を見た。十年ぶりに。*
 
-It was there as if it was a matter of course.
+It was there, as if it were "only natural" to be there.
 
 *それはさも「あって当然」と言わんばかりにそこにあった。*
 
 &nbsp;
 
-"Oh, there's ...... a foot ......!
+"Ah, my leg... is... there...!!"
 
 *「あ、足が……ある……！！」*
 
-Mm.
+"Indeed."
 
 *「うむ」*
 
 &nbsp;
 
-Mr. Healer nods in approval. My toes are moving. I can feel it! It's ...... real!
+The Healer nodded proudly. The toes could move. There was sensation! ...It’s real!
 
 *得意げに頷くヒーラー氏。足の指も動く。感覚もある！……本物だ！*
 
-I hung my head to Mr. Healer, or rather Master Healer.
+I bowed my head to the Healer, no, to the Healer-sama.
 
 *私はヒーラー氏、いやヒーラー様に頭を垂れた。*
 
 &nbsp;
 
-'I am sorry I doubted you!　Oh, how I thank you!"
+"I apologize for my doubts! Oh, how can I express my gratitude!"
 
 *「疑ってしまい、申し訳ありませんでした！　ああ、なんとお礼を言えばいいのか！」*
 
-"...... pay for the treatment and that's it. Five gold coins."
+"......Just pay the treatment fee, and that will suffice. Five gold coins."
 
 *「……治療費を払ってくれればそれで良い。金貨５枚だ」*
 
-Five gold coins!
+"Five gold coins!?"
 
 *「金貨５枚！？」*
 
 &nbsp;
 
-That's all it takes!　You want only 5 gold coins for this work of God!
+Just that much!? For such a divine act, only five gold coins is enough!?
 
 *たったそれだけ！？　この神の御業にたったの金貨５枚でいいというのか！？*
 
-Normally, they would take 10 gold coins even to join a severed arm!　And even though it was an old wound and the lost leg was nowhere to be found!
+Normally, even for reattaching a severed arm, ten gold coins are charged! Let alone for an old injury, where the lost leg was nowhere to be found!!
 
 *通常、切り落とされた腕を接合する場合でも金貨１０枚は取られるというのに！！　ましてや古傷で、失った足もどこにもなかったのに！！*
 
 &nbsp;
 
-Oh, no. Five gold coins.
+"That’s just too little, five gold coins..."
 
 *「そんな、金貨５枚だなんて」*
 
-No," he said. No, it's exactly five gold coins. Now, please pay me."
+"No, it is precisely five gold coins. Now, please pay."
 
 *「いいえ。きっちり金貨５枚です。さぁ、払ってください」*
 
-G, gnu ......."
+"Ugh, ugh..."
 
 *「ぐ、ぐぬぬ……」*
 
 &nbsp;
 
-The new merchant also nailed me with the words, 'Five gold coins exactly. You must not pay more than that,' he was nailed to the wall.
+The new merchant had also warned me, "It’s precisely five gold coins. You cannot pay more than that."
 
 *新人商人にも『きっちり金貨５枚。それ以上払うことはならない』と釘を刺されてしまった。*
 
-No, no. It is inconceivable that a person who can do such a great job does not know the market price of healing. And even though he is a newcomer, he is accompanied by a merchant.
+N-no. It’s unthinkable that someone capable of such a feat would not know the market rate for healing. Especially since a merchant, albeit a new one, is accompanying him.
 
 *い、いや。これほどのことができるお方が、治癒の相場を知らないなど考えられない。ましてや新人とはいえ商人が付いているのだ。*
 
-I am sure Master Healer must have some deep thoughts!
+Surely, the Healer-sama must have a profound reason behind this!
 
 *きっとヒーラー様には深い考えがあるに違いない！*
 
 &nbsp;
 
-I understand. I will pay you five gold coins. ......!"
+"I understand. I will pay five gold coins...!"
 
 *「わかりました。金貨５枚をお支払いいたします……！」*
 
-"Yes. Can I continue to pay you five gold coins per person cured?"
+"Indeed. Is it acceptable for five gold coins for each person treated in the future?"
 
 *「うむ。今後も一人治すにつき金貨５枚で良いか？」*
 
-I will see you again in the future?　All right, I'll pay you."
+"Y-you will continue to see me! I understand, I will pay."
 
 *「っ、こ、今後も診ていただけるのですか！　分かりました、お支払いいたしましょう」*
 
-'I'll visit once a month. We'll see them all together then--oh, no more than five at a time."
+"Once a month, I will visit. At that time, I will treat up to five people at once."
 
 *「月に一度、訪れる。その時にまとめて診よう――ああ、一度には５人までだ」*
 
-We are waiting for you, Master Healer. We are waiting for you, Master Healer."
+"I understand. I look forward to your visit, Healer-sama."
 
 *「畏まりました。お待ちしております、ヒーラー様」*
 
 &nbsp;
 
-I bowed my head with the joy of helping this man in his noble mission.
+With joy at being able to assist this person in their noble mission, I bowed my head.
 
 *このお方の、崇高な使命の手助けができる歓びと共に、私は頭を下げた。*
 
-It was only after the healer left that I realized, to my utter shock, that I had forgotten to give the new merchant an additional brokerage fee.
+In the shock of it all, I realized I had forgotten to give the new merchant the additional intermediary fee after the Healer-sama left.
 
 *余りの衝撃に、新人商人の方に追加の仲介料を渡し忘れていたことに気づいたのは、ヒーラー様が帰ってからの事だった。*
 
 &nbsp;
 
 &nbsp;
-

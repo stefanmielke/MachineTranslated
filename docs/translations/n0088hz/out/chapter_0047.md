@@ -1,4 +1,4 @@
-# ...... changed my clothes ●Illustration Ali
+# ……I changed clothes ●Illustration included
 
 ## ……着替えました　●挿絵アリ
 
@@ -6,25 +6,25 @@
 
 &nbsp;
 
-Hey, Karina, where do I change my clothes? Where do I change my clothes?
+"Um, Karina onee-san. Where should I change?"
 
 *「あのぉ、カリーナお姉さん。ボク、どこで着替えたら」*
 
-Hmm?"　I'm going to change my clothes, well, there. ...... Oh, stay away from that bed over there!　（There's some (sort of) dangerous stuff lying around!"
+"Hmm? You can change around there... Ah, but don't go near that bed! There are (in a way) dangerous things lying around!"
 
 *「ん？　着替えは、まぁそこらへんで……あ、そっちのベッドの方には近づかないでね！　（ある意味）危ないものが転がってるから！」*
 
-Yes.
+"Y-yes."
 
 *「は、はい」*
 
 &nbsp;
 
-I will keep my private space away from you. I'll keep ...... various things hidden. There are some things I don't want my kids to see.
+I won't let anyone near my private space. ...I need to hide various things. There are things that shouldn't be shown to children.
 
 *私の私的スペースは近寄らせないでおく。……色々と隠しておこう。子供に見せたらいけないものがあるんでな。*
 
-And even though it's called a bed, it's still just a box and a blanket.
+Also, even though it's called a bed, there are only a box and a blanket for now.
 
 *あとベッドといってもまだ箱と毛布しかないし。*
 
@@ -34,11 +34,11 @@ And even though it's called a bed, it's still just a box and a blanket.
 
 &nbsp;
 
-"Sister Karina ...... has changed her clothes."
+"Karina onee-san... I changed."
 
 *「カリーナお姉さん……着替えました」*
 
-"Oh, that was a quick change of clothes, right ...... nnggg!"
+"Oh, that was quick... Hmm!"
 
 *「おー、着替え早かった、ね……ンンッ！」*
 
@@ -46,117 +46,117 @@ And even though it's called a bed, it's still just a box and a blanket.
 
 ![挿絵(By みてみん)](https://16748.mitemin.net/userpageimage/viewimagebig/icode/i709500/)
 
-Black dress and over the knee socks. He's stunningly cute, not like a man. ......
+In a black dress with over-the-knee socks. Such remarkable cuteness that one wouldn't believe it's a boy...!
 
 *黒いワンピースにオーバーニーソ。男とは思えない見事な可愛さだ……！*
 
-I guess she wanted to look cute, but chose a simple dress as much as possible out of embarrassment. But it suits her. It was her first time wearing a woman's dress, and it was a very first-time experience for her!
+While seeking cuteness, it seems they chose a simple dress out of embarrassment. But it suits them well. The freshness of their first cross-dressing!
 
 *可愛さを求めつつも、恥ずかしさからなるべくシンプルなワンピースを選んだのだろう。だがそれが似合う。初めての女装、という初々しさ！*
 
-His cheeks are flushed and he looks troubled. You are a boy, but you are still embarrassed to dress up as a girl!　I understand, I used to be a guy too!
+Their cheeks are flushed, and they have a troubled expression. Even though they're a boy, it’s still embarrassing to dress like a girl! I understand, since I was a man too!
 
 *頬を赤らめ、困った顔をしている。男の子なのに女の子の格好するのはやっぱり恥ずかしいんだね！　分かるよ、私も元男だから！*
 
-In other words, it's shame - the spice that God wants!
+In other words, that’s a sense of shame — the spice that the gods seek!
 
 *つまりそれは羞恥心――神様の求めるスパイスということ！*
 
 &nbsp;
 
-"...... and I also made my underwear women's like your sister Karina said. Do you want me to check?"
+"...I properly changed into women's underwear just like Karina onee-san said. Should I confirm it?"
 
 *「……ちゃんと、カリーナお姉さんの言う通りに下着も女物にしました。確認、しますか？」*
 
-'Well, I'll get to that later!　...... whoosh, this is what I mean when I say that such a pretty girl can't possibly be a girl."
+"W-well, let's do that later! ...Hoo, so this is what it means when you think there's no way such a cute child could be a girl."
 
 *「そ、それはあとでね！　……フーッ、こんなかわいい子が女の子なはずがない、っていうのはこういう事か」*
 
 &nbsp;
 
-Oh, he's so cute, I want to hold him in my arms!　I try my best to hold back my agony.
+Oh, so cute! I want to hug them! I desperately hold back the urge to swoon.
 
 *うわ可愛いぃー、抱っこしてぇー！　と悶えたくなるところを必死でこらえておく。*
 
-When this is over, I will pet them to my heart's content!
+Once everything is over, I'll pet them to my heart's content!
 
 *コトが終わったら存分に撫で繰り回してやろう！*
 
 &nbsp;
 
-"Oh, did your sister's glasses suit you, ......?"
+"Did I meet your standards, onee-san...?"
 
 *「お、お姉さんのお眼鏡に適いましたか……？」*
 
-Of course I passed!　He's cute, Dear, you're very cute!　You are so cute!　Your silver-white hair and black dress look great with the perfect contrast!　You're adorable!
+"Of course, you passed! You're so cute, Dia-kun is really adorable! So cute!! The silver hair and the black dress create a wonderful contrast that suits you perfectly! So cute!!"
 
 *「もちろん合格！　可愛いよ、ディア君はとっても可愛い！　可愛い！！　白銀の髪と黒いワンピースが絶妙なコントラストで良く似合ってるよ！　可愛い！！」*
 
-"Ugh, if I just bear with you, you'll really help my sister, won't you ......?"
+"Ugh, if I endure this, you'll really help my sister, right...?"
 
 *「うう、ぼ、ボクが我慢すれば、本当に姉様を助けてくれるんですよね……？」*
 
-Help, help, help!
+"I'll help, I'll help!"
 
 *「助ける助ける！」*
 
-Okay, okay, ......, so what do I do?"
+"I understand... So, what should I do?"
 
 *「わかり、ました……で、ボクはどうすれば？」*
 
-Then, for now, tell me what your sister is like, Dear."
+"Well then, first tell me the characteristics of your sister."
 
 *「じゃあとりあえずディア君のお姉ちゃんの特徴教えて」*
 
-What?　Uh, yes."
+"Huh? Ah, okay."
 
 *「え？　あ、はい」*
 
 &nbsp;
 
-If you don't know the faces of the people you are helping, you don't know who to help.
+If I don't even know the face of the person I'm helping, I won't know who to assist.
 
 *助ける人の顔もわからないんじゃ、誰を助けたらいいか分からないもんね。*
 
-After casually dressing up as a woman, he calls her by "kunichimi" (literally, "you are a boy") to make her aware that he is a boy.
+Also, by casually calling them "kun" after they cross-dress, I keep reminding them that they are still a boy.
 
 *尚、さりげなく女装してからは君付けで呼ぶことで、あくまで君は男の子なんだぞと意識させていくスタイル。*
 
 &nbsp;
 
-'Um, does my face look like Mr. Deere's?'
+"Um, does she look similar to Dia-kun?"
 
 *「えーっと、顔はディア君に似てるのかな？」*
 
-I'm not sure. She is also an elf with silver hair and, uh, a body like your sister Karina's, I guess?"
+"Yes. My sister is also an elf with silver hair, and her body shape is similar to Karina onee-san's, I think?"
 
 *「はい。姉様もエルフで銀髪、ええと、体つきはカリーナお姉さんに似てる、かな？」*
 
-Hmmm..." I don't have much information about the clothes because they are not helpful. ...... Well, if I find an elf that looks like that, I will help you out. I'll do my best.
+"Hmm, hmm. The clothing isn't helpful, so that's fine, but there's not much information... Well, if I find an elf that seems like her, I'll help you. Since Dia-kun is cute, I'll do my best."
 
 *「ふむふむ。服装は参考にならないからいいとして、情報が少ないな……ま、それらしいエルフ見つけたら助けていくからね。ディア君可愛いから、私頑張っちゃうよ」*
 
-Please, my sister is my precious family!"
+"Please, my sister is an important family member!"
 
 *「お願いします、姉様は大事な家族なんです！」*
 
 &nbsp;
 
-It was a big business venture, renting a ship and crew from Dia's family's trading company, but unfortunately, they ran into pirates and lost the cargo and other things they were carrying.
+It was a major operation to borrow a ship and crew from Dia-kun's family's trading company, but unfortunately, it seems they encountered pirates and had their cargo and other things stolen.
 
 *ディア君のご家族の商会で船と乗務員を借りての一大事業だったが、運悪く海賊と出くわし積み荷や諸々を奪われてしまったらしい。*
 
-I understand that they were originally going to a port in another country and had no plans to come to Velarde.
+Originally, they were aiming for a port in another country and weren't supposed to come to Verald.
 
 *元々は別の国の港を目指していて、ヴェーラルドに来る予定はなかったそうな。*
 
 &nbsp;
 
-I hope they didn't kill your ...... sister.
+...I hope my sister isn't dead.
 
 *……お姉ちゃん殺されてないといいんだけど。*
 
-I guess I have to help her because I said I would help her. You're a girl of your word, Carina.
+Since I said I'd help, I have to do it. After all, I'm Karina-chan, who puts words into action.
 
 *助けるって言ったからには助けないとなぁ。有言実行カリーナちゃんだからね。*
 
@@ -164,81 +164,81 @@ I guess I have to help her because I said I would help her. You're a girl of you
 
 &nbsp;
 
-I'll do whatever I can to help. ......!"
+"If there's anything I can do, I'll do it...!"
 
 *「ボクにできることならなんでもしますので……！」*
 
-What?　What did you just say--"
+"Hmm? What do you mean by anything—"
 
 *「ん？　今何でもって――」*
 
 &nbsp;
 
-When I tried to reply with a standard sentence, "Gooooooooo. And then Dia-kun's stomach rumbled.
+Just as I was about to respond with a standard phrase, Dia-kun's stomach growled.
 
 *定型文を返そうとしたら、ぐぅうー。と、ディア君のお腹が鳴った。*
 
 &nbsp;
 
-Sorry. ......."
+"I'm sorry..."
 
 *「すみません……」*
 
-Haha. Scallops aren't enough for you, are they?　There's other food, so eat up! The only drinks are ...... water and alcohol!　I'll lend you a glass, do you want to serve yourself some water?"
+"Ahaha. Just scallops alone won't be enough, right? There's more food, so eat up. As for drinks... there's only water and alcohol! I'll lend you a cup, so do you want to get the water yourself?"
 
 *「あはは。ホタテだけじゃ足りてないでしょ？　他にも食べ物あるから食べなー。飲み物は……水とお酒しかねぇ！　コップ貸すから自分で水出す？」*
 
 &nbsp;
 
-I'll duplicate and arrange the preserved food and street food on top of a wooden box at just the right height. I should have stocked up on juice, too.
+I arranged preserved food and street food on a wooden box at just the right height. I should have stocked up on juice too.
 
 *丁度良い高さの木箱の上に保存食とか屋台の食べ物を複製して並べる。ジュースも買い溜めしとけばよかったよ。*
 
-...... Oops, I got carried away and duplicated too much.
+...Oops, I got a bit carried away and overdid it with the duplication.
 
 *……おっと、調子に乗って複製しすぎてふらっとした。*
 
 &nbsp;
 
-Deep breath, deep breath. Phew.
+Deep breath, deep breath. Hoo.
 
 *深呼吸、深呼吸。ふぅ。*
 
-I wonder if there is some sort of mana potion or something like that.
+I wonder if there are things like mana potions.
 
 *なんかこう、マナポーションとかそういうのもあるのかなぁ。*
 
-I would like to secure it. Can it be made by alchemy?　I wonder if it is in the alchemy book.
+I want to secure some. Can they be made with alchemy? I wonder if they're in the alchemy textbook.
 
 *確保しておきたい所存。錬金術でつくれたりするか？　錬金術教本に載ってるかなぁ。*
 
 &nbsp;
 
-"Now where the heck are you ......"
+"Now, where exactly did this come from...?"
 
 *「今、一体どこから……」*
 
-'Hmph, if you want me to help your sister, don't pry, okay?'
+"Heh, if you want to help my sister, there's no need to pry, right?"
 
 *「フッ、姉ちゃんを助けてほしいなら詮索は無用だよ？」*
 
-Yes, thank you.
+"I-I'll take it."
 
 *「い、いただきます」*
 
 &nbsp;
 
-With that said, Dia-kun begins to eat the food from the street stalls.
+Saying that, Dia-kun starts eating the street food.
 
 *そう言って屋台料理を食べ始めるディア君。*
 
-The way he eats looks pretty classy, I mean, the clothes he wears are moderately good, and considering he was on a boat, I wonder if he's a ...... monk.
+The way they eat is quite elegant, and considering the nice clothes they're wearing, they must have been on a ship... are they a little rich kid?
 
 *食べる姿はなかなか品のある感じだ、というか着てる服も中々良いものだったし船に乗ってたことを考えるに……お坊ちゃんなのかなぁ。*
 
 &nbsp;
 
-I'm sure I'll be pissed off later for letting such a little boy dress up as a woman. ...... But, you know, when the time comes, you'll have to deal with it. If the need arises, you can just run away!
+Making such a rich kid cross-dress might get me scolded later... but well, we'll deal with that when the time comes. If it comes to it, I can just run away!
 
 *そんなお坊ちゃんに女装させるなんて後々怒られそうだけど……ま、そんときゃそんときよ。いざとなれば逃げれば良し！*
 
@@ -248,55 +248,55 @@ I'm sure I'll be pissed off later for letting such a little boy dress up as a wo
 
 &nbsp;
 
-Oops, looks like Gomez and the others have boarded the boat.
+"Oh, it seems Gomez and the others have boarded the ship."
 
 *「おっと、ゴメス達が船に乗り込んだようだね」*
 
-What, you can figure it out from here?"
+"Huh, can you tell from here?"
 
 *「え、ここから分かるんですか？」*
 
-Well, by magic. Well, Deere, is your sister there?　It would be easier if she were in the boat. ......"
+"Well, with magic. Now, let's see if Dia-kun's sister is on board. It would be nice if she is inside the ship..."
 
 *「まぁ魔法でね。さーて、ディア君のお姉ちゃんはいるかな？　船の中に居たら楽でいいけど……」*
 
 &nbsp;
 
-She's a beautiful elf, and I don't think they would have taken her life, let alone her chastity. I'd toy with her for at least a week. I'm sure of it. Probably. I'm sure of it.
+She's a beautiful elf, so regardless of her chastity, I doubt her life has been taken. If it were me, I would at least toy with her for a week. No doubt about it. Probably. It should be.
 
 *美人のエルフだし、貞操はともかく命までは奪われていないだろう。私なら少なくとも一週間は弄ぶ。間違いない。多分。そのはず。*
 
 &nbsp;
 
-Gomez and his crew set sail on a rather large ship - a pirate ship, if you will. The black sails with skull marks looked very much like a pirate ship.
+Gomez and the others set sail on quite a large ship — a ship that screams pirate ship. The black sails with a skull mark look very fitting.
 
 *ゴメス達は結構大きな船――これぞ海賊船、と言わんばかりの船を出航させた。ドクロマークの黒い帆がすごくそれっぽい。*
 
-And Gomez, who must have been in a hurry, is still breathing on his shoulder on the deck.
+And they must have been in a hurry, as Gomez is still panting on the deck.
 
 *そしてよほど急いだのだろう、ゴメスはまだ甲板にて肩で息をしている。*
 
-I wonder if the sacred vessel "Poseidon" or something like that is already on this ship. I'm looking forward to that too.
+I wonder if the artifact "Poseidon" is already on this ship. That’s something to look forward to.
 
 *神器『ポセイドン』とやらはこの船にもうあるのかな。それも楽しみだ。*
 
 &nbsp;
 
-I'm going to go explore the pirate ship. You stay here."
+"Well then, I'll go check inside the pirate ship. You stay here and keep watch."
 
 *「それじゃ、ちょっと海賊船の中を探ってくるよ。ここで留守番してて」*
 
-"Carina sister ...... sister, please."
+"Karina onee-san... please take care of my sister."
 
 *「カリーナお姉さん……姉様を、お願いします」*
 
-I'll take care of it.
+"Leave it to me!"
 
 *「まかせてー」*
 
 &nbsp;
 
-Dia-kun, for your sister's socks, let's explore the inside of the pirate ship!
+For Dia-kun's sister's sake, I'll go explore the inside of the pirate ship!
 
 *ディア君お姉ちゃんの靴下のためにも、海賊船の中を探っていくとしよう！*
 
@@ -306,21 +306,18 @@ Dia-kun, for your sister's socks, let's explore the inside of the pirate ship!
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-("Until the Dungeon Master Who Never Wants to Work Coasts Away," comic, vol. 8,
+(From "The Dungeon Master Who Absolutely Doesn't Want to Work Until They Indulge in Sleep" Comic Volume 8, releasing on 1/25!
 
 *（『絶対に働きたくないダンジョンマスターが惰眠をむさぼるまで』コミック8巻、*
 
-Released 1/25!　There is a link in the activity report for information on special offers.
+For information about bonuses, there's a link in the activity report.
 
 *1/25発売！　特典情報については活動報告にリンクがあります。*
 
-(You can tell from the ...... sample, the benefit boobs are amazing...!)
+...As you can tell from the sample, the bonus breasts are amazing...!)
 
 *……サンプルからもわかる、特典おっぱいがすごいぞ…！）*
-

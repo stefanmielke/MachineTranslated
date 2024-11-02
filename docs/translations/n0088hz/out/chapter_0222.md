@@ -1,272 +1,269 @@
-# No really, my bad.
+# Well, really, I was at fault
 
 ## いやほんと、私が悪かったよ
 
 &nbsp;
 
-I decided to take it easy and do some shopping with my rags to riches (God's reward) reward from the convention.
+With the huge profits I made from the tournament (a reward from the gods), I decided to relax and go shopping.
 
 *大会でボロ儲け（神様からの報酬）した報酬で、のんびりと買い物をすることにした。*
 
 &nbsp;
 
-Arthur also said, "I want gold coins, too!　I don't want to be left out! I gave him one large gold coin. I thought it was a good opportunity to do some shopping.
+By the way, Arthur-kun also whined, "I want gold coins too! I don't want to be left out!" so I gave him a gold coin. It's just a bit of pocket money, so I thought I might as well go shopping.
 
 *尚、アーサー君も「自分も金貨欲しいっすぅ！　仲間外れは嫌っす！」とダダこねたので大金貨１枚くれてやった。それくらいのあぶく銭なので、折角なので買い物しようかなって。*
 
 &nbsp;
 
-She is accompanied by Dia-kun. The sisters are dressed in a gothic-lolita combination.
+My companion is Dia-kun. We are in a Gothic Lolita sister coordinate.
 
 *なおお供はディア君だ。ゴスロリ合わせの姉妹コーデである。*
 
-Isiah said, "I don't want to intrude on your date!" and she is staying at home.
+Aisia is staying behind because she said, "I don't want to interrupt the date!"
 
 *アイシアは「デートのお邪魔したくないので！」とお留守番である。*
 
 &nbsp;
 
-You said you had a date at ....... No, it's not.
+...And a date, huh? That's not it.
 
 *……で、デートって。ちがうし。*
 
 &nbsp;
 
-"Well, Axe, Axe, Axe."
+"Well then, let's look at accessories."
 
 *「さて、アクセみよアクセ」*
 
-If you want, you can ask the Five Elders to make it for you.　I'm sure they'd be very upset if Karina's sister put on some store-bought equipment."
+"If you want something, you can ask the Five Elders to make it for you, you know? I think Karina-onee-san would sulk if she saw you wearing store-bought gear though?"
 
 *「欲しかったら五大老のみなさんに頼めば作ってくれますよ？　カリーナお姉さんが店売りの装備付けてたら拗ねると思いますけど？」*
 
-That's it!　That's it!　I want to put a real chemo-ear catsuit (for travelers) on you, Deere!
+"That's that! This is this!! I want to put a genuine beast ear headband (for travelers) on Dia-kun!!"
 
 *「それはそれ！　これはこれ！！　本場のケモ耳カチューシャ（旅行者向け）をディア君に付けたいなぁって！！」*
 
 &nbsp;
 
-In Terra Realby, the land of the beastmen, there is even a set of beastmen impersonators for travelers.
+In the beastman country of Terarialby, there are also traveler beastman cosplay sets available.
 
 *獣人の国であるテラリアルビーでは、旅行者の獣人なりきりセットもあったりするのだ。*
 
-It seems to be a tool for rather hard perverted play, 'masquerade play to humiliate the beast' for the beast racists. That is very naughty.
+For beastman supremacists, it seems to be a rather hardcore fetish play tool called 'costume play to demean beasts.' That in itself is really erotic.
 
 *獣人差別主義者にとっては『獣に貶める仮装プレイ』というわりとハードな変態プレイの道具になるらしい。それはそれですごくエッチです。*
 
 &nbsp;
 
-Dear, you have no such discriminatory thoughts, so it's simply a cute chemo-ear costume.
+Since Dia-kun doesn't have such discriminatory thoughts, it's simply a cute beast ear costume.
 
 *ディア君にそういう差別思想はないので単に可愛いケモ耳仮装だ。*
 
 &nbsp;
 
-I wonder where they sell it."
+"I wonder where they sell them..."
 
 *「どこで売ってるのかなー」*
 
-"Um, I feel like I'm getting a lot of stares. ......"
+"Um, I feel like I'm being watched a lot..."
 
 *「あの、なんかすごく視線を感じるんですが……」*
 
-Well, Deere is the winner of the tamer competition, and I've had my fair share of tamers in the past, so..."
+"Well, Dia-kun is the winner of the Tamer Tournament, and I also made a scene at the tournament."
 
 *「まぁディア君はテイマー大会優勝者だし、私も大会でやらかしてたからねぇ」*
 
 &nbsp;
 
-And in this outfit. It was hard not to stand out.
+Moreover, we're dressed like this. We can't help but stand out.
 
 *しかもこの格好である。目立って仕方ないのである。*
 
-And what's more, they are beautiful sisters. What?　One of them is an elf, so they are not sisters, right?　Well, yes. And they are so cute that I had to put a lot of energy into standing next to them.
+And on top of that, we're beautiful sisters. Huh? You say one of us isn't a sister because she's an elf? Well, that's true. Plus, she's so cute that I have to muster up my energy just to stand next to her.
 
 *しかもしかも美少女姉妹だ。え？　片方エルフだから姉妹ではないだろって？　まぁそうだね。しかも可愛すぎて隣に並ぶのに気合い入れないとやってらんねぇんだよ。*
 
 &nbsp;
 
-Hmmm, I wonder if dog ears or cat ears would look better on Dear-kun."
+"Hmm, I wonder which suits Dia-kun better, dog ears or cat ears?"
 
 *「うーん、ディア君には犬耳と猫耳、どっちが似合うかなー」*
 
-'You should put one on too, sis? Like ...... dora horns."
+"Please wear one too, onee-san? ...Like dragon horns or something."
 
 *「お姉さんも付けてくださいよ？……ドラ角とか」*
 
 &nbsp;
 
-Dora angle ...... would be ......!　Is there such a thing? Is there a ......!
+Dragon horns... really...? Is that a thing? ...It is!?
 
 *ドラ角……だと……！？　そういうのもあるのか？……あるのか！？*
 
 &nbsp;
 
-And then, one of the beastmen approached with da-da-da-da-da-da-da-da-da-da-da-da-da-da-da-da-da-da-da-da-da-da-da-da-da-da-da-da-da-da-da-da.
+As Dia-kun and I walk around looking for a souvenir shop, a beastman approaches us, kicking up dust.
 
 *と、土産物屋を探して歩いている私とディア君に向けて、ダダダダダと土煙を上げて近づいてくる獣人が一人。*
 
 &nbsp;
 
-I've found it!　I found it!
+"Hey you!! I found youuuuu!!"
 
 *「てっめー！！　みつけたにゃぁああああ！！」*
 
-"Oh, Misha. You're looking good."
+"Oh, Misha. It's good to see you're doing well."
 
 *「おっ、ミーシャ。元気そうでなによりだね」*
 
 &nbsp;
 
-Misha. The cat beastie who I spanked and agitated and retrieved my socks at the convention. She is a very cute cat who is worth teasing.
+Misha. The cat beastman I spanked and teased at the tournament to retrieve my socks. She's a very cute little cat who's fun to tease.
 
 *ミーシャ。私が大会にてお尻ぺんぺんしたり煽ったりして靴下を回収した猫獣人。とってもからかい甲斐のある可愛いニャンコだ。*
 
-And if you try to attack them, God says you can make them slaves.
+And I've been told by the gods that I can make her my slave if I manage to ambush her.
 
 *そして襲撃しようもんなら奴隷にしていいとか神様に言われている。*
 
 &nbsp;
 
-I'll protect you, sister!"
+"Wait! I'll protect onee-san!"
 
 *「まってください、お姉さんはボクが守りますっ！」*
 
 &nbsp;
 
-And Mr. Dear stands in front of me and glares at Misha.
+Dia-kun stands in front of me and glares at Misha.
 
 *と、ディア君が私の前に立ってミーシャを睨む。*
 
-Misha stopped just in front of it.
+Misha stops abruptly in front of him.
 
 *ミーシャはその手前でずざざざっと止まった。*
 
 &nbsp;
 
-What the hell?　What's up with this little guy?　Are you trying to protect him? He's ...... so cute. Super cute ......, you, what's that cute ......, yeah, cute ...... is the only word that comes to my mind...! I can't say anything but "cute...!
+"Oh!? Who's this little brat? You want to protect her? ...How cute. Super cute... W-What are you, with that cuteness... Huh, cute... I can't think of anything but 'cute'...!"
 
 *「お！？　なんだこのガキンチョお？　そいつを守ろうっての？……可愛いじゃねぇか。超可愛い……お、おめぇ、なんだその可愛さ……え、可愛い……可愛いしか言葉が出にゃぁ……！」*
 
-Right?　Right?　Cute is justice, right?"
+"Right!? Right!? Cute is justice, isn't it?"
 
 *「でしょ！？　でしょぉ！？　可愛いは正義だよねっ」*
 
-What, uh, you mean, uh, ......?　Uh-huh. Sister?"
+"Uh, um...? Uh, onee-san?"
 
 *「え、あ、あの……？　ええっと。お姉さん？」*
 
 &nbsp;
 
-Dear, you are still cute, aren't you?
+Dia-kun is really cute!
 
 *ディア君はやっぱり可愛いよね！*
 
-Misha!　You and I are going to get along great!
+Misha! I think we can get along!!
 
 *ミーシャ！　おまえとは仲良くなれそうだ！！*
 
 &nbsp;
 
-I'm not saying that!　Hey, Karina, take this!
+"That's not the point! Here, Karina, take this!!!"
 
 *「ってそうじゃねぇええ！　おらぁカリーナ、これを受けとれぇ！！！」*
 
-Hmm?　What is it?　A love letter?"
+"Huh? What is it? A love letter?"
 
 *「ん？　なぁに？　ラブレター？」*
 
 &nbsp;
 
-A letter was thrown at me. When I unfolded it, I found it to be a letter of fulfillment. What a decent letter.
+A letter is thrown at me sharply. When I unfold it, it's a challenge. Oh, it's nothing serious.
 
 *びしっと投げつけられる手紙。広げると、果たし状だった。なーんだ、まとも。*
 
-Apparently, they want to fight again in the tournament.
+It seems she wants a rematch from the tournament.
 
 *どうやら大会で戦いなおしたいらしい。*
 
 &nbsp;
 
-Revenge at that tournament!"
+"I want a rematch from that tournament!!"
 
 *「その大会でリベンジにゃぁあああ！！」*
 
-What?"　Misha won more than me, but I need revenge?"
+"Huh? Misha won, so why do you need a rematch?"
 
 *「あれ？　ミーシャの方が勝ったのにリベンジって必要なの？」*
 
-You know what I'm talking about, don't you?　You're the reason I'm called 'God-pleasing ass' or something!
+"You know I'm saying this on purpose, right!? Because of you, I'm being called 'the butt that pleases the gods'!!"
 
 *「分かってて言ってんだろぉおおお！？　おめーのせいで私は『神を喜ばす尻』とか呼ばれてんだにゃああああ！！」*
 
-"'God-pleasing buttocks'!"
+"'The butt that pleases the gods'!?"
 
 *「『神を喜ばす尻』！？」*
 
 &nbsp;
 
-Hey, what the heck. God likes socks better. ......!
+W-What the heck. The gods prefer socks...!?
 
 *な、なんてこった。神様は靴下の方が好きなのに……！？*
 
-If they get the wrong idea about that and start offering butt slaps, that's something God might resent you for. ......
+If they misunderstand that and start offering butt slaps, I might end up being resented by the gods...
 
 *そこら辺を勘違いされて尻叩きを捧げられるようになったらそれはそれで神様に逆恨みされかねないな……*
 
 &nbsp;
 
-I'm kind of, you know, sorry ...... no, really, I'm sorry ......."
+"Um, I'm really sorry... I truly was at fault..."
 
 *「なんかその、ごめん……いやほんと、私が悪かったよ……」*
 
-......If you apologize so honestly, I'm inclined to forgive you. But I can't do that!　I won't forgive you!　So, if you feel bad about it, go to that tournament. I want revenge!
+"If you apologize so honestly, it makes me want to forgive you. But, I can't! I won't forgive you! So, if you feel bad, you should enter that tournament. A rematch!!"
 
 *「……そう素直に謝られたらなんか許したくなるにゃぁ。で、でもだめにゃ！　許さないにゃ！　というわけで、悪いと思ってるならその大会に出るにゃ。リベンジにゃぁ！！」*
 
 &nbsp;
 
-Hmm. Well, okay.
+Hmm. Well, that's fine.
 
 *ふぅむ。まぁいいけど。*
 
 &nbsp;
 
-"And while you're at it, will you be joining us?"
+"By the way, are you going to enter too?"
 
 *「ついでにおめーも出るかにゃ？」*
 
-"...... Yes, I will protect your sister!　If I win first, give up!"
+"...Yes, I'll protect onee-san! If I win first, you have to give up!"
 
 *「……そうですね、ボクがお姉さんを守ります！　ボクが先に勝ったら、諦めてください！」*
 
-"Oh, oh, that's good. I'll give it up then.
+"Oh, oh, sounds good. In that case, I'll give up."
 
 *「おーおー、良いぞ。そん時は諦めてやらぁ」*
 
-Wait a minute, Mr. Dear!
+"Wait, Dia-kun!"
 
 *「ちょ、まってよディア君！」*
 
-'It's all right. With the equipment of all the Five Great Elders, ...... will be fine, maybe even ......!"
+"It's fine. With the equipment from the Five Elders... It should be fine, probably...!"
 
 *「大丈夫です。五大老の皆さんの装備があれば……大丈夫です、多分……！」*
 
 &nbsp;
 
-So, Mr. Dear and I were going to participate in a tournament designated by Misha.
+So, Dia-kun and I decided to enter the tournament designated by Misha.
 
 *というわけで、私とディア君は、ミーシャの指定した大会に出ることになった。*
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(I know it's been a tough new year, but please be careful with aftershocks, etc.)
+(It's been quite a challenge since the New Year, but please be careful of aftershocks and such.)
 
 *（新年から色々大変ですが、余震などにお気をつけて）*
-

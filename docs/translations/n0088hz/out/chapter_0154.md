@@ -1,182 +1,182 @@
-# There you are, you damned fool.
+# Is there really such a fool?
 
 ## 居るのか、とんでもねぇバカ
 
 &nbsp;
 
-After a night in the town of Rosetta, I found several barrels strewn about in the living room of the storage space base.
+After spending a night in the town of Rosetta, several barrels were scattered around the living room of the storage space base.
 
 *ロゼッタの町で一晩明けたところ、収納空間拠点のリビングに樽がゴロゴロと何個も置かれていた。*
 
 &nbsp;
 
-What's with the barrel, Isiah? Don't tell me it's all alcohol?"
+"Hey, Aishia, what's with those barrels? You can't mean they're all alcohol?"
 
 *「えっ、アイシアなにその樽。まさか全部お酒？」*
 
-What?　I don't like it, Mister Aruji. This is juice, juice!
+"Huh? Don't be silly, Master. This is juice, juice!"
 
 *「え？　やだなぁあるじ様。これはジュースです、ジュース！」*
 
-That means alcohol.
+"So, that means it's alcohol."
 
 *「つまりお酒ってことじゃん」*
 
 &nbsp;
 
-It seems that Isiah, who had her shopping in town, has bought a large quantity of liquor.
+It seems Aishia, who had been shopping in town, brought back a large quantity of alcohol.
 
 *町で買い物をさせていたアイシアが大量の酒を買いこんできたようだ。*
 
-This amount of alcohol, unlicensed, is definitely illegal to trade. The gray area is too outrageous, fear not, Dwarf Nation.
+With this amount of alcohol, it would undoubtedly be an illegal transaction without a license. The gray area is too outrageous; the dwarven country is fearsome.
 
 *この量のお酒、無免許では間違いなく違法な取引。グレーゾーンが法外すぎるぞ、恐るべしドワーフの国。*
 
 &nbsp;
 
-But where in the world would that money--
+But where on earth did she get that much money――
 
 *でも一体どこにそんなお金が――*
 
 &nbsp;
 
-'I used the gold coins I received the other day as a reward for treating a slaver as Mr. Healer.
+"I used the gold coins I received as payment for treating a slave trader as a healer the other day."
 
 *「先日、ヒーラー氏として奴隷商で治療をした報酬で頂いた金貨を使いました」*
 
 &nbsp;
 
-- - it was. I had recently fulfilled a promise to a slaver in Solacidore and gave him his monthly treatment.
+――That's right. The other day, I fulfilled my promise with the slave trader Sorashidore and provided the monthly treatment.
 
 *――そうだった。先日ソラシドーレの奴隷商との約束を果たして、月一の治療を行ってやったのだ。*
 
-5 gold coins per person for 5 people. A rags to riches profit of 25 free gold coins in the original.
+Five gold coins for each of the five people. A profit of 25 gold coins with no initial investment.
 
 *一人当たり金貨５枚を５人分。元手がタダの金貨２５枚のボロ儲け。*
 
 &nbsp;
 
-I thought that if she earned that much money, it would be a good idea to let her work for free, even though she was a slave, so I gave her five gold coins.
+So, since I earned that much, I thought it would be wrong to make Aishia work for free, even if she is a slave, so I gave her five gold coins.
 
 *んで、そんだけ稼いじゃったら、アイシアが奴隷とはいえ無償で働かせるのも、と思ったので金貨５枚あげたのだ。*
 
 &nbsp;
 
-What, that was supposed to be spending money for Isiah?"
+"Wait, I thought that was supposed to be pocket money for Aishia?"
 
 *「え、あれアイシアへのお小遣いのつもりだったんだけど？」*
 
-I would like you to let it be the money that I can spend freely for you. Or rather, it is complicated if you give me an allowance that can buy me five times."
+"Please consider it as funds I can use freely for Master. Besides, it's complicated to think of it as pocket money when it's enough to buy me five times over."
 
 *「あるじ様のために自由に使っていいお金として私が使える資金、ということにしておいてください。というか私を５回買える額をお小遣いにされても複雑です」*
 
 &nbsp;
 
-Yeah, and with the cash back, it's practically free, isn't it, Aisia?
+Yeah, and Aishia effectively got it for free with the cashback.
 
 *うん、しかもキャッシュバックで実質無料になっちゃったしねアイシア。*
 
 &nbsp;
 
-"Hey, Karina," he said, "you don't give gold coins to slaves for spending money, do you? Gold coins aren't supposed to be given to slaves for spending money in the first place."
+"Hey, Karina. Gold coins aren't something you give to slaves as pocket money."
 
 *「おいカリーナ。そもそも金貨は奴隷に小遣いで渡すもんじゃねぇだろ」*
 
 &nbsp;
 
-Mr. Masiello poked me in the head with a knack.
+I was lightly tapped on the head by Mashiro-san.
 
 *マシロさんにコツンと頭を小突かれた。*
 
-Welcome. You're here. After your bath?
+Oh, welcome. You were here. Just finished your bath?
 
 *あらいらっしゃい。来てたのね。お風呂上り？*
 
 &nbsp;
 
-I'm not going to do it without Isiah. Without Isiah, Mr. Healer wouldn't be able to do what he does, would he?　It's important to reward her so she won't betray you, okay?"
+"Well, because if Aishia isn't here, I can't be a healer, right? It's important to give rewards to ensure loyalty, you know?"
 
 *「だ、だってぇ。アイシアが居なきゃヒーラー氏はできないし？　裏切らないようにするためのご褒美は大事だよ？」*
 
-You are an idiot. If a slave had money, he would buy himself back. You're lucky Isiah is loyal to you.
+"Are you stupid? If a slave has gold, they'll just buy themselves back. Thank goodness Aishia is loyal."
 
 *「バカか。奴隷が金持ったら自分を買い戻しちまうだろ。アイシアが忠実なヤツで助かったな」*
 
-I love you," she said. Isiah, I love you."
+"That's right. I love Aishia."
 
 *「そうだね。アイシア、大好きだよ」*
 
-Me too, Sir!
+"I love you too, Master!"
 
 *「私もですあるじ様！」*
 
 &nbsp;
 
-Me and Isiah hugging each other tightly. I can smell the slight odor of alcohol. You've had a little bit to drink, haven't you?
+Aishia and I hugged tightly. She smelled faintly of alcohol. Did she just have a drink?
 
 *ぎゅっと抱き合う私とアイシア。ほんのりお酒臭い。ちょっと飲んできたな？*
 
 &nbsp;
 
-I mean, Mashiro-sama. Do you think there is a fool who knows the power of the Anji-sama and betrays him?　Even if he escapes to the end of the world, he will be caught and retaliated against in an instant, don't you think?"
+"By the way, Mashiro-sama. Do you think there's a fool who would betray knowing Master's power? Even if they escape to the ends of the world, they'll be caught in an instant and face retribution?"
 
 *「というかマシロ様。あるじ様の御力を知っていて裏切るようなバカがいると思いますか？　世界の果てまで逃げても一瞬で捕まって報復を受けますよ？」*
 
-There are some very stupid people out there, ......, so I'll leave it at that."
+"......There are some unbelievable fools in this world, so I'll keep that comment to myself."
 
 *「……世の中にはとんでもねぇバカが居るから、そこはノーコメントにしとくわ」*
 
-Even Arthur the Dragon understands and pledges his allegiance to ......."
+"Even Arthur the dragon understands and swears loyalty..."
 
 *「ドラゴンのアーサーでも理解して忠誠を誓うのに……」*
 
-I think dragons are smart. It's rude to compare them to these idiots."
+"Dragons are actually smart. It's an insult to compare them to unbelievable fools."
 
 *「むしろドラゴンは賢いだろ。とんでもねぇバカと比べたら失礼だぞ」*
 
 &nbsp;
 
-Mr. Masilo with a faraway look in his eyes. Are you there, you pompous idiot? In the land of the beastmen or something.
+Mashiro-san gazes off into the distance. Is there really such a fool? Maybe in the beastman country.
 
 *遠い目をするマシロさん。居るのか、とんでもねぇバカ。獣人の国とかに。*
 
 &nbsp;
 
-I am asking you, "Sir, may I ask you to build me a storage room for these barrels? May I ask you to make a cellar for these barrels?　Oh, please use the type that time passes. It's the kind that tastes good as it ages."
+"Master, could you create a storage room for these barrels? Oh, and please make it one that progresses over time. The longer it ages, the tastier it gets."
 
 *「あるじ様。この樽の貯蔵庫を作っていただいてもよろしいですか？　あ、時間は経過するタイプでお願いします。熟成が進むと美味しいやつなので」*
 
-I'll move all the barrels while I'm at it. Where do you want to put the doors?　In the kitchen, I guess.
+"Okay, I'll make it. By the way, where should I move all the barrels? Is the kitchen fine?"
 
 *「はーい、作ってー、ついでに樽全部移動させとくね。扉どこに置く？　キッチンでいいかな」*
 
-"Hey, you've spoiled your slaves too much by saying so, Carina,......, well, it's too late for common sense now, isn't it? You even turn stray dragons into pets."
+"Hey, you're spoiling the slaves right after saying that, Karina... Well, I guess it's too late to expect common sense. You did make a stray dragon your pet after all."
 
 *「おい言ったそばから奴隷を甘やかしすぎだろカリーナ……まぁ常識が通じないのは今更か。野良ドラゴンをペットにしちまうくらいだしな」*
 
 &nbsp;
 
-Mr. Masilo scratches his head. Arthur, you called yourself? He tilted his head and looked at me. I didn't call you, so sit down.
+Mashiro-san scratches her head. Arthur-kun raises his head and looks over, as if to say, "Did you call for me?" I didn't call you, so just sit down.
 
 *ぽりぽりと頭をかくマシロさん。アーサー君が『お、自分のこと呼んだっすか？』と首をもたげてこちらを見る。呼んでねぇから座ってろ。*
 
 &nbsp;
 
-Well, we're going to Isiah's hometown, so we might as well bring a souvenir.
+"Well, since we're going to Aishia's hometown, it would be better to have some gifts, right?"
 
 *「ま、アイシアの故郷に行くわけだし、手土産はあったほうが良いでしょ」*
 
-'...... Dwarf village, huh? Be careful, okay?　Especially Deer Boy. Never let him out of your sight. They will eat you, sexually. And by a man."
+"......The dwarven village, huh? Be careful, especially with Dear-kun. Never take your eyes off him. He'll get eaten, in a sexual way. By a man, no less."
 
 *「……ドワーフの里か。気をつけろよ？　特にディア坊だ。絶対に目を離すな。食われるぞ、性的な意味で。しかも男に」*
 
 &nbsp;
 
-Gee, seriously. Deere, you are mine, so I definitely have to guard you: ......
+Wha, seriously? Dear-kun is mine, so I absolutely have to guard him...
 
 *げ、まじか。ディア君は私のなので絶対にガードしなければ……*
 
-...... No, that's not what I mean!　She's a precious child entrusted to us by her sister Kumin, so we have to protect her well!　I'm sure you're right!
+...No, that's not it! He's a precious child entrusted to me by Sister Cumin, so I have to protect him properly! Yes!
 
 *……いやそうじゃなくて！　クミンお姉さんから預かってる大切な子だから、しっかり守らないとだよね！　うん！*
 
@@ -184,11 +184,11 @@ Gee, seriously. Deere, you are mine, so I definitely have to guard you: ......
 
 &nbsp;
 
-And so, after leaving the town of Rosetta with our souvenirs, we decided to stop by Isiah's hometown.
+With that, we left the town of Rosetta with some gifts in hand and decided to stop by Aishia's hometown.
 
 *と、そんなこんなで手土産を携えてロゼッタの町を後にした私たちは、アイシアの故郷へと寄ることにした。*
 
-On the road?　There were no dragons attacking me, and I don't have much to say about that.
+On the way? There were no dragon attacks or anything like that, so there's nothing special to talk about.
 
 *道中？　ドラゴンが襲い掛かってくるようなことはなかったし、特に語ることはないね。*
 
@@ -196,13 +196,10 @@ On the road?　There were no dragons attacking me, and I don't have much to say 
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(Volume 9 of the comic book version of "Until the Dungeon Master, who never wants to work, coasts through the night," was released.)
+(The ninth volume of the comic adaptation was released while the dungeon master who absolutely doesn't want to work indulged in slumber.)
 
 *（絶対に働きたくないダンジョンマスターが惰眠をむさぼるまで、コミカライズ９巻が発売してました。）*
-

@@ -1,4 +1,4 @@
-# Is it a dragon priestess ......?
+# Is she the Dragon Priestess...?
 
 ## 龍の巫女……なのですか？
 
@@ -6,99 +6,99 @@
 
 &nbsp;
 
-"If you win four times, you win, Arthur."
+"Win four times to become the champion, Arthur."
 
 *「４回勝てば優勝だよ、アーサー」*
 
-"Gyuahn."
+『Gyuwaon』
 
 *『ギュアぉん』*
 
 &nbsp;
 
-Communicating with a follower. The interaction is an indicator of a tamer's skill, and these two were perfect by all accounts.
+Communication with familiars. It's an indicator of a Tamer's skill, and this pair seemed perfect in every way.
 
 *従魔との意思疎通。テイマーの腕を示す指標となるやりとりだが、この二人はどう見ても完璧だった。*
 
 &nbsp;
 
-The opponents managed to line up their followers, boars and snakes, but ...... they are shivering pitifully. This is the first match that was set up as a prelude to the first match between those who are not likely to be popular in terms of dividends.
+The opposing competitors were somehow managing to line up their familiars, boars and snakes, but... they were trembling pitifully. This was the first match, set up as a preliminary with seemingly unpopular participants.
 
 *相対する選手はなんとか従魔達、イノシシやら蛇やらを並べているが……可哀そうなほどに震えている。尚、これは配当的には人気がなさそうな者同士、前座として組まれていた第一試合。*
 
-In other words, the opponent - although he was competent enough to try to compete in the Followers' Cup - was honestly weak.
+In other words, the opponent had enough skill to enter the Familiar Cup, but honestly, they were weak.
 
 *つまり、相手は――従魔杯に出ようとするくらいには実力はあるが――正直弱かった。*
 
 &nbsp;
 
-"...... Arthur, give me a little bark. Over there."
+"…Arthur, give a little howl. Over there."
 
 *「……アーサー、ちょっと吠えてみて。あっちに」*
 
-'Gyuah!　Gyah-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh!"
+『Gyaa! Gyaooooooon!!!』
 
 *『ギュア！　ぎゃおおおおおおおん！！！』*
 
 &nbsp;
 
-Hi!
+"Hiih!?"
 
 *「ひぃッ！？」*
 
-「「「「「「--! 」」」」」」
+"「「「「「「――ッ！！」」」」」」
 
 *「「「「「「――ッ！！」」」」」」*
 
 &nbsp;
 
-Scared tamers and followers.
+The trembling Tamer and familiars.
 
 *怯えるテイマーと従魔たち。*
 
 &nbsp;
 
-Dey, Dey player!　Don't scare your opponent before the match starts!"
+"De, Dear player! Please don't intimidate the opponent before the match starts!"
 
 *「でぃ、ディア選手！　試合開始前に相手を脅さないように！」*
 
-If so, get started. ...... Arthur, don't eat it, okay?"
+"Then hurry up and start it. …Arthur, you can't eat them, okay?"
 
 *「だったらはやく開始してください。……アーサー、食べちゃだめだよ？」*
 
-Gee?　Gee?"
+『Gii? Gyaoon?』
 
 *『ギィ？　ぎゃおーん？』*
 
 &nbsp;
 
-The Thunder Dragon shows its head. Where is the perfect communication that just went ...... no. They know what they're doing, this duo.
+The Thunder Dragon tilted its head in confusion. Where had the perfect communication gone... No, this duo was doing it on purpose.
 
 *首をかしげて見せるサンダードラゴン。先ほどまでの完璧な意思疎通はどこにいった……否。分かっててやってるのだ、このコンビは。*
 
-If you don't want to get eaten alive by the madness at hand - and I'm threatening you, even though you told me not to threaten you.
+If they didn't want to be eaten, they were threatening despite being told not to.
 
 *手元が狂って食われたくなければ――と、脅すなと言われたのに脅している。*
 
 &nbsp;
 
-However, the moderator cannot note this because the words themselves are statements that condemn it.
+However, the words themselves were an admonishment, so the host couldn't scold them.
 
 *しかし言葉自体はそれを咎める発言なので、司会もこれを注意できない。*
 
 &nbsp;
 
-"I abstain from ......!　Oh, I can't feed my family to the dragons!"
+"I forfeit...! I can't let my family become dragon food!"
 
 *「棄権します……ッ！　お、俺の家族を、ドラゴンの餌にはできないッ！」*
 
-"Here's the winner, Deere!"
+"The winner, Dear player!!"
 
 *「しょ、勝者、ディア選手！！」*
 
 &nbsp;
 
-First match. Deere won without a fight.
+In the first match, Dear won without fighting.
 
 *第一試合。ディアは戦わずして勝利した。*
 
@@ -106,157 +106,157 @@ First match. Deere won without a fight.
 
 &nbsp;
 
-It's a wise decision. Now, let's go back to the waiting room. Arthur.
+"Wise decision. Now, let's return to the waiting room, Arthur."
 
 *「賢明な判断です。さ、控室に戻ろっか。アーサー」*
 
-Gyuah!"
+『Gyuah!』
 
 *『ギュアッ！』*
 
 &nbsp;
 
-And when Dia pointed the ball and clicked the switch, a red ray of light extended toward the Thunder Dragon and enveloped it. As it was, the Thunder Dragon disappeared, as if sucked into the small ball.
+As Dear pointed the orb and pressed the switch, a red beam extended toward the Thunder Dragon, enveloping it. Just like that, the Thunder Dragon vanished as if being sucked into a small orb.
 
 *と、ディアが玉を向けてカチッとスイッチを押すと、サンダードラゴンに向かって赤い光線が伸びて包み込む。そのまま、小さな玉に吸い込まれるように、サンダードラゴンは姿を消した。*
 
 &nbsp;
 
-And here the moderator calls out to Dia fearfully.
+At this point, the host cautiously spoke to Dear.
 
 *と、ここで司会が恐る恐るディアに声をかける。*
 
 &nbsp;
 
-"Hey, Deere, if you don't mind. If you don't mind my asking, can you tell me about those balls?"
+"Um, Dear player. If it's not too much trouble, could you tell us about that orb?"
 
 *「あの、ディア選手。差支えなければ、その玉について教えてくれないだろうか」*
 
-Hmm?"　Oh, that's right. It would be boring for everyone if we had a whole free period when we were supposed to play. It would be boring for everyone if we had to leave the entire game time open, and we would also have to make sure the game progressed smoothly. That's fine.
+"Mm? Ah, yes. Since the time for the match has completely opened up, it would be boring for everyone. There are also logistical concerns. That much is fine."
 
 *「ん？　あ、そうですね。試合するはずの時間がまるっと空いてしまっては皆さんもつまらないでしょうし。進行の都合もありますもんね。それくらいは良いですよ」*
 
 &nbsp;
 
-And Deere shows it by holding the ball high in the air.
+Dear held the orb high for all to see.
 
 *と、玉を高く掲げて見せるディア。*
 
 &nbsp;
 
-It's called a demon ball, a magical tool borrowed from a certain Dwarf prince.
+"This is called a Monster Orb, a magical tool borrowed from a certain dwarf prince."
 
 *「これは魔物玉と言いまして、とあるドワーフの王子から借り受けた魔道具です」*
 
-'The magical tools of the Dwarven royal family!　I see... This is how they control their dragons!"
+"A magical tool from the Dwarf royal family! I see, so that's how you're controlling the dragon!"
 
 *「ドワーフ王家の魔道具！　なるほど、これでドラゴンを操っていると！」*
 
-Huh?"　No, this is just for storage. This is just for storage."
+"Eh? No, this is just for storage."
 
 *「え？　いえ。これはただ収納するだけの代物ですが」*
 
 &nbsp;
 
-The host's eyes widened as Dia tilted her head.
+Dear tilted her head in confusion, and the host's eyes widened.
 
 *キョトン、と首をかしげるディアに、司会は目を見開いた。*
 
 &nbsp;
 
-What?" You mean to tell me that at ...... you're not using the power of magical tools, but purely following the dragon?"
+"Eh? …So, it's not the power of the magical tool, but you're purely commanding the dragon?"
 
 *「え？……では、魔道具の力ではなく、純粋にドラゴンを従えている、と？」*
 
-'Well, yes. That's how it works."
+"Well, yes. That's how it is."
 
 *「まぁ、はい。そういうことになりますね」*
 
-By the way, what other demons do you cast?
+"By the way, what other monsters do you command, Dear player?"
 
 *「ちなみにディア選手は他にどのような魔物を使役しておいでで？」*
 
-'No, nothing. I've never used anyone other than Arthur."
+"No, nothing. I've never commanded anything other than Arthur."
 
 *「いえ、何も。アーサー以外を使役したこともないですね」*
 
 &nbsp;
 
-Hearing this, the MC surmised that he must have bonded with the dragon from an early age.
+Upon hearing this, the host speculated that she must have built a bond with the dragon since childhood.
 
 *司会はそれを聞いて、幼いころからドラゴンと絆を育んだのだろうと推測した。*
 
-And then - I remember a rumor.
+And then—he recalled a certain rumor.
 
 *そして――とある噂を思い出す。*
 
 &nbsp;
 
-"--is it the Dragon Priestess ......?"
+"—Are you the Dragon Priestess...?"
 
 *「――龍の巫女……なのですか？」*
 
 &nbsp;
 
-Dragon Priestess. It refers to the exiled royalty who lived with dragons, and among them, the princesses who can draw out the true power of dragons.
+The Dragon Priestess. This refers to the royal family of a fallen nation that lived alongside dragons, specifically a princess who can draw out the true power of dragons.
 
 *龍の巫女。それはドラゴンと共に生きた亡国の王族、その中でもドラゴンの真の力を引き出すことのできる姫を指す。*
 
-Even the dragons, who were supposed to gain respect only by force, hung their heads unconditionally to the princess.
+Even dragons, who could only earn respect through strength, were said to bow their heads unconditionally to the princess.
 
 *力でしか尊敬を得ることのできないはずのドラゴンも、姫には無条件に頭を垂れていたとか。*
 
 &nbsp;
 
-For tamers, he is a legend. The moderator unintentionally asked him respectfully if that was so.
+For Tamers, she was a legendary figure. The host couldn't help but ask if that was true, using honorifics.
 
 *テイマーたちにとって、伝説の存在。司会は思わず敬語でそうなのかを尋ねた。*
 
 &nbsp;
 
-...... as you might imagine."
+"…I'll leave that to your imagination."
 
 *「……ご想像にお任せします」*
 
-!
+"—ッ！！"
 
 *「――ッ！！」*
 
 &nbsp;
 
-And Dia smiled smugly. An elegant smile that was appropriate to be judged as royalty.
+And Dear smiled sweetly. A refined smile befitting someone of royal lineage.
 
 *そしてディアはニコッと微笑んだ。王族と判断するに相応しい上品な笑み。*
 
-The moderator was stunned and speechless.
+The host was captivated and lost for words.
 
 *司会は見惚れて、言葉を失った。*
 
 &nbsp;
 
-Well, I'd better get back to the waiting room."
+"Well then, I should return to the waiting room."
 
 *「では、そろそろ僕は控室に戻るので」*
 
 &nbsp;
 
-With that, Dia shuffled off the stage and headed for the waiting room.
+With that, Dear gracefully stepped down from the stage and headed toward the waiting room.
 
 *そう言ってディアはしずしずと舞台を下り、控室へと向かっていく。*
 
-The stunned host finally regains consciousness and raises his voice to mend.
+The dazed host finally regained his senses and raised his voice to cover up his astonishment.
 
 *呆けていた司会はようやく意識を取り戻し、取り繕うように声を上げる。*
 
 &nbsp;
 
-This is a dark horse!　This is a dark horse!　I recommend anyone who has a betting ticket for Dia to hide it so the others don't find it!
+"Th-this is an unexpected dark horse! An incredible presence has crashed into the 'Familiar Cup'!! Those holding Dear player's betting slips should hide them from others!"
 
 *「こ、これはまさかのダークホース！　とんでもない存在が『従魔杯』に殴りこみだぁ！！　ディア選手の賭け札を持ってるやつは他の奴らに見つからないよう隠して持つのをおすすめするぞッ！」*
 
 &nbsp;
 
-Despite the fact that the first game was a no-show - due to abandonment - the tournament foreshadowed a great deal of excitement.
+Despite the first match being a forfeit victory, the tournament was already hinting at a great excitement.
 
 *第一試合から棄権による不戦勝――にもかかわらず、大会は大盛り上がりを予感させた。*
 
@@ -264,21 +264,18 @@ Despite the fact that the first game was a no-show - due to abandonment - the to
 
 &nbsp;
 
-Between you and me, it is a secret that Dia and Arthur have inspired me to ask the participants to fill in the entry sheet for the next and subsequent competitions, including the race of their followers.
+By the way, it’s just between us that the next tournaments will require the entry sheets to include the species of familiars, thanks to Dear and Arthur.
 
 *尚、ディアとアーサーがきっかけで次回以降の大会では従魔の種族までエントリーシートに記入してもらうことになったのは、ここだけの話。*
-
-
 
 &nbsp;
 
 ----------------
 
-(Ato Goji Volume 1 is now on sale!
+(The first volume of "Ato Goji" is now on sale!!
 
 *（あとごじ１巻、好評発売中！！*
 
-(I heard they sold a decent amount of autographed books and stuff!)
+It seems signed copies have sold well!)
 
 *サイン本とかちゃんと売れたらしいよ！）*
-

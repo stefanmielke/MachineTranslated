@@ -1,140 +1,140 @@
-# I apologized to Mr. Dear.
+# I apologized to Dia-kun.
 
 ## 私はディア君に謝った。
 
 &nbsp;
 
-Upon retrieving the socks, I apologized to Mr. Dear.
+After collecting the socks, I apologized to Dia-kun.
 
 *靴下を回収したところで、私はディア君に謝った。*
 
-As I said, I thought it was a bit much, so I went to ...... yeah.
+I thought I had gone a bit too far... yeah.
 
 *さすがにちょっとやりすぎたと思ったので……うん。*
 
 &nbsp;
 
-I'm sorry, Dia?　I'm sorry I embarrassed you. ......"
+"I'm sorry, Dia-kun? I made you feel embarrassed..."
 
 *「ディア君ごめんね？　恥ずかしい思いさせちゃって……」*
 
-'Yes, no. ...... that, I don't understand it at all, but ...... this is also what we need to do to save the world, right?"
+"N-no, um... I don't really understand at all, but... this is necessary to save the world, right?"
 
 *「い、いえ。……その、全く理解が及ばないですが……これも世界を救うために必要なことなんです、よね？」*
 
-"Ugggghhh ...... yes, that's right ......!"
+"Ugh... y-yeah...!"
 
 *「うぐっ……そ、そうだね……！」*
 
 &nbsp;
 
-Holy Mother of God.
+Is she a saint or what?
 
 *聖母かよ。*
 
-I'm sorry I spent the SP I earned on tapestries and such. ......
+I'm sorry for using the SP I earned on tapestries and such...!
 
 *稼いだＳＰをタペストリーとかに使っちゃってごめんなさい……！*
 
-But I used it a lot in my practice to love Dear-kun without embarrassment, so it is an expense!
+But I used it a lot for practice to admire Dia-kun without feeling shy, so it's an expense!
 
 *でもディア君を照れずに愛でるための練習でめっちゃ使ったので経費です！*
 
 &nbsp;
 
-...... No, let me excuse myself a little.
+...No, let me make a little excuse.
 
 *……いや少し言い訳させてくれ。*
 
-This world will not be destroyed as long as God brings us energy. And Dear, your socks are an excellent 'sacrifice' to keep God's 'interest in the world' ......!
+As long as the gods bring energy to this world, it won't perish. And Dia-kun's socks are excellent "offerings" to maintain the gods' "interest in the world"...!
 
 *この世界は神様がエネルギーを持ってきてくれる限りは滅びない。そしてディア君の靴下は神様の『世界への興味』を保たせるための優秀な『贄』……！*
 
 &nbsp;
 
-In other words, the embarrassment you are going through, Dear, is really going to save the world. ......
+In other words, Dia-kun experiencing embarrassment truly connects to saving the world...!
 
 *つまり、ディア君が恥ずかしい目に遭うコトは、本当に世界を救うことに繋がる……！*
 
 &nbsp;
 
-Okay, excuse complete. I, I didn't lie!　Mental reset!
+Alright, excuse complete. I'm not lying! Mental reset!!
 
 *よし、言い訳完了。私、嘘は言ってない！　メンタルリセット！！*
 
 &nbsp;
 
-But your sister will be wearing a dress for the afternoon competition, right?"
+"But you're also participating in the afternoon tournament in a dress, right?"
 
 *「でもお姉さんも午後の大会ではドレスを着て参加するんですよね？」*
 
-Yeah. White gothic lolita dress. The underwear is the same design as the ones Dia was wearing. ......　I'll give you my underwear after the tournament, so please forgive me!
+"Yeah. A white gothic lolita dress. I'm also wearing the same design of thong underwear that Dia-kun had... Ah! After the tournament, I'll give Dia-kun my underwear, so please forgive me!"
 
 *「うん。白ゴスロリドレス。下着もちゃんとディア君の履いてたのと同じデザインの紐下着だよ……あっ！　大会終わったらディア君に下着あげるから許してね！」*
 
-I've already forgiven you!　I've already forgiven you!
+"Eh, n-no, that's not necessary! I've already forgiven you!!"
 
 *「え、あ、いやっ、そこは別にっ！　もう許してますから！！」*
 
 &nbsp;
 
-A little embarrassed, Dear, you said. I'm forgiven. It's cute.
+Slightly embarrassed, Dia-kun said that. He has forgiven me. So cute.
 
 *少し照れながらディア君はそう言った。許された。かわよ。*
 
 &nbsp;
 
-Don't you want my underwear?"
+"Don't you want my underwear?"
 
 *「私の下着、いらない？」*
 
-"......, it's okay, it's okay. ......"
+"...N-no, I'm fine..."
 
 *「……っ、だ、大丈夫です……」*
 
 &nbsp;
 
-He's actually swimming his eyes a little wanting ...... Oh man, I'm having so much fun teasing you, Deere, I'm getting into the habit. I'm not sure if it's already a habit or not. I'm so excited. I'll never be able to pass on ...... my underwear. ......
+He actually seems a bit eager, his eyes wandering... Oh no, teasing Dia-kun is so fun it's becoming a habit. I suspect it already is. It's so heart-fluttering. ...I won't be able to give him my underwear...!
 
 *本当は少し欲しそうに目を泳がせてる……やっべ、ディア君からかうの楽しくて癖になりそ。すでになってる疑惑ある。キュンキュンする。……下着が渡せなくなるな……！*
 
 &nbsp;
 
-Miss, it's time to go.
+"Sister, it's about time."
 
 *『姐さん、そろそろお時間っすよ』*
 
-Oops!　Is it that time already? Let's go then, Isiah is saving the place for us."
+"Oh! Is it already that time? Then let's go, Aisia is saving us a spot."
 
 *「おっと！　もうそんな時間か。それじゃ行こっか、アイシアが場所取りしてくれてるし」*
 
-Yes, I'll cheer you up!　Oh, change your clothes--"
+"Yes, I'll cheer for you! Ah, changing clothes—"
 
 *「はい、応援しますね！　あ、着替え――」*
 
 &nbsp;
 
-I sent Mr. Dear to Isiah's place.
+I sent Dia-kun to Aisia.
 
 *私はディア君をアイシアの所へ送った。*
 
-Well, I've got to go to the players' waiting room myself!
+Now, I need to go to the players' waiting room!
 
 *さーて、私は私で選手控室の方に行かないとねっ！*
 
 &nbsp;
 
-Miss. I didn't change my clothes yet. Did you do it on purpose?
+"Sister. Dia-kun hasn't changed yet, huh? That was on purpose, right?"
 
 *『姐さん。ディア君ちゃんまだ着替えてなかったっすけど。わざとっすね？』*
 
-Nice assist, Arthur. Hopefully I can earn another leg?"
+"Nice assist, Arthur. If I play it right, I might be able to earn another pair."
 
 *「ナイスアシストだったよアーサー。うまくすればもう１足稼げるかな？」*
 
 &nbsp;
 
-And I had no pants on. I quietly put away the lovely cloth that was still warm.
+And he's also going commando. I gently tucked away the still warm, cute fabric.
 
 *しかもノーパンである。私はそっとまだ温かい可愛らしい布を仕舞った。*
 
@@ -144,111 +144,111 @@ And I had no pants on. I quietly put away the lovely cloth that was still warm.
 
 &nbsp;
 
-So I changed into my Gothic Lolita outfit and naturally transitioned to enter the players' waiting room with a clatter.
+So, I changed into my gothic lolita outfit and naturally transferred into the players' waiting room.
 
 *というわけでゴスロリ服に着替えて、ガチャっと選手控室に入るように自然に転移。*
 
-There are many players in the waiting room. Wow, they are muscle-bound macho men, they look strong.
+There are many players in the waiting room. Wow, there are muscular macho men, they look strong.
 
 *控室にはたくさんの選手がいる。わぁ、筋肉モリモリマッチョマンだ、強そう。*
 
-Over there is a beastman with a tiger face. This one also looks strong.
+Over there is a beastman with a tiger face. He looks strong too.
 
 *あっちは顔が虎の獣人が。これもまた強そう。*
 
 &nbsp;
 
-A festival of sweltering men! Is that what it's like?　I, a beautiful girl, am too out of place.
+It feels like a festival of rugged men! And here I am, a beautiful girl, completely out of place.
 
 *むくつけき男達の祭典！って感じ？　美少女の私、場違いが過ぎる。*
 
-The only thin player I can see is a male elf who is grooming his bow. ...... Is there any more beautiful gladiators or something?　It's a very naughty room.
+The only slim player is an elf guy taking care of his bow... Is there no beautiful female gladiator around? This room is so rough.
 
 *弓を手入れしている男エルフさんくらいしか細い選手がいないなぁ……。もっとこう、美少女剣闘士とかいねぇのか？　むさくるしい部屋だぜ。*
 
 &nbsp;
 
-I'm sure the prize money won't be a problem, since the tournament was found by Isiah: ......
+Since Aisia found this tournament for me, there shouldn't be any problem with the prize money...
 
 *アイシアに探してもらった大会だから、賞金には問題ないだろうけど……*
 
-Oh, I have to bet the money I received from you, Dear, on me this time.
+Oh, I need to bet the money I received from Dia-kun on myself next.
 
 *あ、ディア君から受け取ったお金を、今度は私に賭けないとね。*
 
 &nbsp;
 
-I feigned a look of being intimidated by the stares of the other players and walked out of the waiting room and headed for the reception desk.
+I pretended to be pressured by the gazes of the other players and headed out of the waiting room towards the reception.
 
 *私は他の選手の視線に気圧された風を装い、控室から出て受付へと向かった。*
 
-When the receptionist notices me, she smiles.
+When the receptionist noticed me, she smiled brightly.
 
 *受付の人は私に気付くと、ニコッと笑う。*
 
 &nbsp;
 
-Um, players can bet on themselves to win, right?"
+"Um, players can bet on their own victory, right?"
 
 *「あのー、選手は自分の勝利には賭けられるんですよね？」*
 
-Yes. Let's see, you are Karina, a D-rank adventurer. How much do you want to bet?"
+"Yes. Um, you're Karina, a D-rank adventurer, right? How much would you like to bet?"
 
 *「はい。えーっと、Ｄランク冒険者のカリーナさんですね。おいくら賭けられますか？」*
 
-'Well then, I'll take 82 gold coins for my win!
+"Then, I'll bet 82 gold coins on my victory!"
 
 *「じゃ、私の優勝に金貨８２枚で！」*
 
-"...... yes?"
+"...Huh?"
 
 *「……はい？」*
 
 &nbsp;
 
-I place the rewards that Mr. Deere received from the previous tournament - betting profits and fight money, eight large gold coins and two gold coins - at the reception desk.
+I placed the rewards Dia-kun received from the previous tournament—winnings from the bet and fight money, a total of 8 large coins and 2 gold coins—on the reception desk.
 
 *私は先の大会でディア君が貰った報酬――賭けの儲けとファイトマネー、大金貨８枚と金貨２枚を受付に置く。*
 
 &nbsp;
 
-Are you serious about ......?"
+"...Are you serious?"
 
 *「……本気ですか？」*
 
-I'm serious."
+"I'm serious."
 
 *「本気ですが」*
 
 &nbsp;
 
-As I recall, there was no limit to the amount of money a player could bet on himself?　He nods his head and shows his head.
+I tilted my head, as I was sure there was no limit on the amount of money a player could bet on themselves.
 
 *確か、選手が自分に賭ける金の上限はなかったはずだけど？　と首をかしげて見せる。*
 
 &nbsp;
 
-I'll accept ......, but you won't get a single copper coin back if you lose, okay?"
+"...I'll accept it, but if you lose, not even a single copper coin will be returned, okay?"
 
 *「……受け付けますが、負けた際は銅貨１枚も返ってきませんからね？」*
 
-Yes. No problem. Pleasure."
+"Yes. That's fine. Thank you."
 
 *「ええ。問題ないです。よろしく」*
 
-"How do you calculate odds on this ......?"
+"How will the odds be calculated for this...?"
 
 *「オッズの計算どうなるんだこれ……」*
 
 &nbsp;
 
-I get a betting slip for 82 gold coins.
+I received a betting slip worth 82 gold coins.
 
 *金貨８２枚分の賭け札を貰う。*
 
 &nbsp;
 
--resulted in me being the 8th favorite with a dividend of 10x.
+---As a result, I became the 8th favorite with a payout of 10 times.
 
 *――結果、私は配当１０倍の８番人気となった。*
 
@@ -258,13 +258,10 @@ I get a betting slip for 82 gold coins.
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(For now, volume 2's!　Dia's!　Book publication work!)
+(For now, it's volume 2! Dia-kun's! Book publication work is on!!）
 
 *（とりあえず２巻の！　ディア君の！　書籍化作業じゃぁい！！）*
-

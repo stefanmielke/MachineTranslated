@@ -1,36 +1,36 @@
-# In a certain Chamber of Commerce.
+# At a Certain Trading Company.
 
 ## とある商会にて。
 
-At a certain trading house in the Gidlaga Empire.
+At a certain trading company of the Gidlaraga Empire.
 
 *ギドラーガ帝国のとある商会にて。*
 
 &nbsp;
 
-A woman of the demon tribe, dressed in a maid's outfit, is serving tea to the human master merchant and his guest.
+A woman from the demon tribe, dressed in a maid outfit, is serving tea to her human master, a merchant, and a guest.
 
 *メイド服を着た鬼族の女性が、人間である主の商人と客人にお茶を出している。*
 
 &nbsp;
 
-I put the tea down with a clink as the fat men are having a business meeting.
+She places the tea down with a clatter in front of the plump men who are discussing business.
 
 *でっぷりと太った男達が商談しているところに、カチャリとお茶を置く。*
 
-A collar indicating slave status was worn around the neck of the demoness as a matter of course, and the horns on her forehead were short and flattened near the base.
+The demon woman's neck is naturally adorned with a collar indicating her status as a slave, and her horns are short and flat, close to the base.
 
 *鬼族の女の首には奴隷身分を示す首輪が当然のようにつけられており、額の角は根本近くまで短く、平らになっていた。*
 
 &nbsp;
 
-...... is it time to stock up on a new one?"
+"…I suppose it's about time to procure a new one."
 
 *「……そろそろ新しいヤツを仕入れる時期ですかなぁ」*
 
 &nbsp;
 
-The merchant mutters, looking at the flat horns of the demoness.
+The merchant mutters as he looks at the demon woman's flat horns.
 
 *鬼族の女の平たい角を見て、商人が呟く。*
 
@@ -38,85 +38,85 @@ The merchant mutters, looking at the flat horns of the demoness.
 
 &nbsp;
 
-Demons. Although they are classified as human beings, they are very close to demons.
+Demon tribe. While classified as part of humanity, they are a being very close to monsters.
 
 *鬼族。それは人類に分類はされるが、非常に魔物に近い存在である。*
 
-And its "horns" have various medicinal properties.
+And those 'horns' have various medicinal properties.
 
 *そしてその『角』には、様々な薬効がある。*
 
 &nbsp;
 
-It relieves fatigue, increases strength, improves appetite, and promotes blood circulation. ...... and especially the female horns of the demon tribe are believed to increase energy.
+Fatigue recovery, stamina enhancement, appetite stimulation, blood circulation promotion. …And particularly, the horns of demon women are said to have effects that enhance vitality.
 
 *疲労回復、体力増強、食欲増進、血行促進。……そして、特に鬼族の女の角は、精力増大の効果があるとされている。*
 
 &nbsp;
 
--in other words, it is good for nourishment and sells for a high price as a quality aphrodisiac.
+—In other words, they can be sold at a high price as a quality aphrodisiac that is good for nourishment and health.
 
 *――つまりは滋養強壮に良い、質のいい媚薬として高値で売れるのだ。*
 
 &nbsp;
 
-Since only a small amount can be extracted from one person, the horn powder is so valuable that it can be exchanged for a platinum coin of the same weight.
+Since only a small amount can be obtained from one, the powdered horns are a precious commodity that can be exchanged for the same weight in platinum coins.
 
 *１人からは微量しか取れないため、角の粉末は同じ重さの白金貨と交換できるほどの貴重品だ。*
 
-Therefore, in the empire, women of the demon tribe who could take horns were a resource to be traded in secret.
+Thus, demon women who can provide horns are also resources traded secretly within the empire.
 
 *ゆえに、帝国において角を取れる鬼族の女は秘密裏に取引される資源でもあった。*
 
 &nbsp;
 
-Oh, and this guy is out of commission? So, this guy is out of commission?　He's still young. Are you going to sell him to a whorehouse?"
+"Oh? Then does that mean this one is no longer needed? She's still young, so will you sell her to a brothel or something?"
 
 *「おや。となるとこやつはお役御免で？　まだ若いし、娼館にでも売るのですかな？」*
 
-There are quite a few people who want to hold a demon modoki in their arms. Well, if you completely remove the horns, the appearance is not so different from that of humans. It's quite usable.
+"Hahaha, there are quite a few who have a taste for wanting to embrace a monster-like creature. Well, if the horns are completely shaved off, she won't look much different from a human. She'll be quite usable."
 
 *「ははは、魔物モドキを抱きたいというもの好きも結構いますからな。ま、角を完全に削り落とせば見た目は人間とさほど変わらない。十分使えますでな」*
 
 &nbsp;
 
-The demoness frowned at the customer's question and the merchant's answer.
+The demon woman frowned at the guest's question and the merchant's response.
 
 *客の質問と、商人の回答に鬼族の女は顔を顰めた。*
 
 &nbsp;
 
-Oh, what's that face? What is that look on your face? What's wrong with me, I saved you from being eaten by a dragon?　Come on, say thank you.
+"Oh? What’s with that face? Do you have some dissatisfaction with me, who saved you from being eaten by a dragon? Come on, express your gratitude."
 
 *「おや。なんですかその顔は。ドラゴンに食べられそうになっているところを助けた私になにか不満でも？　ほら、感謝を述べよ」*
 
-"...... yes, thank you master."
+"…Yes, thank you very much, Master."
 
 *「……はい、ありがとうございますご主人様」*
 
-Hahaha!　That's all right. The demon modo is to flirt at best so as not to be defeated."
+"Bwahahaha! That's more like it. The monster-like creatures should do their best to sell their charms so they won't be hunted."
 
 *「ぶははは！　それでよろしい。魔物モドキは討伐されないように精々媚を売ることですね」*
 
 &nbsp;
 
-A woman of the demon tribe bowing her head with a bow. Her heart is not in it at all.
+The demon woman bowed her head slightly. There was no sincerity in her heart.
 
 *ぺこり、と頭を下げる鬼族女性。心は一切篭っていない。*
 
 &nbsp;
 
-Indeed, at first I thought I had been saved from being sacrificed. I even thought it was a good thing that I, who was supposed to be sacrificed, was no longer there, and the village would be in trouble.
+Indeed, at first, she thought she had been saved from becoming a sacrifice. She even thought it served the village right that the one who was supposed to be the sacrifice was gone.
 
 *確かに最初は、生贄にされるところを助けられたかと思っていた。本来生贄になるはずだった自分が居なくなり里も困るだろう、いい気味だとさえ思っていた。*
 
 &nbsp;
 
-However, he was tricked into signing a slave contract with this merchant as an employment contract, and soon after learned that he had been deceived.
+However, she was deceived into signing a slave contract under the guise of an employment contract, and shortly after, she learned she had been tricked.
 
 *しかし、この商人に雇用契約と騙されて奴隷契約を結ばされ、その直後に騙されていたことを知った。*
 
-The demon tribe was not required to sacrifice to the dragon. The merchants' madness. It was a scam to "procure" the women of the demon tribe.
+The demon tribe had not been required as sacrifices by the dragons. This was a farce by these merchants. It was a scam to "procure" demon women.
 
 *鬼族は、ドラゴンに生贄など要求されていなかったのである。この商人たちの狂言。鬼族の女を『仕入れる』ための詐欺だったのだ。*
 
@@ -124,155 +124,153 @@ The demon tribe was not required to sacrifice to the dragon. The merchants' madn
 
 &nbsp;
 
-...... This merchant spoke of it with great skill as he shaved the horns, the lifeblood of the demon tribe, with a gold file.
+…While doing this, the merchant spoke proudly as he shaved off the horns, which could be said to be the life of the demon tribe.
 
 *……それを、この商人は鬼族の命ともいえる角を金鑢で削りながら、得意げに語った。*
 
 &nbsp;
 
-'Killing and taking the horns is beneath you. If you use recovery magic in combination with it, you can harvest several times. So you had to keep them alive and enslave them. I like the fact that the product is profitable enough to pay the offerings to the ...... church. Boo-ha-ha!"
+"To kill and take the horns is the lowest of the low. By using recovery magic, you can harvest them multiple times. That's why it was necessary to keep her alive and make her a slave. …It's nice that even after paying the church's donations, this product still yields a good profit. Bwahahaha!"
 
 *「殺して角を奪うのは下の下。回復魔法を併用すれば、何度か収穫できます。だから、生かして奴隷にする必要があったんですね。……教会へのお布施を払っても十分利益が出る商品なのがいいですわ。ぶっははは！」*
 
 &nbsp;
 
-However, there is a limit to recovery, and the horns of the demoness gradually became smaller and smaller. The result is the flat horns we see today.
+However, there are limits to recovery, and the demon woman's horns gradually became smaller and could not fully recover. The result is the flat horns she has now.
 
 *とはいえ回復にも限度があって、鬼族の女の角は徐々に回復しきれず小さくなっていった。その結果が、今の平たい角である。*
 
 &nbsp;
 
-I wish I could be a part of it. I wish I could be a part of it.
+"Well, well, what a good product. I wish to benefit from it as well."
 
 *「いやはや、いい商品ですな。私もあやかりたいものです」*
 
-Oh. Then, would you like to buy this one?　There's still a few horns left, and I'll give you ...... about this much."
+"Oh? Then shall I buy this one? There are still a few horns left… how about this price?"
 
 *「おや。ではコイツを買い取りますかな？　まだ角は少し残っていますし……このくらいでいかがかな？」*
 
 &nbsp;
 
-and scribble down the woman's price. It was a last-minute price tag that took into account the amount of horns left over and the sale to the whorehouse. Conscience price, a bit of a tough line to walk.
+He scribbles down the price for the woman. It was a price set at the very edge, considering the remaining horn quantity and the potential sale to a brothel. A bit harsh to be called a fair price.
 
 *と、女の料金を走り書きする。角の残量や娼館への売買を考慮された、ギリギリの価格設定だった。良心価格、と言うには少し厳しいライン。*
 
-But the guest merchant saw this and smiled and nodded.
+But the guest merchant looked at it and smiled, nodding.
 
 *だが、客人の商人はそれを見てニコリと笑顔で頷いた。*
 
 &nbsp;
 
-Yes, I'll buy it at that price."
+"Yes, I'll buy it at that price."
 
 *「ええ、その価格で買いましょう」*
 
-Are you sure?　We do not accept returns.
+"Is that so? No returns will be accepted."
 
 *「よろしいので？　返品は受け付けませんぞ」*
 
-Yes, that's fine. I'd rather you didn't quit after all.
+"Yes, that's fine. Rather, you won't suddenly decide to back out, will you?"
 
 *「ええ、構いません。むしろ、そちらこそやっぱりやめる、は無しですぞ？」*
 
-Then let's settle it right here and now."
+"Then let's settle the payment right here."
 
 *「ではこの場で決済してしまいましょう」*
 
 &nbsp;
 
-and then they knick their guild cards to each other and easily end up buying and selling each other.
+With a clink, they tapped their guild cards together, and the transaction was completed easily.
 
 *と、お互いのギルドカードをコツンと合わせ、あっさり売買が終わる。*
 
-...... slave contracts, but in the empire, the demon tribe is not a person. They were raw materials for medicine, a commodity that could be traded with a medicine license even if they were not slavers.
+…Though they have a slave contract, in the empire, demon tribes are not considered humans. As a raw material for medicine, they could be traded even without being a slave trader, as long as one had a medicine license.
 
 *……奴隷契約はしているが、帝国において鬼族は人ではない。薬の原料ということで、奴隷商でなくても薬の免許があれば取引できる商品だった。*
 
 &nbsp;
 
-'And even then, it wouldn't be profitable to sell all the remaining horns, would it?
+"Still, selling all the remaining horns won't yield a profit."
 
 *「それにしても、残っている角を全部売っても利益にならないでしょうに」*
 
-If you dig, you can still get more. You'll get enough profit.
+"Not at all, if you dig a bit deeper, you can still get more. There's plenty of profit to be made."
 
 *「なに、ほじくればまだまだとれますよ。十分利益が取れますとも」*
 
-Oh!　I had a blind spot about dusting. I shall do the same next time."
+"Ah! Digging was a blind spot. I'll do that next time as well."
 
 *「ああ！　ほじくるのは盲点でした。次からは私もそうしましょう」*
 
-"I must be careful not to inadvertently remove the contents of my head as well, ha ha ha!"
+"I must be careful not to accidentally shave off the contents of my head, hahaha!"
 
 *「うっかり頭の中身まで削らないよう気を付けねばなりませんな、はっはっは！」*
 
 &nbsp;
 
-The words, which do not consider the demon tribe to be fully human, make the demon tribe woman lose consciousness.
+At those words, the demon woman felt her consciousness fading, realizing that they did not consider her a person at all.
 
 *その言葉に、鬼族を完全に人と思っていない言葉に、鬼族の女は意識が遠のく。*
 
-There is no longer anything but despair. Because of the slave contract, there is no escape.
+There was nothing left but despair. Because of the slave contract, she couldn't escape.
 
 *もはや絶望しかない。奴隷契約のせいで逃げることもできない。*
 
 &nbsp;
 
-Then I'll go to the 'ranch' and get some new 'raw materials'.
+"Then I shall go procure new 'raw materials' at the 'farm.'"
 
 *「それでは私は『牧場』で新しい『原料』を仕入れてきますかな」*
 
-Oh," he said. This will increase the distribution of drugs again. It's a good thing."
+"Oh, this will increase the distribution of medicines again. That's a good thing."
 
 *「おお。これでまた薬の流通が増えますな。良いことです」*
 
-I'll go with you, if you want."　Would you like to come with me, if you don't mind?"
+"That's right! If you don't mind, shall we go together?"
 
 *「そうだ！　よければ一緒にいきますか？」*
 
 &nbsp;
 
-The merchant invites his guests to join him.
+The merchant invited the guest.
 
 *と、商人が客人を誘う。*
 
 &nbsp;
 
-"Oh, may I?　Isn't this a secret 'ranch'?"
+"Oh? Is that alright? Isn't it a secret 'farm'?"
 
 *「おや、よろしいので？　秘密の『牧場』なのでは？」*
 
-I thought it was time to collect it all. We need manpower. Lately, some people seem to have a strange hunch that it would be a good idea to bring in a 'sacrifice' from somewhere else.
+"Not at all, I thought it would be better to collect everything soon. I need more hands. Recently, there are those who seem to be suspiciously saying things like 'we should abduct a sacrifice from somewhere.'"
 
 *「なに、そろそろ全部回収した方が良いと思いましてな。人手が欲しいのですよ。最近、妙に勘づいて『生贄』をどこかから攫って来ればよい、などと言っている者もおるようで」*
 
-I see. I see. If a "demon modoki" were to touch a human being, it would be justified to kill him or her. If I help you ......, of course you will receive a share of the profits, right?"
+"Oh, I see. If a mere monster-like creature were to lay hands on a human, extermination would be justified. …If I help, I suppose I would get my share, right?"
 
 *「ほう。なるほどなるほど。魔物モドキふぜいが、人間に手を出したら殺処分も妥当ですな。……手伝ったら、当然分け前も貰えるのでしょうな？」*
 
-Yes, of course.
+"Yes, of course."
 
 *「ええ勿論」*
 
 &nbsp;
 
-With a grin, the merchants shake hands. A business deal has been concluded.
+With a grin, the merchants shook hands. The deal was struck.
 
 *ニヤリ、と笑い商人達は握手する。商談が成立した。*
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(The cover art for volume 2 is out!
+(The cover illustration for volume 2 has been released!!!
 
 *（２巻の表紙絵が出たぞー！！！*
 
-Dia-kun-chan!
+Dear-kun chaaaaaan!!!
 
 *ディア君ちゃーーーーーん！！！*
 
@@ -284,7 +282,6 @@ https://gcnovels.jp/book/1657
 
 &nbsp;
 
-The release date is April 22nd!　(We want to release volume 3 too, so buy it!!!!)
+Release date is April 22nd!! I want to release volume 3 too, so please buy it!!)
 
 *発売は４月２２日ッ！！　３巻も出したいから買ってね！！）*
-

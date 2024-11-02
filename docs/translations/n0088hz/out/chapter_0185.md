@@ -1,4 +1,4 @@
-# It's a miracle of God!
+# It's a miracle from the gods!
 
 ## 神の奇跡だー！
 
@@ -6,161 +6,161 @@
 
 &nbsp;
 
-Mee-chan holds the "Breaking Wall Hammer" as if to hold it up and walks up the altar step by step.
+Mii-chan holds the "Wall-Breaking Hammer" aloft and ascends the altar step by step.
 
 *ミーちゃんは『破城壁槌』を掲げるように持ち、祭壇を一段一段上がっていく。*
 
-Slowly, as if stepping into Tessin's history.
+Slowly, as if treading upon the history of Tesshin.
 
 *ゆっくりと、テッシンの歴史を踏みしめるように。*
 
 &nbsp;
 
-He took his time to reach the ceremonial space and gently lowered the "Breaking Wall Hammer" onto the pedestal.
+After taking her time, she finally reaches the ritual space and gently places the "Wall-Breaking Hammer" on the pedestal.
 
 *時間をかけて儀式スペースまでたどり着き、台座に『破城壁槌』を優しく下ろした。*
 
 &nbsp;
 
-God of the world!　O God of our world!　We truly thank you for giving us strength!"
+"O God! God of our world! We truly thank you for granting us strength!"
 
 *「神よ！　我らが世界の神よ！　我々に力を与えてくださったこと、真に感謝申し上げます！」*
 
 &nbsp;
 
-Mee-chan shouts as loudly as she can.
+Mii-chan shouts with all her might.
 
 *ミーちゃんが精一杯声を張り上げて叫ぶ。*
 
 &nbsp;
 
-We, the dwarves of Tessin, would like to return this power to God!　Please accept it!
+"We, the dwarves of Tesshin, wish to return this power to you, O God! Please, accept it!!"
 
 *「我らテッシンのドワーフは、このお力、神に返納致したく存じます！　どうか、お受け取りくださいませ！！」*
 
-「「「「Please take it! 」」」」
+"「「「「Please, accept it!!」」」」"
 
 *「「「「どうか、お受け取りくださいませ！！」」」」*
 
 &nbsp;
 
-All the Five Elders shout to the heavens.
+Everyone from the Five Elders shouts towards the heavens.
 
 *五大老のみんなが天に向かって叫ぶ。*
 
-Now it's my turn--
+Now it's my turn――
 
 *さぁ私の出番だ――*
 
 &nbsp;
 
---And what's that?
+――Huh?
 
 *――と、あれ？*
 
 &nbsp;
 
-I feel as if I had struck out on a full swing.
+I feel as if I've swung and missed completely.
 
 *私はまるでフルスイングを空振りしたかのような感覚を覚える。*
 
-...... Hmmm?　Lie, at this point in time, spatial magic is unexecuted!　Why!
+...Huh? No way, a spatial magic failure at this timing!? Why!
 
 *……んん？　嘘、このタイミングで空間魔法不発！？　どうして！*
 
 &nbsp;
 
-The next moment I thought that. I felt a part of the sky was cut off in a roundabout way.
+Just as I think that, I sense a part of the sky being neatly cut out in a circular shape.
 
 *と、そう思った次の瞬間。空の一部がくるりと丸く切り取られた気配がした。*
 
-At the same time, my body stiffens. I can't move!
+At the same time, my body freezes up. I can't move!?
 
 *同時に、私の体がビシッと固まる。う、動けねぇ！？*
 
 &nbsp;
 
-"Oh children of the Dwarves, do you no longer need this power? Do you say that you no longer need this power?"
+"O children of the dwarves. Do you say that this power is no longer needed?"
 
 *『おおドワーフの子らよ。そなたらにはこの力はもう必要ないと申すか？』*
 
 &nbsp;
 
-Then a lovely voice, like a tumbling bell, shook the atmosphere and echoed down from the sky.
+Then, a sweet voice like the rolling of bells resonates through the air, descending from the sky.
 
 *そして鈴を転がしたような可愛らしい声が、大気を震わせ、空から降り注ぐように響いてきた。*
 
-Oh my, I recognize that voice, don't I?
+Oh, I recognize this voice!
 
 *あら私、この声に聞き覚えありますわよ？*
 
 &nbsp;
 
-"......!　is, yes!　A power we once needed, but no longer has passed. We give it back to you!"
+"...!? Y-yes! It was necessary for us once, but it is now a power of the past. We return it to you!!"
 
 *「……！？　は、はい！　かつての我々には必要でしたが、もはや過ぎた力。お返しいたします！！」*
 
 &nbsp;
 
-Meechan ad-libbed his lines a bit to accommodate the sudden situation.
+Mii-chan adapts to the sudden situation and slightly improvises her lines.
 
 *ミーちゃんは突然の事態に対応してセリフを少しアドリブで変えてくれた。*
 
-They eyeball me and say, "Oh, don't change it so abruptly," but it's not me.
+She gives me a look that says, "Don't change it suddenly," but it's not me.
 
 *私に「もう、急に変えないでよ」と目くばせしてくるけど私じゃない。*
 
 &nbsp;
 
-God?　Why are you interrupting?　Hey.
+God? Why are you interrupting? Hey.
 
 *神様？　何で邪魔するんですか？　ねぇ。*
 
 &nbsp;
 
-'O children of the Dwarves, I will miss you a little, but I am very glad. I am a little sad, but very glad.
+"O children of the dwarves. I feel a bit lonely, yet I am very happy."
 
 *『ドワーフの子らよ。私は少し寂しくも、大変うれしく思う』*
 
 &nbsp;
 
-As she said this, a white cloud came down in the shape of a girl's hand with a gust of wind.
+Saying this, a white cloud descends, taking the shape of a girl's hand.
 
 *そう言うと、白い雲がぐわんと少女の手の形になって降りてきた。*
 
-It is a girl's hand in shape, but it is the arm of a gigantic god.
+Though it resembles a girl's hand, it is the arm of a gigantic god.
 
 *形こそ少女の手だが、それは巨大な神様の腕。*
 
-The hand picks up the "Breaking Wall Hammer" as if picking up a pebble and returns to the sky.
+The hand picks up the "Wall-Breaking Hammer" as if it were a small stone and returns to the sky.
 
 *手は『破城壁槌』を小石を拾うように摘まみ上げ、空へと帰っていく。*
 
 &nbsp;
 
-'I certainly got it back. Be of good cheer, children of the Dwarves, and continue to be of good health.'
+"I have indeed received it back. O children of the dwarves, may you continue to thrive."
 
 *『確かに返してもらった。ドワーフの子らよ、これからも健やかにあれ』*
 
 &nbsp;
 
-The voice of God in a good mood. Immediately after that, something popped!　and the sound of something popping.
+The god's voice is cheerful. Immediately after, there's a loud pop! as something bursts.
 
 *上機嫌な神様の声。直後にパァン！　と何かが弾ける音。*
 
-A ball of light fell on the dwarves' village, and a round rainbow like a circle of angels spread across the sky.
+Orbs of light rain down upon the dwarven village, and a round rainbow spreads across the sky like a halo of angels.
 
 *光の玉がドワーフの里に降り注ぎ、空には天使の輪のような丸い虹が広がった。*
 
 &nbsp;
 
-No, if it's a rainbow, it's probably something else because it's ignoring the sun too much. ......
+If it's a rainbow, it's ignoring the sun too much, so it must be something else...
 
 *いや虹だとしたら太陽無視しすぎてるからなんか別のヤツなんだろうけど……*
 
 &nbsp;
 
-And I was able to move.
+And then, I can move again.
 
 *と、私は動けるようになった。*
 
@@ -168,31 +168,31 @@ And I was able to move.
 
 &nbsp;
 
-Ha, I can move ......!"
+"Ha! I can move again...!"
 
 *「はっ、動けるようになった……！」*
 
-"...... Sir?　What's wrong?　I mean, are you all right?　You are sweating profusely.
+"...Master? Is something wrong? Are you okay? You're sweating a lot."
 
 *「……あるじ様？　どうかされましたか？　って、大丈夫ですか？　凄い汗ですよ」*
 
 &nbsp;
 
-If you ask me if I'm okay, I'm as tired as I would be after using a lot of magic-consuming duplicates.
+If I were to say whether I'm okay or not, I feel exhausted, as if I had just used a massive amount of magic for a replication.
 
 *大丈夫かどうかで言われると、魔力消費の多い複製を大量に使いまくった後のように疲れている。*
 
 &nbsp;
 
-...... now, that wasn't me."
+"...That wasn't me just now."
 
 *「……今の、私じゃなかったんだよ」*
 
-What do you mean?"
+"What, does that mean?"
 
 *「え、ということは？」*
 
-'God, yes. You've probably done a lot with my body. ......"
+"It was the god. They probably used my body to do various things..."
 
 *「神様だね。多分私の体使って色々してきた……」*
 
@@ -200,39 +200,36 @@ What do you mean?"
 
 ……
 
-Wait a minute, isn't God intercepting this?
+Wait a minute, is this god stealing from me?
 
 *ちょっとまって、これ神様に横取りされてない？*
 
-It's for 1000 SP!
+That's 1000 SP worth!?
 
 *１０００ＳＰ分だよ！？*
 
 &nbsp;
 
-The mee-chan on the platform said, "It's a miracle of God!　Ooooooooo!" and shouted to raise the tension, while the people raised their drinking cups in a toast.
+On the platform, Mii-chan and the others raise their voices, shouting "It's a miracle from the gods! Ohhh!!" while the crowd raises their cups in a toast.
 
 *壇上のミーちゃんたちは「神の奇跡だー！　おおおーー！！」とテンションを上げるように声を張り上げ、民衆は酒杯を掲げて乾杯している。*
 
 &nbsp;
 
-Then I ran to the church. With my back to the gazes of Mee-chan and the others, who were looking at me like they wanted to complain.
+And I ran towards the church, feeling the gazes of Mii-chan and the others, who seemed to want to complain.
 
 *そして私は教会へと走った。文句を言いたげなミーちゃん達の視線を背に受けつつ。*
 
-If this was a decision to take over the game, I'm going to give it a hard time, even if I'm playing against a god!
+If this is a case of stealing, I'll definitely confront the god about it!!
 
 *もしこれ横取り判定だとしたら、神様相手だろうとガツンといったるけんねぇ！！*
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(I'm thinking of releasing a new one at Kakuyom-Kon, so my update pace may slow down.)
+(I’m thinking of submitting a new work to the Kakuyomu contest, so the update pace might slow down.)
 
 *（カクヨムコンに新作出そうと思ってるので、更新ペースは落ちるやもしらん）*
-

@@ -1,4 +1,4 @@
-# "Ba, ba-kemon!" (Pirate's point of view) (Pirate's point of view)
+# W-Wait, it's a monster! (Pirate's Perspective)
 
 ## ば、バケモンだぁ！（海賊視点）
 
@@ -6,49 +6,49 @@
 
 &nbsp;
 
-A woman suddenly appeared from inside the ship, crashing through the deck. She was the one who had beaten the captain in a drinking contest the other day. Why is he on our ship?　Is he a wizard with confidence in his skills?　But it was bad luck for her to appear in front of us who were preparing for a battle - that's what I thought at first.
+A woman suddenly appeared from inside the ship, breaking through the deck. She was definitely the one who defeated the captain in a drinking contest the other day. Why is she on our ship? Is she a confident magician? But to come out in front of us who were prepared for battle, what bad luck we have―― that was my thought, at least at first.
 
 *甲板を突き破って、突然船の中から現れた女。そいつは確か先日飲み比べで船長を倒した奴だった。何故俺たちの船に？　腕に自信のある魔法使いなのか？　しかし戦に備えていた俺達の前に出てくるとはなんて運が悪い――そう思ったのは、最初だけだった。*
 
 &nbsp;
 
-Wohraaaaah! What the--?
+“Wooooah!!――Wha!?”
 
 *「うぉらあああ！！――なっ！？」*
 
-"Onya, mass-produced namakra, maybe?"
+“Oh, is that a mass-produced weakling?”
 
 *「おんや、量産品のナマクラかなぁ？」*
 
 &nbsp;
 
-He tries to cut at it with his sword, but is stopped by a single finger holding down the blade. This is a sword wielded by a man of the sea with all his might, and all it takes is a light touch of his finger!　You can't even cut the skin off your finger!
+As I swung my sword, she effortlessly stopped the blade with just a single finger. That was a sword swung with all the strength of a sea man, and she just touched it with her finger!? Not even a scratch on her finger!?
 
 *剣で切りかかるも、指一本でその刃を押えられ止められる。海の男が全力で振るった剣だぞ、それを指で軽く触れるだけで！？　指の皮も切れない！？*
 
 &nbsp;
 
-Wah, wah, wah!　Shoot, shoot!"
+“W-W-Whoa!! Fire, fire!!”
 
 *「わ、わ、うわぁああ！！　撃て、撃てッ！」*
 
-Yes, yes, it's a peashooter with low accuracy," he said. But it may be rather troublesome because it doesn't fly straight. If it gets in your eye, you'll be surprised.
+“Sure, sure, a pea shooter with low accuracy. But since it doesn't fly straight, it might actually be more troublesome. It would be surprising if it hit your eye.”
 
 *「はいはい、命中精度の低い豆鉄砲だねぇ。でもまっすぐ飛ばないからむしろ厄介かもしれん。目に入ったらビックリする」*
 
 &nbsp;
 
-He attacks the woman with a gun - a weapon made by alchemy that sends metal bullets flying in an explosion - but she is unperturbed. In the first place, the bullet that should have hit her has disappeared, leaving not even a scratch.
+Even as I attacked her with a gun――a weapon that shoots metal bullets through explosions created by alchemy――she remained unfazed. In fact, the bullets that should have hit her vanished without leaving a mark.
 
 *銃――錬金術で作られた、爆発で金属の弾を飛ばす武器――で女を攻撃するも、平然としている。そもそも、当たったはずの弾が消滅していて傷ひとつ残っていない。*
 
-A woman smiles with a crescent moon at the edge of her mouth.
+She smiled, her mouth curving like a crescent moon.
 
 *ニィ、と口端を三日月のようにして笑う女。*
 
 &nbsp;
 
-What the hell is this?　What are we dealing with!　It was obvious that they were no ordinary people to appear through the deck in the first place!
+What on earth is this? What are we up against!? It was clear that she was not an ordinary human to break through the deck like that!
 
 *一体、なんだこれは？　俺達は、何を相手にしている！？　そもそも甲板を突き破って現れるなんて普通の人間じゃないことは明白だった！*
 
@@ -56,81 +56,81 @@ What the hell is this?　What are we dealing with!　It was obvious that they we
 
 &nbsp;
 
-"Guys, don't be in such a hurry, okay?　Let's have some more fun.
+“Hey you guys, don’t panic so much, okay? Let’s have some fun!”
 
 *「キミたちぃー、そんなに慌てちゃダメ、だ、ゾ？　もっと楽しんでこー？」*
 
-Wow."
+“Wah!”
 
 *「うわぁっ」*
 
-"Slippery feet, fugg."
+“My feet slipped, ugh!”
 
 *「足が滑っ、ふげっ」*
 
 &nbsp;
 
-If we passed by each other, we could easily put our feet on them and they would roll us over. It was as if a grown man had stumbled over the roots of a big tree against such thin legs.
+As we passed by, she casually tripped us as if we were rolling over a tree root. A grown man stumbling over such thin legs.
 
 *すれ違えば足をひょいとかけられる気軽さで転がされていく。あんな細い足相手に、大の大人がまるで大樹の根に躓いたかのように。*
 
 &nbsp;
 
-"Damn it, burn up the enemy before you, flare cannon!"
+“Damn it, burn the enemy in front of us, Flare Cannon!”
 
 *「くそっ、眼前の敵を燃やし尽くせ、フレアカノン！」*
 
-Sweet. Magic tube!"
+“Too sweet. Magic tube!”
 
 *「甘い。魔法の筒！」*
 
 &nbsp;
 
-The special attack we unleashed was absorbed by the left hand and released from the right hand. If it lands and explodes, it blows up our friends and leaves a hole in the ship. Oh, man, I'm on fire!
+Our ultimate attack was absorbed by her left hand and fired from her right. When it hit and exploded, my comrades were blown away, and a hole opened in the ship. Oh no, it's on fire!
 
 *こちらが放った必殺の攻撃が、左手に吸い取られて、右手から放たれていく。着弾して爆発すれば、仲間が吹っ飛んで船に穴が開いた。ってやべ、燃えてる！*
 
 &nbsp;
 
-Put out the fire, put out the fire!　Don't use fire magic on this boat, you idiot!
+“Put it out, put it out! Don’t use fire magic on this ship, you idiot!”
 
 *「消火だ、消火しろ！　この船で火魔法使うんじゃねぇよ馬鹿！」*
 
-Water, water.
+“Water, water!”
 
 *「水、水っ」*
 
-Oh, my God. I'll help you put out the fire. Here it goes."
+“Oh dear, this is serious. Let me help you put it out. Poof, it’s gone.”
 
 *「おお、大変だ。消火を手伝ってあげようね。はい消えた」*
 
 &nbsp;
 
-The woman snapped her fingers and the fire went out.
+When she snapped her fingers, the fire was extinguished.
 
 *女が指をパチンと鳴らすと火が消えた。*
 
-...... What the hell kind of magic are you using?　Without even chanting!
+……What kind of magic is she using!? Without any incantation!
 
 *……いったい、どんな魔法使ってんだよ！？　詠唱も無しに！*
 
 &nbsp;
 
-'Oops, yes, yes. Could you tell me about the elves, please?　Hey."
+“Oh, right, right. Can you tell me about the elves? Hey!”
 
 *「おっと、そうそう。エルフの事教えてくれないかなぁ？　おーい」*
 
-Bubba, you're a monster!"
+“W-Wait, it's a monster!”
 
 *「ば、バケモンだぁ！」*
 
-Heeeeyyyy!
+“Eeeek!!”
 
 *「ひぃいい！！」*
 
 &nbsp;
 
-Someone got scared and ran away. No, they were running away or something from the beginning.
+Someone appeared, frightened and trying to escape. No, they were probably trying to escape from the beginning.
 
 *怯えて逃げるヤツが現れた。いや、最初から逃げたりしてたか。*
 
@@ -140,145 +140,142 @@ Someone got scared and ran away. No, they were running away or something from th
 
 &nbsp;
 
-What the hell are you doing?　This is my ship! --What the fuck are you doing?
+“What are you doing! This is my ship!!――You bastard!?”
 
 *「なにしてやがる！　ここは俺の船だぞ！！――てめぇ！？」*
 
 &nbsp;
 
-Captain Gomez, who must have been summoned by one of these escapees, appeared on deck from the bridge, which was a step higher than the rest of the ship.
+One of those who fled must have called for him, as Captain Gomez appeared on the deck from a higher bridge.
 
 *と、そんな逃げた連中の一人が呼んできたのだろう、ゴメス船長が一段高い船橋から甲板に顔を出した。*
 
-With bloodshot eyes, Captain Gomez stares at the woman.
+With bloodshot eyes, Captain Gomez glared at the woman.
 
 *血走った目で、ゴメス船長が女を睨みつける。*
 
 &nbsp;
 
-"Hi, Gonzalez. Or was it Gohandes?"
+“Hey Gonzales. Or was it Gohandes?”
 
 *「やぁゴンザレス。いやゴハンデスだっけ？」*
 
-It's Gomez, don't get me wrong! --But you've come to the wrong place.
+“It's Gomez, don’t get it wrong, you bastard!――But coming here is your downfall.”
 
 *「ゴメスだ、間違えんじゃねぇクソがっ！――だが、ここにやってきたのが運の尽きよ」*
 
 &nbsp;
 
-Captain Gomez licks his lips.
+Captain Gomez licked his lips.
 
 *べろり、と唇を舐めるゴメス船長。*
 
 &nbsp;
 
-"Give me the golem!　Golem for combat!"
+“Bring out the golem! The combat golem!”
 
 *「ゴーレムを出せ！　戦闘用ゴーレムだ！」*
 
-A golem against a human?
+“A golem against a human!?”
 
 *「人間相手にゴーレムを！？」*
 
-He's not a human, he's a monster!　The ship will be protected by the blessing of the sea god, and magic will be used as much as possible!"
+“Don’t think of her as human, consider her a monster! The ship is protected by the sea god’s blessing, so use magic freely!”
 
 *「あいつは人間じゃねぇ、バケモンだと思え！　船は海神の加護で守る、魔法もジャンジャン使え！」*
 
 &nbsp;
 
-The blessing of the sea god. It is the strongest defense of "Poseidon," the divine weapon possessed by Captain Gomez. With this, even if a ship and a boat collide, this one will not break, and even if it hits a reef, it will not create a hole in the hull.
+The sea god’s blessing. The strongest defense of the artifact “Poseidon” held by Captain Gomez. With this, even if we rammed our ship into another, we wouldn’t break, and even if we hit a reef, the hull wouldn’t get a hole.
 
 *海神の加護。ゴメス船長の持つ神器『ポセイドン』の最強防御だ。これがあれば、船と船をぶつけてもこちらは壊れず、岩礁に当たっても船体に穴ができることもない。*
 
-This means absolute safety on the voyage, which means that the ship will not be damaged in any way, even if a golem rampages on deck or blasts magic at it.
+In other words, it means absolute safety during the voyage, and it also means that even if a golem rampages on the deck or magic is unleashed, the ship will not be damaged at all.
 
 *つまりは、航海において絶対安全ということだが、これは甲板でゴーレムが暴れても、魔法をぶっ放しても、船に傷がつくことは一切無いということだ。*
 
 &nbsp;
 
-Don't let them get away!　Make them tell us where our cargo is!
+“Absolutely don’t let her escape! We need to make her spill the location of our cargo!!”
 
 *「絶対に逃がすな！　俺らの荷の在処を吐かせるんだ！！」*
 
-What?　It seems to be our client's luggage, after all. I can't return it.
+“Eh? Originally, it seems like it’s our client’s cargo. I can’t return it.”
 
 *「えー？　もとはといえばウチの依頼主の荷物らしいじゃん。返せないねぇ」*
 
-"You're the client?　You're the recovery adventurer commissioned by the owner of that ship!
+“C-Client!? You’re the adventurer hired by the owner of that ship to retrieve it!!”
 
 *「い、依頼主だと！？　テメェ、あの船の持ち主に依頼された回収冒険者か！！」*
 
 &nbsp;
 
-Sometimes we get requests like, 'We need to get back a cargo that was stolen by bandits. Sometimes I get requests like, "I want you to get back the cargo that was stolen by bandits.
+It happens sometimes. Requests like “Please retrieve the cargo stolen by pirates.”
 
 *たまにあるのだ。『賊に奪われた荷を取り返して欲しい』といった依頼が。*
 
-Most of the time, this is solved with money, but in this case, the owner of the cargo had already decided who would take it back. And, more importantly, the owner of the cargo was an elf and a good seller, so he was the first to quickly sell it off.
+Most of the time, it’s a matter that can be resolved with money, but this time, the cargo already had a designated recipient. And more importantly, the owner of the cargo was an elf, and it was a good item, so it was sold off quickly.
 
 *大抵は金で解決する話なのだが、今回はもう荷の引き取り手が決まっている段階だった。そして、なにより荷の持ち主自身がエルフで、いい売り物であったということもあり、一番にさっさと売り払ってしまった。*
 
 &nbsp;
 
-But I guess that means that he had asked in advance to get his cargo back if it was taken from him. And he came to work for the law, this guy.
+However, it seems that there was a prior request stating, “If the cargo is stolen, please retrieve it.” And she came to work diligently, it seems.
 
 *しかし、あらかじめ「荷を奪われたら取り返して欲しい」依頼をしていた、ということだろう。そして律儀に働きに来たってわけだ、こいつは。*
 
 &nbsp;
 
-I'll pay you double!　I'll forgive you if you turn now!"
+“I’ll pay double the reward! If you switch sides now, I’ll let you go!”
 
 *「倍の報酬を払うぞ！　今寝返るなら許してやる！」*
 
-No, I don't. I don't think you guys can pay me. I don't think you guys can pay me, and I don't think we deserve to negotiate.
+“Eh, no way. I don’t think you guys can pay the reward, and it’s not worth negotiating.”
 
 *「え、やだよ。お前らじゃ報酬払えると思えないし、交渉に値しないね」*
 
 &nbsp;
 
-The woman easily kicks off Captain Gomez's proposal.
+The woman easily rejected Captain Gomez’s proposal.
 
 *あっさりとゴメス船長の提案を蹴る女。*
 
 &nbsp;
 
-Heh, I thought so!　But too bad!　That elf is a lord's pet now!"
+“Heh, I thought so! But too bad! That elf is probably the lord’s pet by now!”
 
 *「ヘッ、だと思ったよ！　だが残念だったなぁ！　あのエルフは今頃領主のペットだ！」*
 
-That's good to hear. Well, that's good to know, thank you. Well, I'll go help you with that later."
+“Oh, that’s good to know, thank you. Well, I’ll go rescue her later.”
 
 *「へぇ。そりゃいいことを聞いたよ、ありがとう。まぁそれはあとで助けに行くとしよう」*
 
-You fool, you'll never get away with it if you challenge the lords!　We'll beat you up before you get away with it!"
+“You fool, there’s no way you can oppose the lord and come out unscathed! You’ll be taken down by us first!”
 
 *「馬鹿め、領主に楯突いて無事で済むはずがないだろ！　その前に俺らにブッ倒されるんだけどなァ！」*
 
-I don't know.　Well, no matter. Go ahead and get it. And while we're talking, is the Golem ready?"
+“Is that so? Well, whatever. Come at me. By the way, while we’re talking, is the golem ready?”
 
 *「そうかなぁ？　ま、いいや。かかってきなよ。で、話してる間にゴーレムの準備はできた？」*
 
 &nbsp;
 
-They knew we were buying time to activate the golem, and they were on board with the story. ...... But they were caught off guard. In fact, the blessing of the sea god is effective for the golem, which is a fixture of the ship, and for us, the crew.
+She seemed to have realized that I was stalling for time to activate the golem…… but she let her guard down. In fact, the sea god’s blessing is effective not only on the golems that are ship’s equipment but also on us, the crew.
 
 *こちらがゴーレム起動のための時間稼ぎをしていることが分かっていて、話に乗っていたらしい……しかし油断したな。実は、海神の加護は船の備品であるゴーレムにも、そして乗組員である我々にも有効なのだ。*
 
 &nbsp;
 
-No matter how good a magician we are, we are no match for a golem and battle group protected by the blessing of the sea god!　As long as we have the divine weapon "Poseidon," we are invincible!
+No matter how excellent a magician she is, can she stand against a golem and a combat group protected by the sea god’s blessing? As long as we have the artifact “Poseidon,” we are invincible!
 
 *いくら優秀な魔法使いといえど、海神の加護に守られたゴーレムと戦闘集団に敵うものか！　神器『ポセイドン』がある限り、我々は無敵なのだ！*
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(Volume 8 of the comicalization of "Until the Dungeon Master Who Never Wants to Work Coasts Away" is now on sale!)
+(“The Dungeon Master Who Absolutely Doesn’t Want to Work Indulges in Slumber” Comic Volume 8, now on sale!)
 
 *（『絶対に働きたくないダンジョンマスターが惰眠を貪るまで』コミカライズ８巻、発売中！）*
-

@@ -1,52 +1,52 @@
-# I see... that's terrible... holy shit.
+# I see, that's terrible
 
 ## なるほど、ひどいねーこりゃ
 
 &nbsp;
 
-But what would it take for a bard to lose his arms, his good looks, and his voice?"
+"Still, what could have caused a bard to lose both arms, beauty, and voice?"
 
 *「しっかし何があれば吟遊詩人が両腕に美貌に声と失っちゃうわけ？」*
 
 &nbsp;
 
-The skill to play an instrument, the eye-catching good looks, and the singing voice - a full set of minstrels.
+Arms for playing instruments, beauty to attract attention, and singing voice――it's the full set for a bard.
 
 *楽器を演奏する腕、人目を集める美貌、そして歌声――吟遊詩人フルセットである。*
 
-None of this would be surprising if you were a bard, trying to protect them first and foremost.
+It wouldn't be strange for any bard to prioritize protecting these.
 
 *どれも吟遊詩人であれば第一に守ろうとしておかしくないだろうに。*
 
 &nbsp;
 
-"They were slaves owned by a merchant from the Alchemy Kingdom ...... who, by the way, must have spread rumors against the Chamber of Commerce. They were kept alive almost for show."
+"It was a slave owned by a merchant from the Alchemy Kingdom... presumably, they spread unfavorable rumors about the trading company. She was kept alive almost as a warning."
 
 *「錬金王国の商人が持っていた奴隷だったのですが……さしずめ、商会に対して不利な噂を流したのでしょう。ほとんど見せしめのために生かされていた状態でした」*
 
-I see...an example. I see... I see... I'm being made an example of.
+"I see, a warning, huh. That's brutal."
 
 *「なるほど、見せしめかぁ。えぐいなぁ」*
 
 &nbsp;
 
-Then, on the contrary, it would have been destroyed from the most important part.
+Then, conversely, it seems she was broken in a crucial way.
 
 *それなら逆に大事なところから壊されてしまったのだろう。*
 
 &nbsp;
 
-But such a slave, if I heal him, won't he come after me?"
+"But if I heal such a slave, won't I become a target?"
 
 *「でもそんな奴隷、治したら私が狙われない？」*
 
-Don't worry. She was sold just last month, and the trading company that was making an example of her seems to have collapsed along with the Alchemy Kingdom."
+"Rest assured. She was sold just last month, and the trading company that used her as a warning seems to have collapsed along with the Alchemy Kingdom."
 
 *「ご安心を。彼女が売られたのはちょうど先月で、見せしめにしていた商会は錬金王国とともに潰れたようですので」*
 
 &nbsp;
 
-It seems to have taken over the unsold goods of the previous slaver. I see. If the trading company of the Alchemy Kingdom has also gone under, it must be okay.
+It seems like she was a leftover from the previous slave trader. I see. If the trading company of the Alchemy Kingdom has collapsed, it should be fine.
 
 *前の奴隷商の売れ残りを引き継いだものらしい。なるほど。錬金王国の商会も潰れたんなら大丈夫だろう。*
 
@@ -54,105 +54,105 @@ It seems to have taken over the unsold goods of the previous slaver. I see. If t
 
 &nbsp;
 
-Well, let's see the real thing, we decided.
+Well, it was decided to see the actual person.
 
 *まぁ実物を見てみよう、ということになった。*
 
 &nbsp;
 
-The merchant brings the slave. He says he is in good condition to walk ....... Then that means his legs are safe, and at this point, expectations are high.
+The merchant brings the slave. ...She seems to be able to walk. So her legs are fine, which raises my expectations at this point.
 
 *商人がその奴隷を連れてくる。……歩ける状態にはあるらしい。なら足は無事ということだ、この時点で期待が高まる。*
 
-The slave brought to me was a small girl, smaller than I had expected, about a head smaller than me.
+The brought slave was smaller than I expected, a girl about a head shorter than me.
 
 *連れてこられた奴隷は、思っていたより小柄で私より頭一つくらい小さな少女だった。*
 
 &nbsp;
 
-Both arms are missing from the shoulders, and bandages are wrapped around the face.
+Both arms were missing from the shoulders, and her face was wrapped in bandages.
 
 *両腕は肩から無くなっており、顔には包帯が巻かれている。*
 
-He wears shabby clothes, but various old scars are visible. Oh, he even has a tattoo.
+She wore shabby clothes, but various old scars were visible. Oh, she even has tattoos.
 
 *粗末な服を着ているが、古傷が色々見え隠れ。おや、入れ墨まで入ってるねぇ。*
 
 &nbsp;
 
-"You're prettier than I thought you'd be. How old are you?"
+"She's cuter than I thought. How old is she?"
 
 *「おもったより可愛らしいね、何歳くらいなの？」*
 
-He's over 20. Half-dwarf."
+"She's over 20. She's a half-dwarf."
 
 *「２０は越えてますよ。ハーフドワーフですね」*
 
 &nbsp;
 
-Half-dwarves, is that a thing? Wow.
+A half-dwarf, so that's a thing. Interesting.
 
 *ハーフドワーフ、そういうのもあるのか。へぇ。*
 
 &nbsp;
 
-Can I try to take the bandage off?" ...... Hmmm. I see, it's terrible.
+"Can I take off the bandages? ...Hmm, I see. That's terrible."
 
 *「包帯とってみていい？……ふむふむ。なるほど、ひどいねーこりゃ」*
 
-Ugh. ......"
+"Ugh..."
 
 *「ううっ……」*
 
 &nbsp;
 
-Dia, who was standing next to me, turns pale. Oh, Deere, you don't have a tolerance for this kind of scars and burns, do you?
+The face of Dia-kun next to me turns pale. Ah, Dia-kun doesn't have a tolerance for such scars and burns?
 
 *隣にいたディア君の顔色が悪くなる。あ、ディア君こういう傷跡や火傷の耐性無い？*
 
-I've gotten used to being shown much worse in tutorials. Haha.
+I got used to seeing much worse in the tutorial. Haha.
 
 *私はチュートリアルでもっとひどいの見せられまくって慣れたよ。ハハ。*
 
 &nbsp;
 
-I wonder what your voice is like. It's a pain in the ass if it's a psychogenic shock and you can't speak. ...... Yes, open your mouth-. ......Ah, you feel like you've been drugged and your throat is burning?　Ho-ho."
+"How's her voice? If she can't speak due to psychological shock, that would be troublesome... Okay, open your mouth—. ...Ah, it feels like her throat is burned from taking a poison? Oh, I see."
 
 *「声の方はどんなかな。心因性のショックで声が出ないとかだとめんどくさいんだけど……はいお口開けて―。……あー、劇薬飲まされて喉が焼けただれてる感じ？　ほほー」*
 
 &nbsp;
 
-Yeah, I think I can fix this. I think I can fix this. The old man was in a worse state and had to be resurrected and grinded to a pulp repeatedly, so there's plenty of time to spare.
+Yeah. I think I can heal this. That old man revived from worse conditions and kept getting crushed, so this should be a piece of cake.
 
 *うん。これなら治せそうかなー。あのジジイはもっとひどい状態から復活させられてすり潰されてを繰り返してたくらいだし余裕余裕。*
 
-I don't know their original appearance or anything, so their appearance might change.
+I don't know what she originally looked like, so her appearance might change.
 
 *元の姿とかを知らないから見た目は変わっちゃうかもだけど。*
 
 &nbsp;
 
-Then the rest was the character of the slave himself ...... No, that was not the point and should not be looked at!
+Then it comes down to the slave's personality... no, that's irrelevant and something I shouldn't look into!
 
 *となればあとは奴隷本人の性格……いや、そこは関係ないし見てはいけないところだった！*
 
 &nbsp;
 
-Personality can be mended as much as one is willing to die for!
+A person on the brink of death can easily put on a facade!
 
 *性格なんて死ぬ気の人間ならいくらでも取り繕える！*
 
-Even senior Shirdon healed a badly wounded slave with expensive potions, and still he was robbed of his property like a marriage scam!
+Even Senior Shildon healed a badly injured slave with an expensive potion, and still got his wealth stolen like a marriage scam!!
 
 *シルドン先輩だってひどい傷の奴隷を高価なポーションで治してあげて、それでも結婚詐欺のように財産奪われたんだから！！*
 
 &nbsp;
 
-We must not forget the lessons of our predecessors, me!
+I must not forget the lessons from my predecessors!!
 
 *先人の教訓を忘れてはならないぞ、私！！*
 
-Do not be bonded to slaves!　Character is once again a non-issue!
+I must not be swayed by the slave!! Personality is completely irrelevant!!!
 
 *奴隷に絆されてはいけないのだ！！　性格はいっそ不問だ！！！*
 
@@ -160,31 +160,31 @@ Do not be bonded to slaves!　Character is once again a non-issue!
 
 &nbsp;
 
-I'll buy it. Dia, lend me a gold coin.
+"Then I'll buy her. Dia-kun, lend me a gold coin."
 
 *「んじゃ買います。ディア君、金貨１枚貸してー」*
 
-"Yeah, can you fix it, from this state?"
+"Uh, can you really heal her in this state?"
 
 *「えぇ、治せるんですか、この状態から？」*
 
-Oh, I bet she can fix it!"
+"Yeah, I'm sure that person can heal her!"
 
 *「ああ、きっとあの人なら治せるよ！」*
 
 &nbsp;
 
-Yes, that legendary black doctor, Damina Nisseisha, would - wait a minute.
+Yes, that legendary dark doctor, Damina Niseisha (pseudonym) can surely do it――wait a minute.
 
 *そう、あの伝説の闇医者、ダミーナ・ニセイシャ（仮）なら――って、ちょっとまて。*
 
-...... If we let this girl play Damina (temporarily), who should be the one who healed her?
+...If this girl is going to be treated by Damina (pseudonym), who is going to heal her?
 
 *……この子にダミーナ（仮）をやらせるなら、この子を治した人は誰がやればいいんだ？*
 
 &nbsp;
 
-Ugh, I have to do the first one myself? I see.
+Ugh, do I have to do it myself the first time? Is that how it is?
 
 *うう、最初の一回は私が自分でやらなきゃダメですか。そうですか。*
 
@@ -192,45 +192,45 @@ Ugh, I have to do the first one myself? I see.
 
 &nbsp;
 
-"Oh, are you sure you want to buy it?"
+"R-Really, are you going to buy her?"
 
 *「ほ、本当にお買い上げいただけるので？」*
 
-Yeah, cash on delivery.
+"Yeah, payment will be in cash."
 
 *「うん、支払いは現金で」*
 
 &nbsp;
 
-Receive gold from Mr. Deere and pay the slaver.
+I receive the gold coin from Dia-kun and pay the slave trader.
 
 *ディア君から金貨を受け取り、奴隷商に支払う。*
 
 &nbsp;
 
-If we can't fix it at ......, we'll accept a full refund as is."
+"…If I can't heal her, I'll accept a full refund."
 
 *「……治せなかったら、そのまま全額返金対応で受け付けますので」*
 
-Oh, you're so conscientious. Well, let's take care of all the formalities.
+"Oh, that's considerate. Then, please take care of the various procedures."
 
 *「お、良心的だぁ。じゃ、色々手続きよろしく」*
 
-I will sign the slave contract. Then I will execute the slave contract.
+"Understood. Now, let's proceed with the slave contract."
 
 *「かしこまりました。それでは奴隷契約を行います」*
 
 &nbsp;
 
-By contractual magic, this child was to swear absolute obedience to me. Even if he doesn't have both arms and can't speak, he can still be effective just by nodding his head of his own volition. Contract magic, isn't that pretty amazing?
+With the contract magic, this girl vowed absolute obedience to me. Even without arms or the ability to speak, it's valid just by nodding her head of her own will. Contract magic is quite impressive, isn't it?
 
 *契約魔法で、この子は私への絶対服従を誓うことになった。両腕がなくても喋れなくても、自分の意志で頷くだけで有効とか。契約魔法、結構すごくない？*
 
-And, it is not necessary to put a collar on him. Good, because it would not be cool if the legendary black market doctor wore a collar.
+Also, it seems there's no particular need to put on a collar. Good, because it wouldn't look cool if the legendary dark doctor had a collar on.
 
 *尚、特に首輪をつける必要はないらしい。よかった、伝説の闇医者が首輪つけてたらカッコつかないもんね。*
 
-...... Or, on the other hand, was it a bit too chuunibi-like?
+...No, on the contrary, it might be cool in a chuunibyou way?
 
 *……いや逆に中二病っぽくてアリかもだったかな？*
 
@@ -239,4 +239,3 @@ And, it is not necessary to put a collar on him. Good, because it would not be c
 &nbsp;
 
 &nbsp;
-

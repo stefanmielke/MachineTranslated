@@ -1,122 +1,122 @@
-# What's wrong with you!
+# What happened!?
 
 ## どうしたんですか！？
 
 &nbsp;
 
-The moment when God bit into the footed sock of the maid homunculus with a snap.
+The moment the god bit into the maid homunculus's socked foot.
 
 *ぱく、とメイドホムンクルスの足付き靴下に神様がかぶりついた瞬間。*
 
 &nbsp;
 
--a shock that felt like a crack in the world.
+――A shock ran through as if the world had cracked.
 
 *――ピシッと世界にヒビが入ったような衝撃が走った。*
 
 &nbsp;
 
-What?　This, this, what?
+"ッ！？ Wh-what is this!?"
 
 *「ッ！？　こ、これ、はっ！？」*
 
 &nbsp;
 
-Immediately after. Socks, the mouth is removed from the foot of the maid homunculus and God backs away with a blue face.
+Immediately after. The sock was pulled away from the maid homunculus's foot, and the god stepped back with a pale face.
 
 *直後。靴下、メイドホムンクルスの足から口を離し、神様が青い顔をして後ずさる。*
 
 &nbsp;
 
-"...... ugh!　My body is ......"
+"…Ugh! My body…"
 
 *「……うぐ！　か、身体が……」*
 
-"What, uh, what?　God?　What's going on!"
+"Eh, wh-what? God? What happened!?"
 
 *「え、あ、れ？　神様？　どうしたんですか！？」*
 
-"I feel like I'm being stirred up in a round and round ...... This is the power of ......!　No way!
+"I feel like I'm being stirred around… Th-this power…! No way!"
 
 *「ぐるぐるとかき混ぜられているカンジがします……こ、この力……！　ま、まさか！」*
 
 &nbsp;
 
-God cowering. And when Kaoru saw this, he raised the edge of his mouth with a nyi.
+The god crouched down. And seeing this, Kaoru smirked.
 
 *うずくまる神様。そして、それを見たカオルが、ニィと口端を上げた。*
 
-And Kaoru's hair color gradually turns red.
+Then, Kaoru's hair color gradually turned red.
 
 *そして、カオルの髪色が徐々に赤くなっていく。*
 
 &nbsp;
 
-Well done, Lena. Good job to you too, Karina."
+"Well done, Lena. Thank you for your hard work, Karina-chan."
 
 *「よくやったわレナ。カリーナちゃんもお疲れ様」*
 
-"Yes, my Lord."
+"Yes, my master."
 
 *「はい、我が主」*
 
-"......!!!!"
+"…!!"
 
 *「……！！」*
 
 &nbsp;
 
-At that moment, the exchange with the "Demon Lord of Chaos" came back to my mind.
+In that moment, the interaction with the 'Chaos Demon King' resurfaced in my mind.
 
 *その瞬間、私の頭の中に『混沌の魔王』とのやり取りが蘇った。*
 
 &nbsp;
 
-"Chaos ......!!!"
+"Chaos…!!"
 
 *「混沌の……！！」*
 
-Oh. That's enough with the God of Chaos."
+"Ah, it's fine now, just call me the Chaos God."
 
 *「ああ。もう良いわよ混沌神で」*
 
 &nbsp;
 
-My memory becomes even clearer when I hear the sound of a clap and a tap of the fingers.
+With a snap, hearing the sound of fingers snapping made my memories even clearer.
 
 *パチン、と指打ちの音を聞けば、私の記憶は更に鮮明になる。*
 
 &nbsp;
 
-Yes. I was forced to carry a maid homunculus, whose memories had been tampered with by the god of chaos and returned to him as the "mastermind," and to offer him a pair of socks that would harm him.
+Yes. I was manipulated by the Chaos God, carried the maid homunculus, who had been counterattacked, to the god as the 'mastermind', and was made to offer harmful socks to the god.
 
 *そう。私は混沌神に記憶を弄られ、返り討ちにされたメイドホムンクルスを『黒幕』として神様の下へ運び、神様相手に害となる仕込み靴下を捧げさせられたのだ。*
 
-It was manipulated by the Chaos Gods to be so, to do so. As if they didn't even know they were being manipulated. They were being manipulated.
+I was being controlled by the Chaos God to make it happen, to do it. So much so that I didn't even realize I was being manipulated. I was being toyed with.
 
 *そうなるように、そうするように、混沌神によって操られていた。操られていることすら気付かないように。弄られていた。*
 
 &nbsp;
 
-And so, God was deceived by me, and I was made to eat poison socks with a whimper.
+And so, the god, deceived by such me, ended up being made to eat the poisoned socks.
 
 *そうして、そんな私に騙された神様は、ホイホイと毒靴下を食べさせられてしまったのだ。*
 
 &nbsp;
 
-I'll take the place of SP from now on, as I promised, and I'll also make appropriate items for you. As the god of alchemy, I can easily create divine artifacts and items to conceal them.
+"Don't worry, as promised, from now on I'll also act as your SP, and I'll create appropriate items for you. After all, I'm the god of alchemy, so I can easily create divine artifacts, and of course, I can create items to conceal divine artifacts."
 
 *「大丈夫よ、約束通りこれからは私がＳＰの代わりもしてあげるし、相応のアイテムを作ったりしてあげる。錬金術の神様だもの、神器だって簡単に作れるし、神器を隠蔽するアイテムだって当然作れるわ」*
 
 &nbsp;
 
-Okay, so God looked at the maid and decided that she didn't have any divine gifts.
+I see, that's why the god judged that the maid had "no divine artifacts."
 
 *そうか、それでメイドを見た神様が「何の神器も持っていない」って判断したのか。*
 
 &nbsp;
 
-In fact, it would have been a mass of divine artifacts, with 108 real divine artifacts handmade by the God of Chaos. Among them, there must have been a "sacred artifact that conceals a sacred artifact". It makes sense.
+In reality, she must have had 108 genuine divine artifacts made by the Chaos God. Among them, there must have been a 'divine artifact to conceal divine artifacts.' That makes sense.
 
 *実際は、混沌神お手製の本物の神器を１０８個持っている、神器の塊だったのだろう。その中に『神器を隠蔽する神器』もあったのだろう。辻褄はそれで合う。*
 
@@ -124,17 +124,17 @@ In fact, it would have been a mass of divine artifacts, with 108 real divine art
 
 &nbsp;
 
-The god of chaos approached the cowering god.
+The Chaos God approached the crouching god.
 
 *うずくまる神様に、混沌神が近寄った。*
 
 &nbsp;
 
-I'm not so sure. How do you feel about it, God of Time and Space?　How does it feel to have your divine power sealed from inside your body?"
+"Hehehe, now then. How does it feel, Time-Space God-chan? How does it feel to have your divine power sealed from within your body?"
 
 *「ふふふ、さぁて。どうかしら時空神ちゃん？　体の中から神力を封印された感想は？」*
 
-"Crap ......, my tummy is ......"
+"Ugh… My stomach…"
 
 *「くっ……お、おなかが……」*
 
@@ -144,107 +144,107 @@ The next moment.
 
 *その次の瞬間。*
 
-God jumped on the god of chaos with a very fast movement and held him with both hands and feet. Is it a ...... cicada?
+The god suddenly lunged at the Chaos God with incredible speed and held on tightly with both hands and feet. …Like a cicada?
 
 *神様がしゅばっとものすごい早い動きで混沌神に飛びついてガシッと両手両足でホールドした。……セミかな？*
 
 &nbsp;
 
-I'm laughing so hard I feel like my stomach is going to curl up in knots!　Haha♪ It's the God of Chaos!
+"It’s so funny that it feels like my stomach is twisting! Ahaha♪ It's the Chaos God!"
 
 *「おなかがよじれそうなくらい、笑っちゃいますねぇ！　あはっ♪　混沌神さんだぁ！」*
 
-What?　Why can't you move, God of Time and Space?
+"！？ W-wait, how can you move, Time-Space God-chan!?"
 
 *「！？　ちょ、な、何故動けるの時空神ちゃん！？」*
 
 &nbsp;
 
-God, I put my hands into the clothes of the God of Chaos (Kaoru with reddish hair) and stroked them, enjoying their body odor, kumquatting and tooth marks. I quietly moved away from them both.
+The god began to rummage through the Chaos God (Kaoru, whose hair had turned red), stroking and sniffing her body odor, leaving bite marks. I quietly distanced myself from the two.
 
 *神様、混沌神（髪の赤くなったカオル）の服に手を突っ込んで撫でまわし、くんかくんかと体臭を堪能し、かぷかぷと歯形をつけていく。私はそっとふたりから距離を取った。*
 
-Ah, hello maid homunculus! Are you evacuating too?　It's tough on both of us, isn't it?
+Ah, hello, maid homunculus. Are you also taking shelter? We're both having a tough time.
 
 *あ、メイドホムンクルスさんちーっす。あんたも避難中？　お互い大変だね。*
 
 &nbsp;
 
-Why?　I thought I ate the stocking stuffer!"
+"Why! I should have eaten the poisoned socks!?"
 
 *「どうして！　仕込み靴下食べたはずなのに！？」*
 
-What?　Oh no. I'm just pretending to eat it, Hu, li!　I know exactly how much you love me, God of Chaos, so much that you want to seal me up and make me your pet!
+"Eh? No way. I was just pretending to eat them, P-PRETENDING! I know very well that the Chaos God likes me so much that she wants to seal me and make me her pet!"
 
 *「え？　やだなぁ。食べたフリですよ、フ、リ！　ちゃーんと分かってますよ、混沌神さんが私の事封印してペットにしたいくらい好きだってこと！」*
 
-No, no!　I just want my freedom!"
+"N-no! I just want my freedom!"
 
 *「ち、ちがうわよ！？　私は自由が欲しいだけなの！」*
 
-Yeah, yeah. I know. I know. That's why I won't give it to you!　I don't like it if you're not my own personal God of Chaos.
+"Yes, yes. I understand. I understand. That's why I'm not giving you up! I don't want anyone but my own Chaos God, ufufufufu."
 
 *「ええ、ええ。分かってます。分かってますよ。だからあげない！　私だけの混沌神さんじゃなきゃ嫌なんです、うふふふふ」*
 
 &nbsp;
 
-Wow. Sounds like a Yandere. Isn't this why the God of Chaos avoids God?
+Wow. That’s a yandere vibe. Isn’t that why the Chaos God avoids the god?
 
 *わー。ヤンデレっぽい。これだから混沌神が神様ん事避けるんじゃないの？*
 
 &nbsp;
 
-Damn, I was properly deploying Mr. Cotchery ......!"
+"Ugh, I was properly deploying the 'Koshori-kun'…!"
 
 *「くっ、ちゃんとコッショリ君を展開していたのに……！」*
 
 &nbsp;
 
-Oh, I thought you said that if I used Mr. Koshori, I wouldn't see God?
+Ah, speaking of which, wasn't there a story that if I used 'Koshori-kun', the god wouldn't see me?
 
 *あー、そういえばコッショリ君使ってたら神様見ないって話じゃなかったっけ？*
 
-You've been watching me, haven't you?　You can't break a promise, God!
+So you were watching, huh? Breaking promises is not allowed, God!
 
 *さては見てたんだな？　約束破りはだめですよ神様！*
 
 &nbsp;
 
-'Karina-chan. Do you remember your exception, Mr. Cossioli?"
+"Karina-chan. Do you remember the exception for 'Koshori-kun'?"
 
 *「カリーナちゃん。コッショリ君の例外、覚えてますか？」*
 
-Oh, let's see. ...... except in emergency situations, was it?"
+"Ah, um… It was something like 'except in emergencies,' right?"
 
 *「あ、えっと。……緊急事態を除き、でしたっけ？」*
 
-I remember well!　Now, what emergency would you have said you would peek at?"
+"You remembered well! So, what kind of emergency did I say would allow peeking?"
 
 *「よく覚えてましたね！　では、どんな緊急事態だったら覗くと言いましたか？」*
 
-Let's see...you haven't been heard from in about 10 years, or God's lover is playing--!!!"
+"Um, if there’s been no contact for about ten years, or if the god's lover comes to visit—!!"
 
 *「えっと。１０年くらい音沙汰がないとか、神様の恋人が遊びに――！！」*
 
 &nbsp;
 
-That's right. When God's lover goes to play, he will peek even if Mr. Koshori is there.
+That's right. If the god's lover comes to visit, I would peek even with 'Koshori-kun.'
 
 *そうだ。神様の恋人が遊びに行ったら、コッショリ君があっても覗く。*
 
-God said so from the beginning.
+The god had said that from the beginning.
 
 *神様は最初からそう言っていたのだ。*
 
 &nbsp;
 
-Yes!　I mean, this time it was an emergency!"
+"Yes! So this time was an emergency!!"
 
 *「はい！　つまり今回は緊急事態でした！！」*
 
 &nbsp;
 
-Damn, an exception to the prior application process!　Then it can't be helped.
+Ugh, an exception for prior application processing! Then it can't be helped.
 
 *くっ、事前申請の例外処理か！　なら仕方ない。*
 
@@ -252,31 +252,29 @@ Damn, an exception to the prior application process!　Then it can't be helped.
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
 &nbsp;
 
-(Notice below)
+(Announcement below)
 
 *（以下お知らせ）*
 
-Comicalization of this work in ComicREX from 8/27 (Tue.) (illustrated by Kanmuri-sensei)
+Starting from 8/27 (Tuesday), the comic adaptation of this work (illustrated by Kanmuri-sensei)
 
 *8/27(火)よりComicREXにて本作コミカライズ（絵：かんむり先生）*
 
-The series of "The Rise of the New York Times" has just started!　It's in a paper magazine!
+has begun serialization in ComicREX! It's being published in a paper magazine!!!
 
 *が連載開始しましたわよ！　紙の雑誌に載ってるのですわーーーー！！！*
 
-It's also on the September page!　9Harmikazuchi sister is here!
+The September issue is also included!! The nine Harumikazuchi older sister makes her appearance!!
 
 *９月分も載ってるのですわ！！　９ハルミカヅチお姉様登場ですわーーー！！*
 
-Also a detailed picture of Karina's first play as an example!　With pictures!
+The detailed illustrations of Karina-chan's first play are also included! In illustrations!!
 
 *例のカリーナちゃんの初プレイも詳細な絵で！　絵で！！*
 
@@ -284,11 +282,11 @@ Also a detailed picture of Karina's first play as an example!　With pictures!
 
 &nbsp;
 
-Ah. I'm also working on a new piece of fluff.
+Oh. I'm also working on a silly new project.
 
 *あ。フザケた新作もやってます。*
 
-Bunny Girl, Carrot Shop: Running a Carrot Shop in a World Ruled by Bunny Girls"
+"Unless you're a bunny, you're not human – In a world dominated by bunny girls, running a carrot shop."
 
 *『バニーにあらずんば人にあらず　～バニーガールに支配された世界でニンジン屋を営む～』*
 
@@ -297,4 +295,3 @@ https://kakuyomu.jp/works/16818093083361398334
 *https://kakuyomu.jp/works/16818093083361398334*
 
 &nbsp;
-

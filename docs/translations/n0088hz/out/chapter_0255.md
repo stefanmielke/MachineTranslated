@@ -6,215 +6,215 @@
 
 &nbsp;
 
-So we were relaxing and having tea in the ritual hall when suddenly it became noisy.
+So, I was leisurely having tea in the ritual hall when it suddenly became noisy.
 
 *というわけで、祭具殿でのんびりお茶していたのだが、急に騒がしくなってきた。*
 
 &nbsp;
 
-"Mi, mi, mi, miko hime-sama!　A dragon has appeared!
+“M-m-m-miko princess! A d-d-d-dragon has appeared!”
 
 *「み、み、み、巫女姫様ぁ！　ど、ど、ど、ドラゴンが出ましたッ！」*
 
-Oh. Did he come?　The black one?"
+“Oh. Did it come? The black one?”
 
 *「あ。来た？　黒いヤツ？」*
 
-How do you know that if you haven't seen it?　I mean, how do you know that if you haven't seen it?"
+“Yes! But how do you know without seeing it?”
 
 *「はいっ！　って、なんで見てないのに知ってるんです？」*
 
 &nbsp;
 
-Yoki nods her head.
+Youki-chan tilts her head.
 
 *ヨウキちゃんが首をかしげる。*
 
 &nbsp;
 
-'Well, I've previewed it and I know.
+“Well, I saw it during a preliminary visit, so I know.”
 
 *「そりゃ、下見で見てきたし知ってるよ」*
 
-"!　Don't tell me you were followed?"
+“!! Could it be that you were being followed?!”
 
 *「！！　まさか、尾行られたってことですか？」*
 
-'Ah. ...... maybe?"
+“Ah—... that might be the case?”
 
 *「あー。……そうかもね？」*
 
-Oh, my God, what have you done to me!
+“W-what have you done to us!!!”
 
 *「な、なんてことしてくれたんですかぁああ！！！」*
 
 &nbsp;
 
-Yoki-chan grabs my collar and shakes it. I'm so drunk.
+Youki-chan grabs my collar and shakes me back and forth. Oh no, I’m getting dizzy.
 
 *私の襟首をつかんでがっくんがっくん揺らすヨウキちゃん。やーん酔う。*
 
 &nbsp;
 
-'Calm down. It's okay, we have the Princess!"
+“Calm down. It’s okay, we have the princess with us!”
 
 *「落ち着いて。大丈夫だよ、私達には、姫様がいるからね！」*
 
-'Ha, yes it was!　Please, miko princess, calm the dragon!"
+“Ah, that’s right! Please, miko princess, calm the dragon for us!!”
 
 *「はっ、そうでした！　お願いします巫女姫様、ドラゴンを鎮めてくださいまし！！」*
 
-"...... sister, shall we go?"
+“...Shall I go, big sister?”
 
 *「……お姉さん、行きますか？」*
 
-"All right. Come on, have a hand."
+“Okay. Now, please take my hand.”
 
 *「おっけー。さ、お手をどうぞ」*
 
 &nbsp;
 
-I will take Dear's hand and escort him. In addition, I will take Arthur with me.
+I take Dia-kun's hand and escort him. I might as well take Arthur along too.
 
 *私はディア君の手を取り、エスコートする。ついでにアーサーも連れていこう。*
 
-The dragon seemed to be watching the situation while hovering above the ritual hall in a disciplined manner.
+The dragon seemed to be hovering above the ritual hall, observing the situation.
 
 *ドラゴンは律義に祭具殿の上空をホバリングしつつ様子見をしているようだった。*
 
 &nbsp;
 
-I'm here for a farce, Miss!　I'm here to make a farce!　Miss ahhhhhhhh!
+“Hey, sis! I’ve come for the farce!! Is this the right place?! Sis!!”
 
 *『姐さーーーん、茶番しに来やしたぜぇーーーー！！　こちらでよろしかったっすかーーー！！　姐さぁああーーーーーーん！！』*
 
-Heeey!　The dragon is very angry!　It's your fault, I swear!"
+“Eek! The dragon is really angry! It’s definitely your fault!”
 
 *「ひぃい！　ドラゴンがすっごい怒ってます！　あなたのせいですよ絶対！」*
 
-Oh, not so much.
+“Not really, it’s not that bad.”
 
 *「いやぁ、それほどでも」*
 
-I didn't mean it as a compliment!
+“I’m not complimenting you!?”
 
 *「褒めてませんよ！？」*
 
 &nbsp;
 
-To Yoki, who doesn't understand dragon language, no matter how you hear it, it's nothing but the roar of a dragon. Okay, okay, I'm not afraid!
+To Youki-chan, who doesn’t understand dragon language, it must sound like nothing but the dragon’s roar. It’s okay, it’s not scary.
 
 *ドラゴン語の分からないヨウキちゃんには、どう聞いてもドラゴンの咆哮以外の何物でもないよな。よしよし、怖くないよー。*
 
 &nbsp;
 
-I'm sure it's a black dragon, Miss. It's definitely strong, isn't it?　But still, just one punch?
+“Wow, isn’t that a black dragon, sis? It’s definitely strong, right? But can it be taken down with one hit?”
 
 *『わー、ブラックドラゴンじゃないっすか姐さん。間違いなく強いっすよ？　でもやっぱりワンパンで？』*
 
-It is."
+“Yep.”
 
 *「だよ」*
 
-'Oh, Miss!　Hmm?　What's with the Thunder Dragon? ...... Well, you too, Miss ......?"
+“Oh, sis! Huh? There’s a thunder dragon too... I see, so you’re also with sis...?”
 
 *『おお、姐さん！　ん？　なんやサンダードラゴンがおるのう……そうか、お前も姐さんに……？』*
 
 &nbsp;
 
-Kirigon comes down to the garden of the ritual hall, flapping his wings.
+Kiligon descends into the garden of the ritual hall while flapping its wings.
 
 *羽ばたきながら祭具殿の庭に下りてくるキリゴン。*
 
-Arthur and Kirigon looked at each other, communicated for a moment, then looked at each other like they were in trouble, both of them.
+Arthur and Kiligon exchange glances, momentarily understanding each other, both looking at each other with expressions of shared hardship.
 
 *アーサーとキリゴンが視線を交わし、一瞬何か通じ合い、お互い大変だなという目をした。２匹とも。*
 
 &nbsp;
 
-And Yohki is sitting down when Kirigon, the Black Dragon, comes down to the yard. He doesn't seem to be shitting himself.
+And at the moment Kiligon, the black dragon, lands in the garden, Youki-chan has fainted. It seems she didn’t wet herself.
 
 *そしてヨウキちゃんはブラックドラゴンのキリゴンが庭に下りてきた時点で、腰を抜かしている。漏らしてはいないようだ。*
 
 &nbsp;
 
-Come on, Dear!　It's the Black Dragon!"
+“Now, Dia-kun! It’s a black dragon!”
 
 *「さぁディア君！　ブラックドラゴンだよ！」*
 
-Oh!　Is that girl over there your girlfriend?　Yes!　Kirigon, I'll show you my belly and let you rummage around!　Please!
+“Oh! Is that girl your favorite, sis? Yo! Kiligon, show your belly and let me rub it!! Go ahead!!”
 
 *『お！　そっちの嬢ちゃんが姐さんのオキニっすか！　うっす！　キリゴン、腹ァ見せてゴロゴロさせてもらいやす！！　どうぞぉおーーーー！！』*
 
 &nbsp;
 
-The huge body of the Black Dragon lying on its side!　and the huge body of the black dragon lying down.
+With a thud, the massive body of the black dragon lies down.
 
 *ズデェーン！！　と横になるブラックドラゴンの巨体。*
 
-and the squeal sounded louder.
+Gyaoooon! Its roar echoed loudly.
 
 *ぎゃおーーーーん！　と鳴き声が大きく響いた。*
 
 &nbsp;
 
-'Wow, even the black dragons show their bellies in obedience before the princess! ...... Come on, pet her, Dear?"
+“Wow, even the black dragon shows its belly in submission before the princess! …Come on, pet it, Dia-kun?”
 
 *「わー、姫の前にはブラックドラゴンも腹を見せて服従だぁー！……ほら、撫でてあげてディア君？」*
 
-"......What the hell did you do, sister ......?"
+“...What on earth did you do, big sister...”
 
 *「……一体なにしたんです、お姉さん……」*
 
 &nbsp;
 
-Saying this in a somewhat dismayed tone, Dia-kun pats the black dragon's defenseless belly, which is armored enough to repel a lazy sword or an axe.
+Saying that with a somewhat exasperated tone, Dia-kun pets the black dragon’s defenseless—though its armor is enough to deflect a normal dull sword or axe—belly.
 
 *どこか呆れたようにそう言いつつ、ブラックドラゴンの無防備な――とはいえ、なまくらな剣や斧なら普通に弾く程度の装甲の――お腹を撫でるディア君。*
 
 &nbsp;
 
-I'm used to petting dragons!　You're used to petting dragons. ......　Technician ......
+“Oof! You’re used to petting dragons...! Technician...”
 
 *『おっふッ！　ドラゴン撫でるの慣れてやがる……ッ！　テクニシャン……』*
 
-Oh, I knew you'd like it here."
+“Oh, so this is the spot you like.”
 
 *「あ、やっぱりここがいいんですね」*
 
-Oh, no, no, no, no, no, Miss, this girl's in trouble!　Oh, such a reverse scale crunching!　I'm sorry honey ......!
+“Ah, ah, ah, oh no, ah, sis! This kid is amazing!? Ah, don’t scratch that reverse scale! I’m sorry, honey...!”
 
 *『あっあっあっ、ヤベッ、あ、姐さんッ、この子ヤベェぜ！？　あ、そんな逆鱗をカリカリとかッ！　ごめんよハニー……！』*
 
 &nbsp;
 
-Kirigon shakes his body pleasantly.
+Kiligon trembles with pleasure, shaking its body.
 
 *ビクンビクンと気持ちよさそうに体を震わせるキリゴン。*
 
 &nbsp;
 
-Seeing this, Yohki and the other members of the demon tribe,
+Seeing this, Youki-chan and the other oni tribe members are,
 
 *これを見て、ヨウキちゃん達鬼族の面々は、*
 
 &nbsp;
 
-"...... Oh, ...... taming the dragon!"
+“...Oh, you’re taming the dragon...!”
 
 *「……おお、ドラゴンを手懐けている……！」*
 
-That's my miko-sama!"
+“As expected of the miko princess!”
 
 *「さすが巫女姫様！」*
 
-The dragon jumped in to be petted himself!　That's the maiden beloved by dragons!"
+“The dragon jumped in to be petted! Truly, the miko loved by dragons!”
 
 *「ドラゴンが自ら撫でられに飛び込んできた！　さすが龍に愛される巫女！」*
 
 &nbsp;
 
-I was very impressed. You did it, right on target.
+They were very moved. Yay, just as planned.
 
 *と、とても感動していた。やったね狙い通り。*
 
@@ -226,13 +226,10 @@ I was very impressed. You did it, right on target.
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(candy and whip)
+(Candy and Whip)
 
 *（飴と鞭）*
-

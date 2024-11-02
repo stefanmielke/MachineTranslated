@@ -1,4 +1,4 @@
-# The Stomach of a Mighty Demon (Masilo's Perspective)
+# The Stomach of a Powerful Monster (Mashiro's Perspective)
 
 ## 強大な魔物の胃袋（マシロ視点）
 
@@ -8,153 +8,153 @@
 
 &nbsp;
 
-Well, maybe it doesn't make much sense, but it's my job. And watch."
+"Well, it might not mean much, but it's part of the job, you know? Keeping watch."
 
 *「ま、あんまり意味ないかもだけど一応仕事だしね。見張りも」*
 
-Oh, oh.
+"Y-yeah."
 
 *「お、おう」*
 
 &nbsp;
 
-With these words, Karina took Masilo to a place that might be the living room. Masilo sat on the couch that Kalina recommended.
+Saying that, Karina led Mashiro to what seemed to be the living room. Mashiro sat on the couch that Karina had suggested.
 
 *そう言ってカリーナはマシロをリビングであろう場所へ連れて行った。カリーナに勧められるがままに置かれていた長椅子に座るマシロ。*
 
 &nbsp;
 
-What a great idea, you can really carry your base in a backpack. ......
+"Wow, I can't believe you can really carry a base in a backpack..."
 
 *「なんつーか、ホントに拠点をリュックで持ち運べるんだな……」*
 
-'Oh, technically it's my magic, so the backpack is just free decoration.
+"Yeah, technically it's my magic, so the backpack is just for show."
 
 *「ああ、正確には私の魔法だからリュックはタダの飾りなんだけどね」*
 
-Oh, oh. I see."
+"O-oh, is that so?"
 
 *「お、おう。そうなのか」*
 
 &nbsp;
 
-Karina is sitting on the couch, and Masilo is looking at her, wondering what he should do with this. Then, someone came along.
+Mashiro, feeling a bit at a loss, wondered what to do while sitting next to Karina, who was relaxing on the couch. Just then, someone arrived.
 
 *同じく長椅子に座って寛ぐカリーナに、あれ、これどうしたらいいかなと手持無沙汰なマシロ。そこに、誰かがやってきた。*
 
-She was an elf girl in a pretty green dress.
+It was an elf girl wearing a cute green dress.
 
 *可愛らしい緑のワンピースを着た、エルフの少女だった。*
 
 &nbsp;
 
-Oh, is that a customer? You must be the beastly adventurer I mentioned the other day?"
+"Oh, is that a guest? You're the beastman adventurer we talked about the other day, right?"
 
 *「あれ、お客さんですか。先日言ってた獣人の冒険者さんですね？」*
 
-Oh, Dear, I'm back. My name is Masilo. Isn't he cute?
+"Ah, Dia, I'm back! This is Mashiro. Isn't she cute?"
 
 *「あ、ディア君ただいまー。うん、マシロさんっていうの。可愛いでしょ？」*
 
 &nbsp;
 
-Elves, who don't get out of the country very often, are quite rare.
+Elves, who rarely leave their country, are quite a rare sight.
 
 *国からあまり出ることのないエルフは、結構珍しい存在だ。*
 
-As he was introduced, Masilo bowed lightly and greeted him in passing.
+Since she was introduced, Mashiro gave a slight bow to greet her.
 
 *紹介されたので、マシロは一応軽く頭を下げて挨拶した。*
 
 &nbsp;
 
-'Cute or not, I'm Masilo, the adventurer. ...... Well, nice to meet you, missy."
+"Whether I'm cute or not is beside the point, I'm the adventurer Mashiro. ...Um, nice to meet you, young lady."
 
 *「可愛いかどうかはさておき、冒険者のマシロだ。……えーっと、よろしくな、嬢ちゃん」*
 
-Yes, I'm Dia. And I am a man.
+"Yes, I'm Dia. And I'm a boy."
 
 *「はい、ディアです。あとボクは男です」*
 
-Hmm?"
+"Huh?"
 
 *「ん？」*
 
 &nbsp;
 
-Mashiro tilted his head.
+Mashiro tilted her head.
 
 *マシロは首を傾げた。*
 
-If you look closely at ...... you can see that the skeleton does not look like a boy.
+...Looking closely, Dia's build could indeed be mistaken for a boy.
 
 *……よく見れば、骨格が少年のように見えなくもない。*
 
 &nbsp;
 
-My sister said, well, it's better this way.
+"My sister said that, um, this looks better."
 
 *「お姉さんが、その、こっちのほうが良いからって」*
 
-"Oh ...... Carina's. So, yeah, no choice. ......?"
+"Oh... Karina's. Well, I guess there's no helping it...?"
 
 *「ああ……カリーナの。じゃあ、うん、仕方ねぇな……？」*
 
-Yeah, well.
+"Yeah, well."
 
 *「ええ、まぁ」*
 
 &nbsp;
 
-Masilo has also been forced to leave his socks on the other day. I was convinced that it must be similar.
+Mashiro had also been made to wear socks since the other day. She understood that it was probably a similar situation.
 
 *マシロも先日から靴下を履きっぱなしにさせられている。似たようなものなのだろうな、と納得した。*
 
 &nbsp;
 
-I'm like, "Oh, no. Today is a day when you can dress either way, right?　But you chose to dress up as a girl, didn't you?
+"Eh, that's no good. Today is a day when you can wear either outfit, right? Yet Dia chose to dress like a girl!"
 
 *「え、やだなー。今日はどっちの格好でもいい日でしょ？　なのに女の子の格好を選んだのはディア君だよ？」*
 
-I'm not sure!　This one is more to your liking!
+"Th-that’s because! Th-this looks more like what my sister likes!"
 
 *「そ、それはその！　こ、コッチの方がお姉さんの好みなわけですし！」*
 
-Eh?　Hmmm, it does."
+"Really? Hmm, I guess that's true."
 
 *「えー？　うーん、それはそう」*
 
 &nbsp;
 
-Kalina hugged Dia as she said this. Dia, who was on the receiving end of the hug, looked slightly annoyed, but blushed happily.
+While saying that, Karina hugged Dia. Dia, who was being hugged, had a somewhat troubled expression, but his face turned red with happiness.
 
 *言いながら、ディアに抱き着くカリーナ。抱き着かれた側のディアは、やや困り顔で、しかし嬉しそうに顔を赤らめた。*
 
 &nbsp;
 
-You just moved in an instant, didn't you!"
+"Wait, you just moved in an instant!?"
 
 *「って、今一瞬で移動したな！？」*
 
-That's magic, too."
+"That's magic too."
 
 *「それも魔法だよ」*
 
-I'm not that familiar with magic. I'm glad you don't know that much about magic. We can start right now if you want."
+"I don't know much about magic, but that's amazing. Let's have a match sometime. I could even do it right now if you want."
 
 *「魔法はそんな詳しくねぇんだがすげぇな。今度手合わせしようぜ。なんなら今からでもいいけどよ」*
 
-I'm fine with that. But if I get serious, Mr. Masiello won't be able to help me, though!"
+"Sure. Just know that if I go all out, Mashiro-san won't stand a chance!"
 
 *「いいよ。ただ、私が本気出したらマシロさんは手も足も出ないけどね！」*
 
-...... that's true."
+"…That’s true."
 
 *「……それはそうだな」*
 
 &nbsp;
 
-Mashiro had Black Mantis cornered, and Kalina was easily able to finish it off. In the first place, it was hard to imagine Mashiro's attack being effective against the Black Mantis' scythe-crushing defense.
+After all, Mashiro was cornered by a Black Mantis, while Karina effortlessly took it down. She couldn't even imagine a scenario where her attacks would work against the defensive power that could shatter the Black Mantis's scythe.
 
 *なにせマシロが追い詰められたブラックマンティス、それを楽々と仕留めるカリーナだ。そもそもブラックマンティスの鎌を砕く防御力を前に、マシロの攻撃が通用する光景は想像すらできなかった。*
 
@@ -162,61 +162,61 @@ Mashiro had Black Mantis cornered, and Kalina was easily able to finish it off. 
 
 &nbsp;
 
-And. What do you want me to ...... do when you show me these secrets?"
+"So, you show me such a secret... what do you want me to do?"
 
 *「で。アタシにこんな秘密を見せて……何をさせようってんだ？」*
 
-Hmm?"　Let's see. You know, we're going to be working together for the next few days monitoring the core, right?"
+"Huh? Um, you see, we're going to be working together to monitor the core for the next few days, right?"
 
 *「ん？　えーっと。ほら、これから数日間一緒にコアの監視の仕事するじゃん？」*
 
-Ah."
+"Yeah."
 
 *「ああ」*
 
-"And yet you feel guilty about silently going back to your base and moping around on your own. ......
+"And it feels a bit guilty to just go back to the base and lounge around by myself..."
 
 *「なのに黙って自分だけ拠点に帰ってゴロゴロするの、罪悪感あるじゃん……」*
 
-"......"
+"…"
 
 *「……」*
 
 &nbsp;
 
-Mashiro pressed his hands to his temples.
+Mashiro pressed her hand against her temple.
 
 *マシロはこめかみを手で押さえた。*
 
-Guilt. Is that really the only reason why he revealed his secret?
+Guilt. Was that really the only reason she revealed her secret?
 
 *罪悪感。本当にそれだけの理由で、己の秘密をバラしたのだろうか。*
 
 &nbsp;
 
-If you want, we can make room for Mr. Masiello."
+"How about I make a room for you too?"
 
 *「なんならマシロさんの部屋も作る？」*
 
-"You want me to surround myself like that little elf ...... boy?　You want me to surround myself like that elf girl  boy?"
+"Are you suggesting we surround ourselves like that elf girl... boy?"
 
 *「アタシもそのエルフの嬢ちゃん……坊ちゃん？　みたく、囲おうってか？」*
 
-Hmm?"　That might be a good idea."
+"Huh? That might be nice in its own way."
 
 *「ん？　それはそれでいいかもしれないね」*
 
-What if Atashi tells the whole world about this or something?" ...... No, I can just turn it off."
+"What if I spill this secret? ...No, I guess I could just erase it."
 
 *「アタシがこのことバラしたりしたら、どうすんだよ。……いや、消せばいいだけか」*
 
 &nbsp;
 
-Mashiro felt like he had just stumbled into the stomach of a mighty demon.
+Mashiro felt as if she had come to the stomach of a powerful monster.
 
 *マシロは今更ながらに、強大な魔物の胃袋にのこのことやってきた気分になった。*
 
-If she wanted to, Carina could always make Masilo disappear or destroy his body.
+If she wanted to, Karina could easily erase Mashiro or dispose of her body.
 
 *その気になれば、カリーナはいつでもマシロを消すことも、死体を隠滅することもできるのだ。*
 
@@ -224,27 +224,27 @@ If she wanted to, Carina could always make Masilo disappear or destroy his body.
 
 &nbsp;
 
-I wouldn't do anything so dangerous. We are friends, aren't we?　We are!
+"I wouldn't do anything so dangerous. W-w-we're friends, right? Us!"
 
 *「そんな物騒なことしないよぅ。お、お、お友達でしょ？　私達っ！」*
 
-'Ah, yes. I'm glad you feel that way too, Karina."
+"Ah, yeah. I'm glad to hear you think that way too, Karina."
 
 *「あー、そうだな。カリーナもそう思ってくれてるなら嬉しいぜ」*
 
 &nbsp;
 
-For now, they are definitely not someone you want to antagonize. And if they are allies, they could not be more reliable.
+For now, it was clear that she didn't want to be an enemy. And if she was an ally, that was incredibly reassuring.
 
 *とりあえずは、敵対したくない相手であることは間違いない。そして、味方であるならこれ以上なく頼もしいことも。*
 
-Therefore, Masilo readily admitted that he and Karina were friends. In fact, even Masilo thought they were more than acquaintances.
+Thus, Mashiro readily acknowledged her friendship with Karina. In fact, she already thought they were more than just acquaintances.
 
 *故に、マシロはあっさりとカリーナと友達であることを認めた。実際マシロとしても既に知り合い以上であるとは思っていたし。*
 
 &nbsp;
 
-It's a secret to Karina that I slept with ...... and got miffed a lot, but it's also because I didn't really mind it.
+...They had slept together and had been cuddled a lot, but the fact that she didn't mind that was a secret from Karina.
 
 *……一緒に寝てモフられまくったが、それが別に嫌ではなかったというのも理由であることは、カリーナには秘密だ。*
 
@@ -252,13 +252,10 @@ It's a secret to Karina that I slept with ...... and got miffed a lot, but it's 
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(Updates have resumed, but the stock is almost nonexistent and the book adaptation process is not yet finished, so updates are in a pinch.)
+(Updates have resumed, but I have almost no stock, and the publication process is still not finished, so updates are in jeopardy.)
 
 *（更新再開しましたがストックはほぼないし書籍化作業はまだ終わってないので更新はピンチ）*
-

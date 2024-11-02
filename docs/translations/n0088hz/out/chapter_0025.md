@@ -1,11 +1,10 @@
-# The Failure of Karina, a Perfectly Beautiful Girl
+# The Perfect Beautiful Girl Karina's Mistake
 
 ## 完璧美少女カリーナちゃんの失敗
 
-(This year's fortune was good. Yoshi!)
+(This year's omikuji was good luck. Yoshi!)
 
 *（今年のおみくじは吉でした。ヨシ！）*
-
 
 ----------------
 
@@ -15,17 +14,17 @@
 
 &nbsp;
 
-Ah, it took me longer than I thought to get to the vault.
+Ah, it took more time than I expected, and I couldn't make it to the vault.
 
 *あー、思いのほか時間がかかって金庫までいけなかったよ。*
 
-I only had about 5 silver coins total in my wallet and it took a lot of work.
+I only had about five silver coins in my wallet, and it took a lot of effort.
 
 *お財布には合計銀貨５枚程度しかなかったし、手間もかかっちゃったわ。*
 
 &nbsp;
 
-Well, I've marked those guys, and if any of them try to run away without turning themselves in, I'll do a "one more time" as I declared and send them to jail again.
+Well, I've marked those guys, so if anyone tries to escape without turning themselves in, I'll declare a one more set and shove them back to the station again.
 
 *まぁ、あいつらマークしたし、自首しないで逃げだそうとしたやつがいたら宣言通りワンモアセッして再度詰め所に突き出してやろう。*
 
@@ -33,7 +32,7 @@ Well, I've marked those guys, and if any of them try to run away without turning
 
 &nbsp;
 
-Oh yeah, and when I was scaring those guys, I made it as bright as daylight, but that was actually sunlight.
+Oh right, when I was threatening those guys, I was brightening the place like it was daytime, but that was actually illuminated by sunlight.
 
 *そうそう、それとアイツらを脅してた時に昼間のように明るくしてたんだけど、あれは実際に太陽光で照らしていたんだ。*
 
@@ -43,21 +42,21 @@ The method is simple.
 
 *やり方は簡単。*
 
-Leave the spatial magic open to the sun during the daytime.
+Keep a spatial magic open towards the sun during the day.
 
 *昼間のうちに太陽に向けて空間魔法を開きっぱなしにする。*
 
-In this way, "sunlight" can be stored in spatial magic.
+By doing this, you can store "sunlight" in the spatial magic.
 
 *こうすることで、『太陽光』を空間魔法に収納することができるのだ。*
 
 &nbsp;
 
-Well, the spatial magic storage space can manipulate light, sound, and temperature at will, so I didn't need to use that. I only realized this a few days ago.
+Well, the storage space of spatial magic can freely manipulate light, sound, and temperature, so it wasn't necessary to do it that way. I just realized that a moment ago.
 
 *まぁ空間魔法の収納空間は光や音、温度は自在に操作できるので、そっち使えば不要だったんだけどね。気づいたのはつい先程だけど。*
 
-I thought it would be good for storage space room lighting: ......
+I thought it would be good lighting for the storage space room...
 
 *収納空間部屋の照明に良いかと思ったのに……*
 
@@ -65,11 +64,11 @@ I thought it would be good for storage space room lighting: ......
 
 &nbsp;
 
-Well, now I'm sleepy because I've been up all night, so let's go to the vault after a good night's sleep.
+Now, I'm sleepy since I stayed up all night, so I'll take a nap before heading to the vault.
 
 *さて、今は徹夜してしまって眠いので、ひと眠りしてから金庫に行くとしよう。*
 
-...... hmm? I think I'm forgetting something.
+...Huh? It feels like I'm forgetting something.
 
 *……ん？なんか忘れてるような。*
 
@@ -77,13 +76,13 @@ Well, now I'm sleepy because I've been up all night, so let's go to the vault af
 
 &nbsp;
 
-Oh, I haven't reported to my seniors.
+"Ah, I haven't reported to the seniors yet."
 
 *「あ、パイセン達に報告してねぇや」*
 
 &nbsp;
 
-I should at least report that I'm okay because I got help and I punished all the people who got involved. I've been up all night ...... and I'm sleepy, so I'll try to get a good night's sleep!
+Since they helped me out, I should at least report that I dealt with all the troublemakers. ...But I'm sleepy from staying up all night, so I'll take a nap first!
 
 *協力してもらったし、絡んでくる奴ら全員懲らしめたから大丈夫です報告くらいはしておかないとな。……徹夜しちゃって眠いから、ひと眠りしてから！*
 
@@ -95,149 +94,149 @@ I should at least report that I'm okay because I got help and I punished all the
 
 &nbsp;
 
-So I've been exterminating wallets."
+"So, I went and dealt with the wallet."
 
 *「というわけでお財布退治してきたんですよ」*
 
-I mean, you're looking at nothing but a wallet. ...... No, that's enough. So?"
+"Wait, do you only see it as a wallet...? Well, whatever. So what happened?"
 
 *「ってか、財布にしか見えてねぇのかお前……いやもういい。それで？」*
 
-I caught all the guys in my territory, and my wallet had about five silver coins in it. Too many fish!
+"I caught all the territory guys, and the contents of the wallet were about five silver coins in total. Too shabby!"
 
 *「縄張りのヤツ全部釣って、財布の中身は併せて銀貨５枚くらいだったわ。シケすぎ！」*
 
 &nbsp;
 
-Lumberjacks make far more money than this!
+With this, the lumberjack would definitely earn way more!
 
 *こんなんじゃ木こりの方が圧倒的に稼げるよ！*
 
 &nbsp;
 
-"If you're a bad guy, why don't you save up some more money?"
+"Is it like, if you're a bad guy, you should be hoarding more money?"
 
 *「悪人ならもっと金貯め込んでなさいよって感じ？」*
 
-They're going to get the money locally, and when they get it, they're going to go have a good time. They don't have a lot of money.
+"They probably get their play money locally, and once they get it, they rush off to have fun. They can't possibly have a lot of money."
 
 *「遊ぶ金は現地調達だろうし、手に入ったらさっさと遊びに行くのがあいつらだぞ。大金持ってるわけないだろ」*
 
-'If you ask me. Senior sage, huh?"
+"Now that you mention it. Are you a wise senior or what?"
 
 *「言われてみれば。先輩賢者かよ」*
 
 &nbsp;
 
-Well, I heard that everywhere was waiting for a rumor of a sucker holding 40 silver coins yesterday, right?
+Well, I heard there were rumors about a target with forty silver coins yesterday, and it seems like everyone was waiting for it.
 
 *まぁ、昨日は銀貨４０枚抱えてるカモの噂でどこもかしこも待ち受けてたらしいですけどね？*
 
 &nbsp;
 
-I'll see you later. So after this, I was thinking of going to the safe - no, not the safe. I'm thinking of going to the slavers after this. How about you join us, senpai?
+"Yeah, so after this, I was thinking of storming the vault—no, the slave trader. How about it, senior? Want to join me?"
 
 *「まーね。そんなわけでこの後で金庫――じゃなかった。奴隷商へとカチコミかけようかなって。どうです先輩もご一緒に」*
 
 &nbsp;
 
-When I said this in my best manner, Blade-senpai furrowed his brow as if he were looking at a disappointed child.
+When I said this proudly, Blade-senpai frowned as if looking at a disappointing child.
 
 *私が得意げにそう言うと、ブレイド先輩はまるで残念な子を見るように眉をひそめた。*
 
 &nbsp;
 
-What's with that face? I'm going to magically do things to you, too, senpai?"
+"What’s with that face? You’re going to use magic for this, right?"
 
 *「なんすかその顔は。先輩も魔法でアレコレしちゃいますよ？」*
 
-"Oh, I don't know, ...... I kind of knew it was you. ......
+"Ah, how should I put it... I kind of figured it was your doing, but..."
 
 *「あー、なんつーかなぁ……お前の仕業だったのはなんとなく分かってたんだけど……」*
 
-If you have something to say, please say it clearly!"
+"If you have something to say, just say it clearly!"
 
 *「言いたい事があるならハッキリ言ってくださいっす！」*
 
-...... that slaver, the military police are probably finished destroying him by now."
+"…That slave trader is probably being taken down by the military police right now."
 
 *「……その奴隷商、今頃憲兵が潰し終えてるぞ」*
 
 &nbsp;
 
-What, what's ...... and ......?
+Wha, what...?
 
 *な、なん……だと……？*
 
 &nbsp;
 
-Stop!　My money!　I can't allow you to hit me sideways!
+"Wait!? What about my money!? A side hit like that is unacceptable!"
 
 *「まって！？　私のお金は！？　横殴りとか許されざるよ！？」*
 
-That's the first thing that comes out of your mouth. ...... You turned those goons in."
+"The fact that you brought that up first says a lot... You made those punks turn themselves in, didn’t you?"
 
 *「最初にそれが出る辺りアレだなぁ……お前、チンピラ共を自首させただろ」*
 
-I made you do it, didn't I? What's the matter, senpai, this time you are early with the information.
+"I did. What’s up, senior? You’re quick on the uptake this time."
 
 *「させましたね。なんだ先輩、今回は情報早いっすね」*
 
-There's a filling station near my house. "There's a place near my house, and they were talking loudly, 'I'm a ________! I was talking so loudly, I could hear it.
+"There’s a station near our place. And I heard them loudly saying, 'I did ○○!' so I caught wind of it."
 
 *「ウチの近くに詰め処があるんだ。んで、大声で『俺は○○しましたぁッ！』って話してたから聞こえてきたんだよ」*
 
 &nbsp;
 
-I see, don't you?
+I see?
 
 *なるほどね？*
 
 &nbsp;
 
-The military police immediately went to the slaver based on that testimony. "Based on that testimony, the military police immediately went to the slavers, and they did so quickly so that their prey would not escape.
+"So, based on that testimony, the military police quickly headed to the slave trader. They made sure the prey wouldn’t escape."
 
 *「で、その証言を基に早速憲兵が奴隷商に向かってった。そりゃもう、獲物に逃げられないよう迅速にな」*
 
-"...... ah."
+"…Ah."
 
 *「……あー」*
 
 &nbsp;
 
-In other words, it seems that while I was sleeping, they took all the tasty bits away from me.
+In other words, it seems I lost out on the good stuff while I was sleeping.
 
 *つまり、私が寝てる隙に美味しい所を掻っ攫われてしまったらしい。*
 
-Hey, military police!　You work fast, damn it!
+Damn military police! They work fast, don’t they!?
 
 *おのれ憲兵！　仕事が速いじゃねぇかちくしょう！*
 
-It's my fault I fell asleep!
+It’s my fault for falling asleep!
 
 *私が寝ちゃったのが悪いんだけどさぁ！*
 
 &nbsp;
 
-Gusun, my safe oh ......"
+"Sniff, my vault..."
 
 *「ぐすん、私の金庫ぉ……」*
 
-Some of them probably needed to be rescued as soon as possible, so why not?"
+"Well, there were probably people who needed rescuing quickly, so it’s a good thing, right?"
 
 *「はやいとこ救出が必要な人もいただろうし、良かったんじゃねぇの？」*
 
-Damn right, Paisen is too good for them."
+"Damn it, senior, you’re too nice."
 
 *「くそう、パイセンが良い人すぎる」*
 
 &nbsp;
 
-Furthermore, it seems that the slaver's money was to be used to compensate the victims, so it is not possible to intercept it now.
+Moreover, it seems the money the slave trader had will be used for compensation to the victims, so it looks like I can’t just take it now.
 
 *尚、奴隷商の持ってた金は被害者への補償に使われるらしいので今更横取りするわけにもいかないようだ。*
 
-......It's going to be harder to take money from bad people in the future when I hear stories like that!　Mooo!
+...Hearing that makes it harder to steal money from bad guys in the future! Ugh!
 
 *……そんな話聞くと今後も悪人からお金を奪いにくくなるじゃないかぁ！　もー！*
 
@@ -245,49 +244,49 @@ Furthermore, it seems that the slaver's money was to be used to compensate the v
 
 &nbsp;
 
-I mean, seriously, how did they do that? They are supposed to be strong in their own way, but to scare them that much is unusual.
+"By the way, how did you do it? They should be relatively strong, but to scare them that much is unusual."
 
 *「つーか、マジどうやったんだよ。あいつらそれなりに強いはずなんだけど、あそこまで怯えさせるとか尋常じゃないぞ」*
 
-That's right, I'm just going to use my magic to do it.
+"Well, it’s just a bit of magic."
 
 *「そりゃー、魔法でチョイチョイっすよ」*
 
-I see. I wasn't worried about getting hit at all, but ...... magic is awesome."
+"I see. I wasn’t worried about being attacked at all... Magic is amazing."
 
 *「そっかー。やられる心配は一切してなかったけど……魔法ってすげぇなぁ」*
 
 &nbsp;
 
-Maybe I should study too?　I'll stop with the stones," spilled Blade-senpai.
+I wonder if I should try studying it too? Blade-senpai murmured, so I decided to stop him.
 
 *俺も勉強してみようかな？　とブレイド先輩が零したので、流石に止めておく。*
 
-My level would have to be loved by God to be able to do that!
+At my level, I’d need to be loved by the gods to manage that!
 
 *私レベルは神様に愛されでもしないと無理だろうからね！*
 
 &nbsp;
 
-I'm going to go give a report to God. Oh, I'll just take the bait on this one, please."
+"Well, I’ll go report to the gods. Oh, for this matter, please just consider me as bait."
 
 *「まー、ちょっと神様に報告でもしてきますわー。あ、この件私はただ餌になってただけって事で頼みますよ」*
 
-Well, there's no point in showing off your power for nothing. ...... Well, if you want money, you can always invite me to join the lumberjacks."
+"Yeah, there’s no point in showing off my strength unnecessarily... Well, if you want money, just invite me to be a lumberjack anytime."
 
 *「そうだなぁ、無駄に力見せびらかしても仕方ねぇし……ま、金が欲しけりゃいつでも木こりに誘ってくれ」*
 
-"inn
+"Got it."
 
 *「りょ」*
 
-"...... is that an acknowledgment?"
+"…Is that an understanding?"
 
 *「……それは了解ってことでいいのか？」*
 
 &nbsp;
 
-And so, after talking with Braid-senpai like this, I decided to go and report to God since it seemed that I no longer had a kakuchi plan.
+So, after talking with Blade-senpai like that, it seems the plan to storm was off, so I decided to go report to the gods.
 
 *と、そんなこんなブレイド先輩と話した結果、カチコミ予定が無くなったようなので神様に報告に行くことにした。*
 
@@ -295,17 +294,14 @@ And so, after talking with Braid-senpai like this, I decided to go and report to
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(Well, since I started under Favorite Llano 2022, I've put the URL below as a service to narrow down the search to "Onikage Spanner" and then to the point where you can tweet your vote. Please copy and paste it if you like (until 1/8).
+(Oh, by the way, since the "Favorite Light Novel 2022" has started, I've provided a URL for filtering with "Oni Kage Supana" until the voting tweet. Feel free to copy and paste it (until 1/8).
 
 *（そういや好きラノ2022下が始まったので、『鬼影スパナ』で絞り込んであと投票ツイートするまでのところまでのＵＲＬをサービスして以下におきました。よろしければコピペしてどうぞ（1/8まで）*
 
-(https://lightnovel.jp/best/2022_07-12/tw/?q=%E9%AC%BC%E5%BD%B1%E3%82%B9%E3%83%91%E3%83%8A )
+https://lightnovel.jp/best/2022_07-12/tw/?q=%E9%AC%BC%E5%BD%B1%E3%82%B9%E3%83%91%E3%83%8A)
 
 *https://lightnovel.jp/best/2022_07-12/tw/?q=%E9%AC%BC%E5%BD%B1%E3%82%B9%E3%83%91%E3%83%8A　）*
-

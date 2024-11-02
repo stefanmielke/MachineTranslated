@@ -1,4 +1,4 @@
-# All night long
+# After an All-Nighter
 
 ## 徹夜明け
 
@@ -10,33 +10,33 @@ The heights of magical tools are endless.
 
 &nbsp;
 
-But if I work very hard, I can kind of read it. Is this like I've learned the skill to create magical tools?　I'm a genius. Thanks to God.
+But if I really put in the effort, it seems like I could somehow read it. Does this mean I've somehow learned the skill to create magical tools? Wow, I'm a genius! Thanks to the gods, of course.
 
 *でも凄く頑張ればなんとなく読めそう。これって魔道具作成スキル覚えちゃった感じかなー？　いやぁ天才だな私。神様のおかげだけど。*
 
 &nbsp;
 
-I don't have any tools, so you can draw a magic circle on a piece of parchment and I'll draw it on the tree.　But I don't have any tools, so if you draw a magic circle on a piece of parchment, I'll draw it on the tree.
+"Hey, Dia, do you want to try making something too? Although, since we don't have any tools, if you could draw a magic circle on the parchment, I could paint it onto the wood."
 
 *「ディア君もなんか作ってみる？　といっても道具がないから、羊皮紙に魔法陣書いてくれたらそれを私が木に描き付ける感じになるけど」*
 
-I'd love to do it!"
+"I'd like to try!"
 
 *「やってみたいです！」*
 
-I've got parchment, ink, and pens at the pirate's house. Parchment, ink, and pens are at the pirate's house, so I can use them all I want."
+"Alright! We have unlimited access to parchment, ink, and pens at the pirate's house."
 
 *「よっしゃ。羊皮紙とインクとペンは海賊の家にあるから使い放題だ」*
 
 &nbsp;
 
-I just consume it to play, so I can duplicate it!
+Since we're just using it for fun, it's fine to make copies, right?
 
 *遊ぶために消費するだけだから、複製しちゃっていいよね！*
 
 &nbsp;
 
-And so we lost track of time and immersed ourselves in making magical tools.
+With that, we lost track of time and immersed ourselves in creating magical tools.
 
 *そんなこんなで、私たちは時間が経つのも忘れて魔道具作りに没頭した。*
 
@@ -48,115 +48,115 @@ And so we lost track of time and immersed ourselves in making magical tools.
 
 &nbsp;
 
-Sister Karina, next this, next that, please!"
+"Karina Onee-san, next this one, please!"
 
 *「カリーナお姉さん、次これ、次これお願いします！」*
 
-I said, "Oh, what's this? Was this in the magic book?"
+"Oh, what's this? Was this in the magic circle textbook?"
 
 *「おおっ、なんだこれ。こんな魔法陣教本にあった？」*
 
-I arranged it by combining multiple magic circles. With this, I think the light will spin around on the magic circle!"
+"I combined and arranged multiple magic circles. I think the light will swirl around on top of the magic circle!"
 
 *「複数の魔法陣を組み合わせてアレンジしてみました。これで、魔法陣の上を光がくるくる回ると思うんです！」*
 
-I'm so proud of you," he said!　Dear genius!　I'll get the output as soon as I can! ......, it's not working."
+"Awesome! Dia, you're a genius! Let's output it right away! … Huh, it's not moving."
 
 *「すげー！　ディア君天才！　早速出力だ！……あれ、動かない」*
 
-I'm sorry, I'm sorry, I'm sorry!　I'm sorry, the lines here are connected. ...... failure."
+"Ah! I'm sorry, the lines were connected here… what a failure."
 
 *「あっ！　すみません、ここ線が繋がっちゃってました……失敗だぁ」*
 
-I'll fix that part then. I moved ...... a little bit!　The light is spinning!
+"Then I'll just fix that part. A little bit… it moved! The light is swirling around!"
 
 *「じゃあそこだけ修正するね。ちょいちょいっと……動いた！　光がくるくる回ってるよ！」*
 
-Yay!"
+"We did it!"
 
 *「やったぁ！」*
 
 &nbsp;
 
-We hugged each other tightly after the success of the experiment. Immediately after that, Dia-kun turns red with embarrassment and leaves, saying, "Oh, I'm sorry, I'm sorry, I'm sorry, I'm sorry, I'm sorry. It's okay!　You're so cute, Dia-kun!
+We hugged tightly in celebration of our successful experiment. Right after, Dia-kun blushed and pulled away, saying, "Ah, s-sorry, Onee-san, I just…" It's fine! Dia-kun is cute!
 
 *実験の成功にがしっと抱き合う私達。その直後に「あっ、す、すみませんお姉さんつい」と照れて赤くなり離れるディア君。良いんだよ！　ディア君可愛いからね！*
 
 &nbsp;
 
-But it doesn't help if it just glows and spins."
+"But just swirling light isn't really useful, you know."
 
 *「でも、光って回るだけじゃ何の役にも立ちませんけどね」*
 
-No, no, no. If you use it well, you can make a clock or something, can't you?　You could adjust the speed at which it spins."
+"No, no. If we use it well, we could make a clock or something, right? By adjusting the rotation speed."
 
 *「いやいや。上手く使えば時計とかも作れるんじゃない？　回転する速度を調整してさ」*
 
-I see. But if you want to make it into a clock, the cost of the magic stone is a bottleneck. ......
+"I see. But if we're making a clock, the cost of the magic stone is a problem… ah."
 
 *「なるほど。ただ、時計にするなら魔石代がネックで……あっ」*
 
-Hmm?"
+"Huh?"
 
 *「ん？」*
 
-"...... Oh, sister!　Speaking of which, is it safe to say that I have time to meet with my sister!"
+"… O-Onee-san! By the way, is it okay to meet with my sister at this time!?"
 
 *「……お、お姉さん！　そういえば姉様と会う時間は大丈夫でしょうか！？」*
 
 &nbsp;
 
-Ha!　I looked outside the storage space and saw that it was past noon outside.
+Huh!? When I looked outside the storage space, it was already past noon.
 
 *ハッ！？　と収納空間の外を見れば、外はお昼過ぎ頃だった。*
 
-...... You've been up all night and now you're up all night!
+… We've been up all night and it's already daytime!!
 
 *……徹夜して一晩明けとるやないけーー！！*
 
-It's not morning, it's noon!
+It's not just morning; it's lunchtime!!
 
 *朝どころか昼になってますがな！！*
 
 &nbsp;
 
-And I didn't say specifically what time I was going to be there, okay, it's okay, right?　Aww.
+Well, we didn't specifically say what time to go, so it should be fine, right? Oh no.
 
 *と、特に何時に行くとか言ってなかったし、大丈夫、大丈夫だよね？　あわわわ。*
 
 &nbsp;
 
-I'm in a hurry, Deere!　I think your sister's probably here by now!"
+"I-I'll hurry, Dia-kun! I think your sister has probably already arrived!"
 
 *「い、急ぐよディア君！　多分もうディア君のお姉さん着いてると思う！」*
 
-Yes," she said, "you have ink on your face!"
+"Yes, but, Onee-san, you have ink on your face!"
 
 *「はい、って、お姉さん顔にインクついてますよ！」*
 
-Deer, you have ink on your hands and face, too!　Eeeeee, activate the ink-removal magic all together!
+"You have ink on your hands and face too, Dia-kun! Alright, ink removal magic, activate!!"
 
 *「ディア君も手や顔にインクついてるっ！　えーい、まとめてインク除去魔法発動！！」*
 
 &nbsp;
 
-I've been inking and outking all night, and now I can target and erase ink only!　Wahaha!
+After spending all night producing and removing ink, I can now specifically target just the ink! Hahaha!
 
 *一晩中インクを出したり消したりしてて、インクのみを対象に消せるようになったのだ！　わははー！*
 
 &nbsp;
 
-Okay!　Then I'm going!"
+"Alright! Let's go!"
 
 *「よし！　じゃあ行くよ！」*
 
-Yes!"
+"Yes!"
 
 *「はい！」*
 
 &nbsp;
 
-Dia you took my proffered hand.
+Dia-kun took my outstretched hand.
 
 *ディア君は私の差し出した手を取った。*
 
@@ -166,99 +166,98 @@ Dia you took my proffered hand.
 
 &nbsp;
 
-While using optical camouflage, I walk out in front of the lord's castle with a splash. Grandma Maria told me to come to the front next time, I remembered correctly!
+Using optical camouflage, we suddenly appeared in front of the lord's castle. I remembered what Maria-baa said about coming from the front!
 
 *光学迷彩と併用しつつ、ぱしゅん、と領主のお城の前に出る。マリア婆に次は正面から来るように言われてるの、ちゃんと覚えてたよ私！*
 
 &nbsp;
 
-I'm sorry!　I'm not Old Maria, I'm the one who was promised to the former Lord's wife!"
+"Excuse me! I am the one who had an appointment with Maria-baa—no, the former lord's wife!"
 
 *「すみませーん！　マリア婆――じゃなかった、前領主夫人様と約束してた者です！」*
 
-Hmm?　What's the matter with you?　I'm sorry, we've heard what you said. Someone will be with you shortly!"
+"Huh? Who are you—ah! I-I apologize, I've heard about you. Someone will come to guide you right away!"
 
 *「ん？　なんだお前――あ！　も、申し訳ありません、話は伺っております。すぐ案内の者が来ますので！」*
 
-Yes."
+"Okay!"
 
 *「はーい」*
 
 &nbsp;
 
-......Whew, it looks like I made it in time and Old Maria made sure to talk to the gatekeeper.
+… Phew, it seems we made it in time, and Maria-baa had properly informed the gatekeeper.
 
 *……ふぅー、どうやら間に合ったしマリア婆もちゃんと門番に話を通してくれていたようだ。*
 
 &nbsp;
 
-"You almost left my sister in the dust. ......
+"I almost left my sister behind…"
 
 *「危うく姉様のことをほったらかしにするところでしたね……」*
 
-I was having so much fun that I got carried away.
+"Yeah, it was so much fun that I got a bit carried away."
 
 *「いやぁ、楽しかったからついつい夢中になっちゃったよねー」*
 
 &nbsp;
 
-Me and Dia-kun laughing at each other. I know it must have been unbearable for Deer-kun's sister, who almost left me alone, but I forgive her.
+We laughed together, me and Dia-kun. It must have been quite frustrating for Dia-kun's sister to be left hanging, but well, forgive us.
 
 *あはは、と笑いあう私とディア君。ほったらかしにされかけたディア君のお姉さんからしたら堪ったもんじゃないだろうけど、まぁ許して。*
 
 &nbsp;
 
-By the way, I still have some ideas I'd like to try--"
+"By the way, I still have some ideas I want to try—"
 
 *「ところでまだ試したいアイディアがあって――」*
 
-"Oh. Then I also found a magic circle in the golem analysis..."
+"Oh. Then I also found a magic circle through analyzing a golem—"
 
 *「お。じゃあ私もゴーレムの解析で見つけた魔法陣をだねぇ――」*
 
 &nbsp;
 
-As I was talking with her, an old lady from Offro Friends came to guide me.
+As we were deep in conversation, an older lady from Offuro Friends came to guide us.
 
 *と、話し込んでいると、案内にオフロフレンズのオバちゃんがやってきた。*
 
 &nbsp;
 
-Kari!　I was afraid you wouldn't come!"
+"Karichan! I was worried you weren't coming!"
 
 *「カリちゃん！　来ないんじゃないかと思ってヒヤヒヤしたよ！」*
 
-I was playing around a bit and stayed up all night. I was playing around a bit and stayed up all night, and I just realized it a few minutes ago and hurried here. Now, let's hurry up and go see your sister!
+"Ahaha, sorry, Oba-chan. I got caught up in playing and stayed up all night, and just realized and rushed over. Now, let's hurry to see your sister!"
 
 *「あはは、ごめーんオバちゃん。ちょっと遊んでたら徹夜しちゃって、ついさっき気が付いて急いできたんだよぅ。さ、急いでお姉さんのところ行こうか！」*
 
-"...... Don't go too far at all. Hmm?　I'm not sure if it's a good idea or not, but it's a good idea. ...... Well, if she's with Kari, there's no reason to refuse her. Come on, this way.
+"… Seriously, take it easy. Huh? Is that child also an elf? … Well, if they're with Karichan, I have no reason to refuse. This way, please."
 
 *「……まったく程々にしなよ。ん？　その子もエルフかい。……まぁカリちゃんの連れなら拒む理由もないね。さ、こっちだよ」*
 
 &nbsp;
 
-Hmm?　I thought that the main thing this time was this Dear-kun ......, and when I looked at Dear-kun again, I found that, come to think of it, she was still in one piece.
+Huh? Isn't Dia-kun the main focus this time? When I looked at Dia-kun again, I realized he was still in a dress.
 
 *ん？　今回のメインはこのディア君なのでは……と思って、ディア君を改めて見ると、そういえばまだワンピースだった。*
 
-This is Deer-kun, and he doesn't even realize it, and Deer-kun forgets he's in one piece, too, doesn't he?
+They haven't noticed Dia-kun yet, and Dia-kun seems to have forgotten he was wearing a dress.
 
 *これ、ディア君って気付かれてないし、ディア君も自分がワンピースなの忘れてるな？*
 
 &nbsp;
 
-The plan I had in mind was to have Dear warm my socks just before I got here and then collect them while embarrassing me by forcing me to take them off. ......
+My plan was to have Dia-kun warm my socks until just before we got here, and then to embarrass him by forcibly taking them off to collect them…
 
 *私が考えてた予定では、ここに来る直前までディア君に靴下温めてもらって、それを強引に脱がすことで恥ずかしがらせつつ回収する予定だったんだけども……*
 
 &nbsp;
 
-...... funny, I'll shut up! (all-nighter)
+… But this is too interesting, so I'll keep quiet about it!! (After an all-nighter)
 
 *……面白いから黙っとこーっと！！（徹夜明け）*
 
 &nbsp;
 
 &nbsp;
-

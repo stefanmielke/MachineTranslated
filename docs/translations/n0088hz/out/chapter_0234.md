@@ -1,4 +1,4 @@
-# That's very convincing. ......!
+# It’s quite persuasive, isn’t it…!!
 
 ## 説得力ありますねぇ……！！
 
@@ -6,225 +6,224 @@
 
 &nbsp;
 
-I asked Dia to leave first for God's case, and I came to the church with Misha.
+Due to a divine matter, I had Dia-kun go home first, and I brought Misha to the church.
 
 *神様案件のためディア君には先に帰ってもらって、私はミーシャを連れて教会へとやってきた。*
 
 &nbsp;
 
-Hey, this is really unfashionable, Karina. It's really a church, isn't it?"
+“Hey, this isn’t a joke, is it, Karina? This is really a church, right?”
 
 *「おい、マジで洒落になってねぇにゃよカリーナ。ホントに教会じゃん？」*
 
-I told you so. Come on in, Misha. Hello, I'm here to deliver the goods.
+“I told you so. Come on in, Misha. Hello, I’m here for the delivery.”
 
 *「だからそう言ってんじゃん。ほら入るよミーシャ。ちわーっす、納品に来ましたー」*
 
-Yes, please come to the chapel.
+“Welcome to the chapel!”
 
 *「はーい、礼拝堂へどうぞー」*
 
 &nbsp;
 
-The lighthearted, bunny-eared siesta ushered me into the chapel.
+I was lightly guided by the bunny-eared Siesta into the chapel.
 
 *軽いノリでうさ耳シエスタに礼拝堂へと通される。*
 
 &nbsp;
 
-"...... Huh?　What?　What do I do?"
+“...Huh? Huh? What should I do?”
 
 *「……え？　え？　どうすればいいにゃ？」*
 
-"Just sit down and pray?"
+“For now, just sit down and pray?”
 
 *「とりあえず適当に座って、お祈り？」*
 
 &nbsp;
 
-I accompanied Misha in prayer, and it was God's domain.
+As I offered a prayer with Misha, it was indeed the realm of the gods.
 
 *ミーシャを伴って祈りをささげると、そこは神様の領域だった。*
 
-And there, waiting for him, was a woman who looked like a model for a goddess statue.
+And there, a woman who seemed to be the model for the deity statue was waiting.
 
 *そしてそこには、神像のモデルとなったような女性が待っていた。*
 
 &nbsp;
 
-"--We've been waiting for you, Miss Misha.
+“—I have been waiting for you, Misha-san.”
 
 *「――お待ちしていました、ミーシャさん」*
 
-"Neeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee!"
+“Nyah… G-g-g-goddess!?”
 
 *「にぇっ……か、かかか、神様ぁ！？」*
 
-Yes, I am God."
+“Yes, I am the goddess.”
 
 *「そうです私が神様です」*
 
 &nbsp;
 
-A woman smiling. ...... Oh, God (the real one) is sneaking around behind her a bit, manipulating her. It's a puppet. Is it ventriloquism?　He is very good at it.
+The woman smiled brightly. …Oh, the real goddess is secretly manipulating things from behind. This is a puppet. Is it ventriloquism? Impressive.
 
 *ニッコリ笑う女性。……あ、ちょっと後ろで神様（本物）がコソコソ操ってる。人形だこれ。腹話術っすか？　上手いっすね。*
 
 &nbsp;
 
-Misha, you may have a curse on you."
+“Misha, there is a possibility that you are under a curse.”
 
 *「ミーシャ、あなたには呪いが掛かっている可能性があります」*
 
-What?　Is that so?"
+“Eh!? Is that so!?”
 
 *「え！？　そうにゃんですか！？」*
 
-"That's why I called you here. Now, surrender yourself to me."
+“That’s why I called you here. Now, please entrust yourself to me.”
 
 *「なので、この場にお呼びしました。さぁ、私に身を委ねてください」*
 
 &nbsp;
 
-Obedient to God's words, Misha placed her belly on God's (doll's) thighs.
+Obeying the goddess’s words, Misha placed her stomach on the thighs of the goddess (the puppet).
 
 *神様の言葉に素直に従い、ミーシャは神様（人形）の太ももの上にお腹を乗せた。*
 
-Gently, God (the real one) stands on Misha's butt side.
+The real goddess quietly stood behind Misha.
 
 *そっと神様（本物）がミーシャの尻側に立つ。*
 
 &nbsp;
 
-Then I will palpate you. I will touch you, but please relax."
+“Now, I will perform a physical examination. I will touch you, so please relax.”
 
 *「では触診します。触りますが、リラックスしてくださいね」*
 
-Nyah, nyah."
+“Nyah, y-yes!”
 
 *「にゃ、ひゃいっ」*
 
 &nbsp;
 
-I am nervous and stumped. Well, that's usually what happens when you say God. ......
+She was tense and stiff. Well, it’s normal to feel that way when it comes to a goddess…
 
 *緊張でガッチガチである。まぁ神様って言ったら普通はそうなるよな……*
 
-At ......, God (the real one) was rubbing Misha's buttocks with his usual smirk on his face.
+…And then, the real goddess, with her usual smirk, began to knead Misha’s backside.
 
 *……で、神様（本物）はいつものにやけ面でミーシャの尻をおもむろに揉みしだいた。*
 
 &nbsp;
 
-Relax, relax, relax."
+“See, relax, relax.”
 
 *「ほら、リラックスリラックス」*
 
-Oh, nyah, nyah. ......"
+“Ah, nyah, nyahhh…”
 
 *「あ、にゃ、にゃぁぁ……」*
 
 &nbsp;
 
-Misha was melted in no time. She is a technician, isn't she?
+Misha was quickly melted into a puddle of bliss. What a technician.
 
 *あっというまにトロトロに溶かされるミーシャ。テクニシャンだなぁ。*
 
-I gently speak to God (the real one) with spatial magic.
+I quietly communicated with the real goddess using spatial magic.
 
 *私はそっと神様（本物）に空間魔法で語りかける。*
 
 &nbsp;
 
-"...... Um, God?　You didn't call Misha just to rub my butt, did you?"
+“...Um, goddess? You didn’t really call Misha here just to knead her backside, did you?”
 
 *「……あの、神様？　まさか尻を揉むためだけにミーシャ呼んだんですか？」*
 
-Yes, sir?"
+“Yes, I did.”
 
 *「そうですが？」*
 
-What about the curse?
+“What about the curse?”
 
 *「呪いは？」*
 
-There are possibilities, aren't there? The possibilities are always endless."
+“There is a possibility. The possibilities are always infinite.”
 
 *「可能性はありますね。可能性はいつだって無限大ですから」*
 
 &nbsp;
 
-You're lying!　I knew it.
+Is that a lie?! I knew it.
 
 *嘘かーい！　知ってた。*
 
 &nbsp;
 
-......I was wondering if you could tell me the secret of the buttocks that attracts me so much as a sock lover?"
+“...If I had to say, it’s because I wanted to know the secret behind the backside that attracts a sock-loving person like me?”
 
 *「……しいて言えば、靴下好きの私がここまで惹かれる尻の秘密を知りたくて？」*
 
-Misha, you're a stiff, God-pleasing ass.
+“Misha has a backside that truly pleases the goddess.”
 
 *「ガチで神を喜ばす尻じゃんミーシャ」*
 
-And I could tell by touching it directly. ...... this butt feels just like Mr. Chaos God!　Biyurifuu!　Maberasu!　Ekuren!
+“And I realized it by touching it directly. …This backside feels just like that of the Chaos God!! Beautiful! Marvelous! Excellent!!”
 
 *「そして直に触って分かりました。……このお尻、混沌神さんと同じ感じなのです！！　びゅーりふぉー！　まーべらす！　えくせれんッッ！！」*
 
 &nbsp;
 
-Seriously? You mean you have the same ass as the God of Chaos, Misha.
+Seriously? Misha has the same backside as the Chaos God?
 
 *マジかよ。混沌神と同じ尻の持ち主だというのか、ミーシャ。*
 
 &nbsp;
 
-I'm satisfied. I'll give you a special SP of 30."
+“Phew, I’m satisfied. I’ll give you a special 30 SP.”
 
 *「ふぅ、満足しました。特別にＳＰを３０あげましょう」*
 
-"Is that a ...... butt point!"
+“...Is that butt points?!”
 
 *「……尻ポイントですか！」*
 
-It's butt point!"
+“Indeed, it’s butt points!”
 
 *「尻ポイントです！」*
 
 &nbsp;
 
-God slaps Misha's ass! and God slaps Misha's butt. Pinyaaa!" Misha squeals.
+With a loud smack, the goddess hit Misha’s backside. “Pinyah!” Misha cried out.
 
 *ばちーん！とミーシャの尻を叩く神様。「ぴにゃあ！」とミーシャが鳴く。*
 
-And then you say, "If you slap Misha's ass ten more times, the curse will cease to exist," but the curse doesn't exist even if you don't slap her ten times, does it?　You just want to slap her.
+Then she said, “If I hit you ten more times, the curse on Misha-san’s backside will disappear,” but the curse wouldn’t exist even without hitting ten times, right? It’s just that she wants to hit it.
 
 *そんで「もう１０回たたけば、ミーシャさんの尻に呪いは存在しなくなります」とか言ってるけど、別に１０回たたかなくても呪いは存在しないよね？　叩きたいだけじゃん。*
 
-Misha is also Misha, "Oh, onegai shimasu nyaa!" you say.
+Misha, too, is saying, “P-please do it, nyah!!”
 
 *ミーシャもミーシャで「お、おねがいしますにゃあ！！」とか言ってんじゃん。*
 
 &nbsp;
 
-Hahah ...... easily fooled, super cute."
+“Ahhh… so easily deceived, super cute.”
 
 *「はぁぁぁ……すぐ騙される超かわいい」*
 
-If you tease him too much, he'll say he's going to stop believing again.
+“If you keep teasing her too much, she might say she’ll stop believing again, you know?”
 
 *「あんまりいぢめてるとまた信仰やめるとか言い出しますよ？」*
 
-I'm sure she'll be fine. Because it's Misha."
+“It’ll be fine. Because it’s Misha, after all.”
 
 *「大丈夫でしょう。だってミーシャですよ？」*
 
 &nbsp;
 
-That's very convincing. ......!
+It’s quite persuasive, isn’t it…!!
 
 *説得力ありますねぇ……！！*
 
 &nbsp;
-

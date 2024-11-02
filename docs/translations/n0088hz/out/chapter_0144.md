@@ -1,20 +1,20 @@
-# Are you doing this on a national level, Dwarves?
+# Are the Dwarves Doing This Nationwide?
 
 ## 国ぐるみでやってんのかドワーフ
 
 &nbsp;
 
-Well. So, having done our rounds in Carcassa - we decided to head to our next destination.
+Well then. With that said, we’ve done everything we needed to do in Calcas, and we’ve decided to head to our next destination.
 
 *さて。そんなこんなでカルカッサで一通りやることもやった訳だけど――私たちは次の目的地に向かうことにした。*
 
 &nbsp;
 
-To be precise, they have already left.
+To be precise, we have already set off.
 
 *正確には、既に旅立っている。*
 
-The "Healer" was escorting the core deep into the dungeon, but "Karina Shonin and her party" were supposed to be leaving town and heading to their next destination.
+The 'Healer' was guarding the core deep within the dungeon, but the 'Karina Shonin Party' is said to be heading to the next destination after leaving the town.
 
 *『ヒーラー』はダンジョンの奥でコアの護衛をしてたけど、『カリーナ・ショーニン御一行』は町を出て次の目的地に向かっていることになっているのだ。*
 
@@ -22,11 +22,11 @@ The "Healer" was escorting the core deep into the dungeon, but "Karina Shonin an
 
 &nbsp;
 
-And the next destination is the land of the dwarves - the home of Isiah and Satitan.
+And the next destination is the Dwarf Kingdom—Aisia and Sati-tan's hometown.
 
 *そして、次の目的地はドワーフの国――アイシアやサティたんの故郷である。*
 
-It all started with Isiah's memories.
+The trigger was Aisia's nostalgic story.
 
 *きっかけは、アイシアの思い出話だった。*
 
@@ -34,31 +34,31 @@ It all started with Isiah's memories.
 
 &nbsp;
 
-
+～・～・～・～・～
 
 *～・～・～・～・～*
 
 &nbsp;
 
-I have a very strange weapon in my hometown. There is a very strange weapon in my hometown.
+"By the way, my lord. There’s an incredibly strange weapon in my hometown."
 
 *「そういえばあるじ様。ウチの故郷にとんでもなくおかしい武器があるんですよ」*
 
-"Oh, yeah?　Like what?"
+"Oh? What kind?"
 
 *「へぇー？　どんな？」*
 
-It is a mallet that can destroy castle walls. However, it has no effect on anything other than the castle walls, and it can't damage the walls of your neighbors' houses or anything else.
+"It’s a hammer that can destroy castle walls. However, it has no effect on anything else, and it doesn’t leave a scratch on the fences of nearby houses."
 
 *「城壁を破壊できる槌です。ただし城壁以外には効果が無くて、ご近所の家の塀とかは一切傷がつかない代物なんです」*
 
-What's so funny?
+"What’s that? That’s weird."
 
 *「なにそれオカシイ」*
 
 &nbsp;
 
-
+～・～・～・～・～
 
 *～・～・～・～・～*
 
@@ -66,27 +66,27 @@ What's so funny?
 
 &nbsp;
 
-...... such a funny substitute is definitely a godsend!
+…Such a strange item is undoubtedly a divine artifact!
 
 *……そんなおかしな代物なんて、間違いなく神器である！*
 
 &nbsp;
 
-And unlike dungeons, they are not useful for life, like weapons that specialize in destroying castle walls.
+Moreover, unlike in dungeons, it’s a weapon specifically designed for destroying castle walls and is useless for daily life.
 
 *しかもダンジョンと違って生活の役に立たない、城壁破壊特化の武器とか。*
 
-It's like I'm asking you to collect this stuff. I will, I'm going to.
+It’s like they’re telling us to go retrieve it. Of course, we’re going to go.
 
 *こんなの回収しろって言ってるようなもんじゃん。するよ、しに行くよ。*
 
 &nbsp;
 
-With such light-heartedness, the decision was made to go to the Land of the Dwarves.
+With that light-hearted attitude, our trip to the Dwarf Kingdom was decided.
 
 *そんな軽いノリで、ドワーフの国行きが決定した。*
 
-I don't have anything else to prioritize. Just a good guideline. ...... Eh, socks?　That's the kind of thing I'm looking for, you see, the kind of thing that makes local encounters important. God must be looking for something like that.
+There’s nothing else that needs to be prioritized. It’s a perfect guideline. …Huh? Socks? Well, that’s because it’s important to cherish encounters when we get there. The gods must be seeking that kind of thing too.
 
 *他に優先的にするべきこともないしね。丁度いい指針だよ。……え、靴下？　それはほら、現地での出会いを大切にするやつだから。神様もきっとそういうの求めてる。*
 
@@ -94,15 +94,15 @@ I don't have anything else to prioritize. Just a good guideline. ...... Eh, sock
 
 &nbsp;
 
-Since we were going to the Dwarf country, we also discussed the possibility of reporting our survival to Isiah's parents' house.
+Since we’re going to the Dwarf Kingdom, we also thought about reporting our survival to Aisia’s family.
 
 *折角ドワーフの国に行くのでアイシアの実家に生存報告もしとこうかな、という話にもなった。*
 
-I'm sure Satitan won't do that kind of thing," said Isiah.
+Sati-tan probably wouldn’t do something like that, according to Aisia.
 
 *サティたんはきっとそういう事しないだろうし、とはアイシアの言である。*
 
-...... I agree. I'm definitely all about the elf drinks by now.
+… I think so too. Right now, she’s definitely preoccupied with elven liquor.
 
 *……私もそう思います。今頃は絶対エルフのお酒のことで頭一杯だよ。*
 
@@ -110,143 +110,143 @@ I'm sure Satitan won't do that kind of thing," said Isiah.
 
 &nbsp;
 
-I'm about to reach the border in a few days, so I'm going to go.
+"So, since it’s about time we should be nearing the border, is there anything we need to be careful about?"
 
 *「というわけで距離的にそろそろ国境に着いておかしくない日数になったから行こうと思うんだけど、なんか気をつけなきゃいけない事とかある？」*
 
-'Yes, a lot of booze would be appreciated.
+"Well, it’s better to have plenty of alcohol; that would make them happy."
 
 *「そうですね、お酒がいっぱいあったほうが喜ばれます」*
 
 &nbsp;
 
-Isiah replies. ......I guess I should have bought a few more drinks.
+Aisia answered like that. …Maybe I should have bought a bit more alcohol.
 
 *アイシアがそう答える。……もうちょいお酒買っとけば良かったかなぁ。*
 
-The only crawler liquor I bought as Karina Shonin was what Sati-tan made me buy.
+The crawler liquor I procured as Karina Shonin is only what Sati-tan made me buy.
 
 *カリーナ・ショーニンとして仕入れたクローラー酒は、サティたんに買わされた分しかないわ。*
 
 &nbsp;
 
-Hmm?　If you don't have enough liquor, I can get some for you.　I'll get some for myself."
+"Huh? If you’re short on alcohol, should I go buy some? Just as a side task for myself."
 
 *「ん？　酒が足りねぇならアタシが買って来てやろうか？　自分用のついでに」*
 
-I'll pay you for the drinks and the trouble.　Then I'll ask you sometime, and I'll pay for the drinks and the hassle."
+"Oh, is that okay? Then I might ask you to do that later; I’ll pay for the alcohol and the labor."
 
 *「あ、いいの？　じゃあそのうち頼もうかな、酒代と手間賃は払うから」*
 
-I don't care if it's just for drinks. Carina has taken good care of me.
+"I don’t mind just covering the alcohol cost. I owe Karina a lot."
 
 *「別に酒代だけで構わねぇよ。カリーナにゃ世話になってるしな」*
 
 &nbsp;
 
-You take a bath every day, don't you, Mr. Masiello? To the extent that changing the hot water is part of your daily routine.
+Masahiro-san takes a bath every day. It’s become a daily routine to change the water.
 
 *毎日お風呂入ってるもんなぁマシロさん。お湯の張替えが日課になる程度には。*
 
 &nbsp;
 
-Incidentally, you need a license to engage in large-scale commercial transactions, but it is perfectly acceptable to buy a little more alcohol for personal consumption and settle the bill among friends.
+By the way, while you need a license for large-scale trade, it’s perfectly fine to buy a bit more alcohol for personal consumption and settle it among friends.
 
 *ちなみに大々的に商取引するのは免許がなきゃダメだけど、個人消費用のお酒をちょっと多めに買って仲間内で清算する程度は全然アリなのだ。*
 
-When selling, it is OK to offer one or two bottles to an individual. It is a complete diversion, though.
+It’s also okay to sell one or two bottles to individuals. It’s completely off the books, though.
 
 *売る時も個人相手に１、２本程度を出すのはＯＫである。完全に横流しだけど。*
 
 &nbsp;
 
-Oh, it's all right. In the country I was in, dwarves don't need a license to sell or buy alcohol."
+"Oh, that’s fine. In the country I was in, dwarves don’t need a license to buy and sell alcohol."
 
 *「あ、大丈夫ですよ。私の居た国では、ドワーフがお酒を売り買いするのに免許はいらないんです」*
 
-What?　Really?"
+"Huh? Really?"
 
 *「え？　そうなの？」*
 
-"More precisely, by insisting to the merchant that 'this is not liquor, it is flavored water,' he is claiming that 'this is not a liquor trade.'
+"To be precise, they insist to merchants that 'this is not alcohol, it’s flavored water,' claiming that 'this is not an alcohol transaction.'"
 
 *「正確には、商人に対して『これはお酒ではない、味のついた水だ』と言い張ることで、『お酒の取引では無い』と主張しています」*
 
-That's ridiculous."
+"That’s ridiculous."
 
 *「んなバカな」*
 
 &nbsp;
 
-Are you a nation of dwarves with wheat juice, rice juice, or some other such cloak-and-dagger?
+Are the dwarves doing this nationwide with euphemisms like barley juice or rice juice?
 
 *麦ジュースとかお米ジュースとかそういう隠語を国ぐるみでやってんのかドワーフ。*
 
 &nbsp;
 
-' 'That's not water!' If you are told, the Dwarf way is to drink it like water to prove it's water and show it's water, no problem. If you drink it all safely, it's on the house of the person who pointed it out."
+"If someone says, 'That’s not water!' then the Dwarven way is to drink it like water to prove it’s water. If they manage to drink it all, it becomes the treat of the person who pointed it out."
 
 *「『それは水じゃないだろ！』言われたら、水だと証明するために水のように飲んで見せれば問題ないのがドワーフ流です。無事に飲み干せたら指摘した人の奢りになります」*
 
-"...... legal gov't, huh?"
+"…The laws are pretty lax, huh?"
 
 *「……法律ガバいな？」*
 
-Of course, it doesn't work outside the country, and I hear that a few dwarves a year are often punished and have their liquor confiscated near the border."
+"Of course, it doesn’t work outside the country, so a few dwarves get punished and have their alcohol confiscated near the border every year."
 
 *「もちろん国外では通用しないので、国境付近ではよく罰せられてお酒を没収されるドワーフが年に数人いるとか」*
 
 &nbsp;
 
-But in Dwarven lands, it seems to go over rather well.
+But it seems that this actually works quite well in the Dwarf Kingdom.
 
 *でもドワーフの国ではわりとそれで通じてしまうらしい。*
 
-I'm so gaga!
+How lax.
 
 *ガバいなぁー。*
 
 &nbsp;
 
-Sati said he got caught once in the past for this."
+"Sati said she got caught once because of this."
 
 *「サティもこれで昔１回捕まったと言ってました」*
 
-"Saty Tan Sah ......"
+"Sati-tan…"
 
 *「サティたんさぁ……」*
 
 &nbsp;
 
-I was taken aback.
+I couldn’t help but feel exasperated.
 
 *思わず呆れてしまった。*
 
-But I heard that he grew from there to becoming an apprentice to a liquor merchant, obtaining a license from him, and being given a liquor bag by his master.
+However, it seems she grew from that to becoming an apprentice to a liquor merchant, obtaining a license, and receiving a liquor bag from her master.
 
 *が、そこから酒商人に弟子入りからの免許取得、師匠から酒カバンを譲られるまでに成長したそうだけど。*
 
 &nbsp;
 
-The only way to treat it is as an alcoholic beverage, but other than that, it is generally treated as juice. It's loose."
+"Well, of course, things like fire liquor, which 'even dwarves can’t drink like water,' have to be treated as alcohol, but everything else is generally treated like juice. It’s very lenient."
 
 *「まぁ流石に火酒とかの『ドワーフでも水のようには飲み干せない』ものはお酒として扱うしかないわけですが、それ以外は大体ジュース扱いです。ゆるゆるです」*
 
-Fire wine, is that what they call it?"
+"Fire liquor, is that a thing?"
 
 *「火酒、そういうのもあるのか」*
 
-Carina, I would like to try some of that fire wine, too. If you get it, please sell me a bottle.
+"Karina, I want to try fire liquor too. If you get some, sell me a bottle."
 
 *「カリーナ、アタシも火酒飲んでみたい。手に入れたら一本売ってくれよ」*
 
-Okay, I'll sell it to you at cost."
+"Sure, I’ll sell it to you at cost."
 
 *「いいよー、原価で売ってあげる」*
 
 &nbsp;
 
-Also, I would like you to be careful at restaurants, because it seems to happen often that a drink is served instead of a glass of juice.
+Also, it seems that there are times when what you think is juice at restaurants turns out to be alcohol, so I hope Dia-kun will be careful.
 
 *尚、飯屋とかでもジュースと思ったら酒ということがちょいちょいあるようなので、ディア君には気を付けてほしい所存。*
 
@@ -256,17 +256,14 @@ Also, I would like you to be careful at restaurants, because it seems to happen 
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(Sorry, I haven't finished the book publication process yet. Sorry for the irregularity.
+(Sorry, I’m still not done with the book publication work. I apologize for the irregular updates.
 
 *（すまん、まだ書籍化作業終わってないんだ。不定期ですまん。*
 
-Also, I'm almost at the 20th level of 100 bonding with my master in one way or another on strike 6. (Sorry).
+Also, for Street Fighter 6, I’m almost at level 20 with a bond of 100 with my master. Sorry.)
 
 *あとスト６のほうはあと少しで一通り師匠との絆１００の２０段になりそうなんだ。すまん）*
-

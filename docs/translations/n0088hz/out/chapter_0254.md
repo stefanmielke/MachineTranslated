@@ -1,198 +1,197 @@
-# He was quite a talker.
+# He was quite a talker
 
 ## なかなか話せるヤツだったよ
 
 &nbsp;
 
-Apparently, the dragons are not demanding a sacrifice. So, we decided to negotiate with the dragons and ask them to go along with the farce.
+It seems that the dragons are not demanding sacrifices after all. So, I decided to negotiate with the dragons and have them play along with the charade.
 
 *どうにもドラゴン達が生贄を要求しているわけではないらしい。というわけで、ドラゴンと交渉を行い茶番に付き合ってもらうことにした。*
 
 &nbsp;
 
-So, I returned to the ritual hall after my preview.
+After finishing the reconnaissance, I returned to the ritual hall.
 
 *で、下見を終えて祭具殿に帰ってきた私。*
 
 &nbsp;
 
-So I went down to see him, and he was quite a talker, Arthur.
+"So, I went for a look, and he was quite a talker, Arthur."
 
 *「つーわけで下見行ってきたんだけど、なかなか話せるヤツだったよアーサー」*
 
-'Miss, that's not talking. ...... No, the female was a talker, wasn't she? I guess so.
+"Sis, that's not really what talking means... No, it was the female who could talk, right? That's right."
 
 *『姐さん、それは話すって言うか……いや雌の方は話せるヤツだったんすね。そうっすね』*
 
-What is it?　If you're not happy with my physical language, we can talk about it?"
+"What’s that? If you have complaints about my body language, I’m open to discussion, you know?"
 
 *「なんだね？　私の肉体言語に不満があるってんならお話してもいいんだよ？」*
 
-I'm not sure if it's a good idea or not, but it's a good idea! ......I feel a little sorry for Mr. Kirigon. ......
+"That’s exactly what I mean! …I do feel a bit sorry for Kirigon-san…"
 
 *『そういうとこっすよォ！……キリゴンさんにはちょっと同情っすわ……』*
 
 &nbsp;
 
-Oh dear," shrugs Arthur.
+Arthur shrugged his shoulders in exasperation.
 
 *やれやれ、と肩をすくめるアーサー。*
 
 &nbsp;
 
-So, are Dear and Misha still sleeping?"
+"So, are Dia-kun and Misha still asleep?"
 
 *「で、ディア君とミーシャはまだ寝てんの？」*
 
-I was tired of pretending to be asleep, so I acted like I had run out of medicine and woke up. I got tired of pretending to be asleep, so I acted like I woke up when the medicine ran out.
+"They're sound asleep. I got tired of pretending to be asleep, so I acted like I woke up when the medicine wore off."
 
 *『ぐっすりっすね。自分は寝てるフリ飽きたんで薬切れて起きた演技したっすけど』*
 
 &nbsp;
 
-Hmmm, then I might not be able to get up before the dragon couple arrives.
+Hmm, in that case, they might not wake up before the dragon couple arrives.
 
 *うーん、そうなるとドラゴンカップルが来る前に起きられないかもだなぁ。*
 
 &nbsp;
 
-Can't you just use your spatial magic to detoxify the body?"
+"Can’t you use your specialty spatial magic to quickly detoxify them?"
 
 *『姐さんの得意の空間魔法でパパッと解毒とかできないんすか？』*
 
-I don't know much about the ingredients of ...... medicine. I'll just do a stomach wash for now."
+"…I don’t really know the components of the medicine. For now, I’ll just do a stomach wash."
 
 *「……薬の成分とか良く分からないからなぁ。とりあえず胃洗浄だけしとくか」*
 
 &nbsp;
 
-With a snap of his fingers, the drug-laden digestive food disappeared from Dear's stomach.
+With a snap of my fingers, the food in Dia-kun's stomach that contained the medicine disappeared.
 
 *パチンと指を鳴らすとディア君の胃から薬を含んだ消化中の食べ物は消えた。*
 
-Misha?　It'll happen eventually.
+Misha? She’ll wake up eventually.
 
 *ミーシャ？　そのうち起きるよ。*
 
 &nbsp;
 
-And this worked, Deere woke up soon after that.
+And, whether it was effective or not, Dia-kun woke up shortly after.
 
 *と、これが効果があったのか、ディア君はそれからすぐ起きた。*
 
 &nbsp;
 
-"...... hmm, hey, good morning ......?"
+"…Hmm, oh, good morning…?"
 
 *「……んん、あれ、おはようございます……？」*
 
-Good morning, Dear. You must be hungry.　Want a sandwich?"
+"Good morning, Dia-kun. You must be hungry, right? Want a sandwich?"
 
 *「おはよディア君。お腹空いてるよね？　サンドイッチ食べる？」*
 
-"I'll take ....... Where am I?"
+"…Thank you. Where is this place?"
 
 *「……いただきます。ここどこですか？」*
 
 &nbsp;
 
-I explain to Mr. Dia that it's a ritual hall protected by a ward.
+I explained to Dia-kun that it was the ritual hall protected by a barrier.
 
 *私はディア君に結界に守られた祭具殿だと説明する。*
 
 &nbsp;
 
-What?　I have a boundary ...... boku that plays men?"
+"Eh? A barrier that repels men… but I’m here, right?"
 
 *「え？　男を弾く結界……ボクいるんですが？」*
 
-Dear, it looks like the wards didn't recognize you as a man!"
+"It seems Dia-kun wasn’t recognized as a man by the barrier!"
 
 *「ディア君は結界に男と認識されなかったみたいだね！」*
 
-Your sister did something to you."
+"Did you do something, big sister?"
 
 *「お姉さんが何かしたんですね」*
 
-I was so deceptive. I wrapped you in my warding and fooled you. It's a secret, okay?"
+"Yeah. I wrapped Dia-kun in my barrier to mislead them. It’s a secret, okay?"
 
 *「うん。ディア君を私の結界で包んで誤魔化した。ナイショだよ？」*
 
 &nbsp;
 
-I must say, Dear, your trust in me is very sincere.
+Really, Dia-kun has such strong trust in me.
 
 *まったく、ディア君の私への信頼が篤いぜ。*
 
-Since the judgment was made only at the boundary, no tricks to misrepresent the gender are used now.
+Also, the judgment only applied to the boundary area, so I’m not currently using any tricks to disguise gender.
 
 *尚、判定があるのは境界部分だけだったので今は性別を誤魔化す小細工はしていない。*
 
 &nbsp;
 
-I'm not sure what to think about that, Dia!　According to Miss Dia's investigation, it seems that the dragon was not the one who requested the sacrifice.
+"More importantly, Dia-kun! According to my investigation, it seems the dragons weren’t demanding sacrifices after all."
 
 *『そんなことよりディア君ちゃん！　姐さんの調査によると、どうにもドラゴンが生贄を要求してたんじゃないって話なんすよ』*
 
-'Oh, really, Arthur? If it is ......, that means its uncle or another scheme. A quick thought would be the slave trade."
+"Eh, is that so, Arthur? …Then it must be that uncle or perhaps another scheme at play. The first thing that comes to mind is slave trading."
 
 *「え、そうなのアーサー？……となると、その叔父か、あるいは別の企みということですね。パッと思いつくのでは奴隷売買でしょうか」*
 
 &nbsp;
 
-Oh, the slave trade. I see, it's possible ...... that they demanded a pure maiden while claiming to be a dragon sacrifice and shipped her off as a slave. If it was the men of the demon tribe who were in the forest?
+Oh, slave trading. Right, insisting on a dragon's sacrifice while demanding pure maidens to be shipped off as slaves… it’s a plausible story. Could it be the male ogres that were in the forest?
 
 *おお、奴隷売買。そっか、ドラゴンの生贄と言い張りつつ清らかな乙女を要求し、奴隷として出荷……あり得る話だ。もしや森に居た鬼族の男達が？*
 
-And Dia, you're really smart to deduce that in your sleep. I'm going to stroke you.
+And Dia-kun figuring that out right after waking up is really smart. Pat pat.
 
 *そしてディア君寝起きでそれ推理しちゃうとかホント頭いいな。なでなで。*
 
 &nbsp;
 
-Well, I'm going to have to play a little farce with you about that, too, so I'm sure something will turn up.
+"Well, regarding that, I’ve got a little charade planned, so I think something will come to light."
 
 *「まぁそれについても、ちょっと茶番付き合ってもらうことになったからさ、何かしら発覚すると思うよ」*
 
-A travesty, is it?"
+"A charade, you say?"
 
 *「茶番、ですか？」*
 
-'Of course, we'd like you to help us out, Deere, okay?'
+"Of course, I’d like Dia-kun to cooperate as well, is that okay?"
 
 *「もちろんディア君にも協力してもらいたいんだけど、いいよね？」*
 
-Yes, of course. That's fine, of course."
+"Yes. I don’t mind at all."
 
 *「はい。それは勿論構いませんが」*
 
 &nbsp;
 
-And I explain to Mr. Dear about the farce with the dragon.
+So, I explained to Dia-kun about the charade with the dragons.
 
 *と、私はディア君にドラゴンとの茶番について説明する。*
 
-It's a travesty really, but we plan to have Kirigon show his belly to Dia-kun and have her rummage around.
+It’s really a charade, but I plan to have Kirigon show his belly and roll around for Dia-kun.
 
 *ホント茶番なんだけども、キリゴンにはディア君にお腹を見せてゴロゴロしてもらう予定なのだ。*
 
 &nbsp;
 
-"...... Um, is that okay?　Well, you know, the pride of dragons aspect."
+"…Um, is that really okay? I mean, regarding the pride of the dragons."
 
 *「……えーっと、それでいいんですか？　その、ドラゴンのプライド的な面で」*
 
-He said yes!"
+"They said it was fine!"
 
 *「いいって言ってたよ！」*
 
-I'm sure Miss Dia won't let you complain, so you'll just have to do as I say!
+"Well, since Sis won’t let him complain, I think Dia-kun should just do as he’s told!"
 
 *『まぁ姐さんが文句言わせないんで、ディア君ちゃんは言う通りにしてくれればいいと思うっすよ！』*
 
 &nbsp;
 
-It's a good thing that dragons will listen to anything the winner says!
+Listening to the winner is one of the good things about dragons, right?
 
 *勝者の言うことはなんでも聞くのがドラゴンのいいところよねー。*
-

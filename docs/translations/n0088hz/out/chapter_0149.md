@@ -1,214 +1,211 @@
-# I'll crack on a bit.
+# A Little Crackle
 
 ## ちょっとパチパチする
 
 &nbsp;
 
-I see that ...... is the Knights of the Mobile Turtle. Oh, it's called Dodai Turtle?　It's a moving foundation. Wow, there is such a thing?
+……By the way, it's the Mobile Turtle Knight Corps, huh? Wait, is it called Dodai Turtle? It's literally a moving platform. Wow, I didn't know something like this existed.
 
 *……てか、機動亀騎士団なんだね。え、ドダイタートルっていうの？　まんま動く土台じゃん。すげーなこんなのも居るのか。*
 
 &nbsp;
 
-Anyway, if you asked me a question, I will answer it.
+Anyway, since I was asked a question, I guess I'll answer it.
 
 *ともかく質問されたのであれば答えてやるとしよう。*
 
-In addition, I would like to hide this somewhat hateful dragon as well.
+And I'll also hide this somehow endearing dragon.
 
 *ついでにこのどこか憎めないドラゴンも匿う方向で。*
 
 &nbsp;
 
-Uh-huh. Uh, this guy is my pet, what's up?"
+"Uh, well. This guy is my pet, is there a problem?"
 
 *「えぇーっと。あー、こいつは私のペットですが何か？」*
 
-Yes, I'm a pet!　It's a pet!　Rumble, rumble, rattle, rattle, rattle!
+"Yes! I'm a pet! Grrr, meow!"
 
 *『はい！　ペットっす！　ゴロゴロにゃーん！』*
 
-A dragon is a pet?　No, it is said that if a dragon is raised from an egg with care, it will be friendly to people. But judging from the way they are so friendly, it seems that they are not lying.
+"A, a dragon as a pet!? N-no, they say that a dragon raised carefully from an egg can become attached to people. Looking at how attached it is, it doesn't seem like a lie."
 
 *「ド、ドラゴンが、ペット！？　い、いや、卵から大事に育てたドラゴンであれば人に懐くともいう。この懐きっぷりを見るに、嘘ではなさそうだが」*
 
 &nbsp;
 
-Oh. Doesn't this guy have any dignity? He really spoils me like a cat.
+Oh. This guy has no dignity. It really is acting like a cat, clinging to me.
 
 *おう。コイツ尊厳とかないのか。本当に猫のように甘えてきやがる。*
 
-Hey reptile, your cold scales are getting cold. And a little crackle. Well, you're the Thunder Dragon, aren't you?
+Hey, reptile, your cold scales are tickling me. And it's crackling a bit. By the way, you are a Thunder Dragon, aren't you?
 
 *おい爬虫類、冷たい鱗がこしょばいぞ。あとちょっとパチパチする。そういやサンダードラゴンだったなお前。*
 
 &nbsp;
 
-The armed dwarf standing nioh to the turtle continues to talk with me, still somewhat alarmed.
+The armored dwarf standing like a guardian on the turtle continues to talk to me while still being somewhat wary.
 
 *亀に仁王立ちした武装ドワーフはまだどこか警戒を続けたまま私と話を続ける。*
 
 &nbsp;
 
-There are reports of a dragon that has been killing people around here," he said. The dragon seems to be docile, but it matches the sightings.
+"Actually, there's information about a dragon that killed people around here. That dragon seems calm, but it matches the eyewitness reports."
 
 *「実はこのあたりで人を殺害したドラゴンの情報があってな。そのドラゴン、おとなしいようだが目撃情報と一致するのだ」*
 
-Oh. Speaking of which, I punched a stray-looking dragon a while ago. It was in heat and attacked me. Here are the fangs it dropped.
+"Oh. Speaking of which, I just punched a stray-looking dragon earlier. It attacked me, probably because it was in heat. Look, this is the fang it dropped."
 
 *「あ。そういえばさっき野良っぽいドラゴンをぶん殴りましたねぇ。発情してたのか襲い掛かってきたんで。ほらこれ、そいつが落としていった牙です」*
 
 &nbsp;
 
-And I show him the fangs of this guy I had secretly duplicated earlier.
+With that, I show the fang of that dragon that I secretly duplicated earlier.
 
 *と、私は先ほどこっそり複製しておいたコイツの牙を見せる。*
 
-Huh?　Dragon fangs are a rare material. Of course we'll duplicate it just in case.
+Huh? Dragon fangs are rare materials. Of course, I decided to duplicate it just in case.
 
 *え？　ドラゴンの牙とかレア素材だよ。念のため複製するに決まってんじゃん。*
 
 &nbsp;
 
-MU!　This is definitely the fang of the Thunder Dragon!"
+"Mu!? Th-this is definitely a Thunder Dragon's fang!"
 
 *「む！？　こ、これは間違いなくサンダードラゴンの牙！」*
 
-It was as if I hit him and he came to his senses."
+"It seems like it regained its sanity after being punched."
 
 *「ぶん殴ったら正気を取り戻したかのようで」*
 
-"You punched a dragon?　You hit a dragon?
+"You punched it!? A dragon!?"
 
 *「ぶん殴った！？　ドラゴンをか！」*
 
-Yeah, well, I was surprised when the guy in the iguana car told me I was a dragon. Well, I was surprised when the guy in the iguana car told me it was a dragon. Oh, it ran away. Yeah, with a whiz. In that direction?　Didn't you see it?"
+"Yeah, well. I was surprised when the guy with the iguana car said it was a dragon. Oh, it ran away. Yeah, whoosh. Was it that way? I couldn't see it?"
 
 *「ええまぁ。いやぁ、イグアナ車の人にドラゴンだって言われたときはビックリでしたけどね。あ、逃げていきましたよ。ええ、ぴゅーっと。あっちの方向かな？　見えませんでした？」*
 
 &nbsp;
 
-I'm not lying, I left out the subject, but it was the iguana car that ran away, not the dragon. Yup. Is that a little confusing?　Sorry, I'm not good at Japanese. I'm not from this world.
+I'm not lying; I omitted the subject, but it was the iguana car that ran away, not the dragon. Yeah. A bit hard to understand? Sorry, I'm not good at my native language. I'm not from this world.
 
 *嘘は言ってないぞ、主語は省いたが、逃げて行ったのはドラゴンじゃなくてイグアナ車である。うん。ちょっと分かりにくい？　ごめんね、私国語苦手なの。この世界の人じゃないから。*
 
 &nbsp;
 
-I didn't see it, but surely these fangs are proof that there were other dragons besides that one. I am sorry for doubting you. If you want, you can provide me with the evidence.　Of course, I will pay you enough money.
+"I didn't see it, but this fang is certainly evidence that there were other dragons besides that one. I apologize for my suspicion. If you don't mind, could you provide that evidence? Of course, I'll pay a sufficient amount."
 
 *「見ていない、が、確かにこの牙はそのドラゴン以外にドラゴンがいた証拠だな。疑ってすまなかった。よければその証拠、提供してはくれまいか？　むろん十分な金は出す」*
 
-"If you're willing to buy it--uh, no. Go ahead, I'll give it to you."
+"If you're going to buy it—ah, no. Please, take it."
 
 *「買い取ってくれるなら――あー、いや。どうぞ、差し上げます」*
 
 &nbsp;
 
-I was going to sell it, but then I remembered that this was a reproduction.
+I was going to sell it, but then I remembered this was a duplicate and stopped myself.
 
 *売るつもりだったが、そういえばこれは複製品だったと思いとどまる。*
 
-I decided on my own that I would not sell reproductions, so this is not for sale.
+I decided not to sell duplicates, so I can't sell this.
 
 *複製品は売らない、と自分で決めたのだからこれは売れない。*
 
-Since we have no choice, as a bona fide member of the public, let's say they give us the evidence for free.
+Since I have no choice, I'll give it away for free as a kind-hearted ordinary person.
 
 *仕方がないので善意の一般人として、証拠品をタダでくれてやるとしよう。*
 
 &nbsp;
 
-Is ...... good?"
+"…Is that okay?"
 
 *「……良いのか？」*
 
-Yes, I can even pick them off my pets if I want.
+"Yes, if you want, I can also take it from my pet."
 
 *「ええ、なんならペットからも毟り獲れるんで」*
 
-'Gigya!　Miss!"
+"Gi-gya!? Sis!?"
 
 *『ギギャ！？　姐さん！？』*
 
-Oh, oh. ...... in moderation?"
+"O-oh. …Just a little, okay?"
 
 *「お、おう。……ほどほどにな？」*
 
 &nbsp;
 
-Don't worry, I'll fix it when I pick it up. ...... I can copy it without picking it up in the first place!
+It's fine, I'll heal it after I take it… I can actually copy it without taking it!
 
 *大丈夫だ、毟ったら治してやる……そもそも毟らずにコピーできるけどな！*
 
-And then he turned to me with a sharp look.
+And then, firmly facing me,
 
 *と、びしっと私に向かって*
 
 &nbsp;
 
-Thank you for providing this valuable evidence. May I ask your name?"
+"I appreciate the valuable evidence provided. May I ask your name?"
 
 *「貴重な証拠、提供感謝する。名前を伺ってもよいだろうか？」*
 
-I'm Carina, the peddler. I'm a peddler, Karina. ......　The guy who hit the dragon was a healer!　He's in the car right there!　But he's a difficult guy!　It's better not to face him!"
+"I'm Karina, the traveling merchant. …Ah! The one who punched the dragon is a healer! They're in that car over there! But they're a bit difficult, so it's better not to meet them!"
 
 *「行商人のカリーナです。……あ！　ドラゴンぶん殴ったのはヒーラーっていう奴で！　そこの車の中にいます！　が、気難しいやつなんで！　顔合わさないほうが良いんで！」*
 
 &nbsp;
 
-Yikes, I accidentally called myself that.
+Oh no, I accidentally introduced myself just like that.
 
 *やっべー、うっかりそのまんま名乗っちゃったよ。*
 
-It is the healers who do the outrageous things, not Kalina, the most beautiful girl in the universe.
+It's the healer who did something outrageous, not the universe's most beautiful girl, Karina-chan.
 
 *とんでもないことをしでかすのはヒーラーであって宇宙一美少女のカリーナちゃんではないのだ。*
 
 &nbsp;
 
-"...... got it. We will check to see if the dragon threat has passed. If you are heading to Rosetta, could you deliver the letter?　I'll pay for the delivery."
+"…Understood. We will check whether the threat of the dragon has been eliminated. If you're heading to Rosetta, could you deliver a letter? I'll pay for the delivery."
 
 *「……了解した。我々はドラゴンの脅威が去ったかどうかを確認するとしよう。ロゼッタへ向かうなら手紙を届けてはもらえまいか？　配達の代金は払う」*
 
-Uh, Rosetta, uh, yes, Rosetta. Rosetta, uh, yes, Rosetta. If you just keep going down the street."
+"Um. Rosetta, ah, yes, Rosetta. If you go straight along this road..."
 
 *「ええと。ロゼッタ、あー、はい、ロゼッタね。このまま道なりに行ったとこのなら」*
 
-He said, "Oh. Just give it to the gatekeeper."
+"Ah. Just hand it to the gatekeeper."
 
 *「ああ。門番に渡してくれればよい」*
 
 &nbsp;
 
-Oh, I thought it was the name of a town from the story, but it looks like a bingo. Good thing.
+Oh, I thought it was the name of a town from the flow of the conversation, but it seems I was right. I'm glad.
 
 *お、話の流れから町の名前だと思ったけどビンゴのようだ。よかったー。*
 
-Ha, I'll ask Isiah the name of the place later.
+Phew, I'll ask Aisia about the place names later.
 
 *はー、あとでアイシアに地名聞いとこ。*
 
 &nbsp;
 
-Miss, please tell them about the guy who put an aphrodisiac on you. If the dragon king blames you for the problem, you will be scolded by him.
+"Sis, please also mention the one who spiked my drink with aphrodisiac. If I'm blamed for the dragon's fault because of my own actions, I'll get scolded by the Dragon King."
 
 *『姐さん、自分に媚薬盛ったやつのことも言っといてくださいよ。自分のせいでドラゴンのせいにされたら竜王様に叱られるっす』*
 
 &nbsp;
 
-...... I don't have a choice. But Karina, you take good care of me, so I'll listen to this much.
+…I guess I have no choice. But since Karina-chan is caring, I'll listen to this much.
 
 *……仕方ないなー。でもカリーナちゃん面倒見がいいからこのくらいは聞いてあげよう。*
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(That being said, I've been wanting to write a new piece, but I just can't find the time to do it...!)
+(That said, I'm starting to want to write a new work, but I can't find the time to write…!)
 
 *（それはそうとして新作が書きたくなってきたりもしているのだけど、執筆時間がとれないんだよなぁ…！）*
-

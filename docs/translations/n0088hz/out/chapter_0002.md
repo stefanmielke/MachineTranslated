@@ -1,11 +1,10 @@
-# God said. 'This is a tutorial, okay?' (●Illustration Ali)
+# God said, "This is a tutorial, right?" (●Illustration included)
 
 ## 神は言った。「これはチュートリアルですよ？」(●挿絵アリ)
 
-（I started this site just to take a break. I'm glad to have you here.)
+(I started this as a break. Nice to meet you.)
 
 *（なんかこう、息抜きにはじめました。よろしく）*
-
 
 ----------------
 
@@ -13,31 +12,31 @@
 
 &nbsp;
 
-What is "I am the God of Chaos"?　What is this, "I am the God of Chaos"?　I'm the God of Chaos!　The real one is even better!
+"Ah ha ha ha!! What do you mean 'I am the God of Chaos'? Pathetic!!! The real deal is much more impressive!!!"
 
 *「あっはっはは！！　なーにが『我こそ混沌神だ』ですかぁ？　ざぁぁぁこ！！！　本物はもっと凄いんですからねぇぇええ！！！」*
 
-Heeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee!"
+"Hiieeeee!?"
 
 *「ひぃいいいいいい！？」*
 
 &nbsp;
 
-I said that, and I - I wasn't, I was ...... no, it wasn't like this.
+Saying that, I—no, I wasn't me, I was… no, it wasn't like that either.
 
 *そう言って、俺――じゃなかった、私は……いや、こうでもなかった。*
 
-The "real God" who is using my body is taking apart the old man who called himself the "God of Chaos" little by little, really little by little, like dismantling an object made of LEG○ blocks and putting it back together into blocks.
+The 'real god' using my body was slowly, really slowly, dismantling the old man who called himself the 'God of Chaos' as if breaking down a LEGO block structure and returning it to its original blocks.
 
 *私の身体を使っている『本物の神様』は、『混沌神』を名乗っていたジジイを少しずつ、本当に少しずつ、ＬＥＧ○ブロックで出来た物体を解体してブロックに戻すようにバラしていく。*
 
 &nbsp;
 
-It's not a metaphor. From the ends of the limbs, they are being crumbled into small blocks with no blood flowing at all. The right arm has already been completely disintegrated into pieces up to near the shoulder.
+It's not a metaphor. From the tips of his limbs, he was being crumbled into small blocks without a drop of blood flowing. His right arm was already completely shattered near the shoulder.
 
 *比喩ではない。手足の末端から、小さなブロックになって血が一切流れずに崩されているのだ。既に右腕は肩近くまで完全にバラバラに崩されている。*
 
-This must be the work of spatial magic given to me.
+This must be the spatial magic bestowed upon me.
 
 *これが、私に与えられた空間魔法の御業なのだろう。*
 
@@ -45,197 +44,197 @@ This must be the work of spatial magic given to me.
 
 &nbsp;
 
-The place is an opulent temple. The self-proclaimed god of chaos, who has no arms, is an old man wearing glittering ornaments. And I, a girl with straight black hair, a seemingly ordinary villager, am the one who torments the old man.
+The location was an extravagant temple. The self-proclaimed God of Chaos, now without arms, was an old man adorned with shiny decorations. And tormenting that old man was a seemingly ordinary villager, a girl with straight black hair—me.
 
 *場所は豪奢な神殿。腕がない自称混沌神はキンキラ輝く装飾品を身に着けたジジイ。そしてそのジジイをいたぶる一見ただの村人な黒髪ストレートの女の子、私。*
 
-The old man's eyes, which at first had gazed at my breasts with skeptical eyes, now reflected nothing but confusion and fright.
+The old man's eyes, which had initially been lewdly fixated on my chest, now reflected nothing but confusion and fear.
 
 *最初スケベな目で私の胸を注視していたジジイの瞳は、今や困惑と怯えしか映していない。*
 
 &nbsp;
 
-The old man tries to scramble up the skin-colored and red blocks scattered on the floor with his remaining left arm.
+The old man tried to gather the scattered flesh-colored and red blocks on the floor with his remaining left arm.
 
 *床に散らばる肌色と赤色のブロックを、残った左腕でかき集めようとするジジイ。*
 
-My leg kicked it so hard that I thought it was a soccer ball. It flew so lightly that I thought it was a soccer ball and hit a pillar of the temple. I screamed.
+But my leg mercilessly kicked him away. He flew as lightly as a soccer ball, crashing into a pillar of the temple with a "Gueh!" scream.
 
 *を、容赦なく私の脚がずどんと蹴り飛ばした。サッカーボールかと思うほどに軽々しく吹っ飛び、神殿の柱にぶつかって「ぐえっ！」と悲鳴を上げる。*
 
 &nbsp;
 
-"Hi, hi, hi, hi, who are you, no, save me!"
+"Hiya, hiiie, who are you, no, help!"
 
 *「ひぁ、ひぃいい、き、貴様、何者っ、いや、たすけっ」*
 
-"Look, look, if you call yourself the 'God of Chaos,' you can fix this easily, can't you?　Oh, you can't?　Ha-ha-ha!　Zaako!　Zaako!　Don't you dare to deceive my "God of Chaos" with that level of skill!　You will be punished by the gods!　Yes-doooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo!
+"Come on, come on, if you're calling yourself the 'God of Chaos', you should be able to fix this easily, right? Huh, you can't? Ah ha ha! Pathetic! Pathetic! Don't pretend to be my 'God of Chaos' with such a level of skill!? Divine punishment will befall you!! Here it comes!!"
 
 *「ほらほら、『混沌神』を名乗ってるんだったらこれくらい簡単に直せるでしょ？　え、できないの？　あははは！　ざーこ！　ざぁぁぁぁぁこ！　その程度で私の『混沌神』を騙らないでくださいねぇ！？　神罰が下っちゃいますよぉぉお！！　はいどーーーーーん！！」*
 
 &nbsp;
 
-A hearty sound of enjoyment comes out of my mouth. In addition, I surprised the old man by dropping the debris, which had been free-falling and accelerating by connecting the space above and below from a while ago, right next to him.
+A voice filled with genuine delight came from my mouth. I also dropped the rubble that had been continuously falling and accelerating in the vertical space right next to the old man to surprise him.
 
 *心底楽しそうな声が私の口から出てくる。ついでに先程から上下の空間をつなげて自由落下・加速させ続けていた瓦礫をジジイのすぐそばに落として驚かせてやった。*
 
 &nbsp;
 
-Geeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee!　Hiiiiiiiiiaaaaah!!!!"
+"Gyahhh! Hiiieeeaaah!!!"
 
 *「ぎゃぁあああ！　ひぃいいいああああ！！！」*
 
-Hahahaha!　See, you don't resist?　You may do so!"
+"Ah ha ha! Come on, aren't you going to resist? You can if you want!"
 
 *「あはははっ！　ほら、抵抗しないんですか？　してもいいですよー？」*
 
-"Huh, fireball!"
+"F-fireball!!"
 
 *「ふぁ、ファイアボールぅぅ！」*
 
 &nbsp;
 
-When the old man shouts this, a fireball comes flying. But it is blocked by an invisible wall that holds the space in place and does not reach him.
+As the old man shouted, a fireball came flying. However, it was blocked by an invisible wall that fixed the space, preventing it from reaching me.
 
 *ジジイがそう叫ぶと火の玉が飛んでくる。が、空間を固定した見えない壁に阻まれ届かない。*
 
 &nbsp;
 
-Well, it's no use."
+"W-waste of effort."
 
 *「ま、無駄ですけど」*
 
-Telekinesis! ...... Why, why doesn't it work aaaaah!"
+"Telekinesis! ...Why, why isn't it working!?"
 
 *「念動力ぅ！……なぜっ、なぜ効かんのだぁあああ！？」*
 
-Are you doing something?　Ha-ha-ha."
+"Are you trying something? Ah ha ha!"
 
 *「なんかしてますぅー？　あははっ」*
 
 &nbsp;
 
-And his own body is also fixed as his own, and he does not accept any external attack.
+And it seems he had fixed his own body as himself, so he didn't receive any external attacks at all.
 
 *そして自身の体も自分として固定してあるとかで、外部の攻撃を一切受け付けない。*
 
-This includes weight and other factors, so if you lift the debris in this state, you can lift it without feeling the weight, and if you cannot lift it, it is the debris that breaks.
+This includes weight, so if he tried to lift the rubble in this state, he wouldn't feel its weight, and if he couldn't lift it, it would be the rubble that broke.
 
 *これは重さ等も含まれるため、この状態で瓦礫を持ち上げれば重さを感じずに持ち上げることができるし、持ち上げられない場合に壊れるのは瓦礫の方。*
 
-Physical self-discipline. It's a vicious physical enhancement that is both offensive and defensive.
+Physically invulnerable. A terrifying body enhancement that combines offense and defense.
 
 *物理的唯我独尊。攻守兼ね備えた凶悪な身体強化だ。*
 
 &nbsp;
 
-My right hand swung quickly, and the old man's body, which was far away from me, parted at the torso with a snap. But this also did not draw blood.
+When my right hand swung smoothly, the old man's body, which was far away, was cleanly severed at the torso. But again, no blood came out.
 
 *私の右手がすっと振るわれると、離れたところにあったジジイの身体がスパッと胴体で分かれた。しかしこれもまた血が出ない。*
 
 &nbsp;
 
-I'm not sure what to do!　My body is ahhh......!"
+"Hiieee! My body is...!?"
 
 *「ひぃいい！　わ、我の身体がああああっ……！？」*
 
-Haha, it's okay, I haven't cut it yet because I'm still connecting the space. Well, I can always disconnect it, right?　Uh-huh."
+"Ah ha, it's okay, you're not cut because I'm still connecting the space. Well, I could cut you off anytime, though? Ufufu."
 
 *「あはは、大丈夫です、まだ空間を繋げてるので斬れてませんよ。まぁいつでも切断できるんですけどね？　うふふ」*
 
 &nbsp;
 
-With a snap of the fingers, the divided body returns to its original state.
+With a snap of my fingers, the severed body returned to its original state.
 
 *パチン、と指を鳴らすと分断されていた身体が元に戻る。*
 
 &nbsp;
 
-Somebody, somebody!
+"Someone, anyone!!"
 
 *「誰か、誰かぁーー！」*
 
-'No help is coming - we're in a spatial divide right now!　Oops, let's put the arms back on too. Duplicate, invert!　Combined!"
+"No help is coming! I'm currently dividing the space! Oh, let me restore your arm as well. Duplicate, reverse! Combine!"
 
 *「助けは来ませんよー、今は空間分断してるので！　おっと、腕も戻してあげましょう。複製、反転！　結合！」*
 
 &nbsp;
 
-With a clap of the hand, the old man's left arm was duplicated in the air where there was none, flipped and became the right arm. It was then attached in place of the right arm, which had been disassembled, in the form of a firm connection all the way down to the blood vessels and nerves.
+With a clap of my hands, the old man's left arm was duplicated in the empty air, reversed into a right arm. Then, it connected properly down to the blood vessels and nerves, attaching where the right arm had been disassembled.
 
 *パンッと手を叩くと、ジジイの左腕が何もなかった空中に複製され、反転して右腕になる。そして、血管や神経に至るまでしっかりと接続する形で、分解されていた右腕のかわりにくっついた。*
 
 &nbsp;
 
-Gosh, I'm really messing up my head. This seems to be quite a load.
+Ugh, my head is spinning. This seems to be quite taxing.
 
 *うごご、めっちゃ頭ぐちゃぐちゃする。これはかなり負荷があるようだ。*
 
 &nbsp;
 
-I'm sorry, are you all right?　It's just a tutorial, so I thought I'd try to use as many of my abilities as possible."
+"Oh, are you okay? Since this is a tutorial, I thought I should use as many abilities as possible."
 
 *「あ、大丈夫ですか？　一応チュートリアルなのでなるべく一通りの能力を使っておこうと思ったんですが」*
 
-Did you just say just in case, God?"
+"Did you just say 'just a tutorial', God?"
 
 *『今、一応って言いましたか神様？』*
 
-'Oh no, it's a perfect tutorial, right?'
+"Come on, it's perfectly a tutorial, okay?"
 
 *「やだなぁ、完璧にチュートリアルですよ？」*
 
 &nbsp;
 
-He responds with a chuckle as I chuckled to him as he rushed into my brain.
+I chuckled at my own internal monologue, and my self replied with a giggle.
 
 *脳内で突っ込みを入れた私に私がくすくすと笑いながら返事する。*
 
-There is no doubt about it.
+No denying that.
 
 *否やはない。*
 
 &nbsp;
 
-It's possible to duplicate and reproduce the body in this way to inflict as much pain as you want. Well, duplication uses a certain amount of MP, but now it's a tutorial, so it's an unlimited use service!　It's a tutorial!
+"By duplicating and regenerating the body like this, I can torment you as much as I want. Well, duplicating does use a fair amount of MP, but since this is a tutorial, it's unlimited service! Because it's a tutorial!!"
 
 *「こうやって身体を複製、再生すればいくらでも痛めつけることが可能なんです。まぁ複製はＭＰそれなりに使いますが、今はチュートリアルなので使い放題サービス！　チュートリアルなので！！」*
 
 &nbsp;
 
-Yes, this is just a tutorial to me by God.
+Yes, this is merely a tutorial from the god to me.
 
 *そう、これは、あくまでも神様による私へのチュートリアル。*
 
-It is never a sanction against an infidel who cheated the name of God's Koibito. ...... No, well, the self-proclaimed god of chaos is the rascally one I have to defeat. ......
+It is certainly not a punishment for an impudent fool who dared to impersonate the name of the god's lover... well, I guess the self-proclaimed God of Chaos is the final boss I need to defeat...
 
 *けっして、神様のコイビトの名前を騙った不届き者への制裁ではない……いやまぁ、私が倒すべきラスボス的なのが自称混沌神なんだけど……*
 
 &nbsp;
 
-'What was that about God not directly influencing the world: ......'
+"What was that about gods not being allowed to directly influence the world...?"
 
 *『神様は直接世界に影響を及ぼしてはいけないとはなんだったのか……』*
 
-'If you're going to explain how to use force in a tutorial, I don't blame you! ...... or did you not need an explanation?"
+"If it's to explain how to use power in a tutorial, it's unavoidable!! ...Or was the explanation unnecessary?"
 
 *「チュートリアルで力の使い方を説明するなら仕方ないよねっ！！……それとも、説明は不要でしたか？」*
 
-'No, sir!　I have no choice, sir!
+"No! It's unavoidable, sir!"
 
 *『いえ！　仕方ないであります、サー！』*
 
-I like honest girls. Oh, you can do this too, you know?"
+"I like honest kids. Oh, and I can do this too!"
 
 *「素直な子は好きですよ。あ、こんなこともできるんですよ？」*
 
 &nbsp;
 
-With a snap, he turned his hand as if twisting a faucet, and the arm of the self-proclaimed god of chaos was twisted and broken, ignoring perspective. Damn, what a cheat ability ......!
+Twisting my hand like turning a faucet, the self-proclaimed God of Chaos's arm was twisted and broken. Damn, what a cheat ability...!
 
 *くいっと蛇口を捻るように手を回すと、遠近を無視して自称混沌神の腕が捻り折られた。くそう、なんというチート能力……！*
 
-And when I thought I couldn't hear the old man's dirty screams from halfway through, this too was completely shut out by spatial magic to shut out the voices.
+And when I realized I couldn't hear the old man's filthy screams anymore, it was because I had completely shut out his voice with spatial magic.
 
 *そして、途中からジジイの汚い叫び声が聞こえないと思ったら、これも空間魔法で声を完全にシャットアウトしていた。*
 
@@ -243,17 +242,17 @@ And when I thought I couldn't hear the old man's dirty screams from halfway thro
 
 &nbsp;
 
-Then I'm going to start bleeding. It's a little grotesque from here."
+"Shall we finally allow some bloodshed? Things are going to get a bit gruesome from here on."
 
 *「じゃあそろそろ出血解禁しますか。ここからはちょっとグロいですよ」*
 
-Yuck."
+"Ugh."
 
 *『うぇっ』*
 
 &nbsp;
 
-And so, God took plenty of time to thoroughly destroy the old man, the self-proclaimed god of chaos.
+Thus, the god took plenty of time to thoroughly destroy the self-proclaimed God of Chaos.
 
 *そうして、神様はたっぷりじっくり時間をかけて、自称混沌神のジジイを徹底的に破壊した。*
 
@@ -267,7 +266,7 @@ And so, God took plenty of time to thoroughly destroy the old man, the self-proc
 
 &nbsp;
 
--- Now, let's recollect why this is happening.
+—Now, let's recall how this situation came to be.
 
 *――さて、どうしてこんなことになっているかを回想しよう。*
 
@@ -277,17 +276,17 @@ And so, God took plenty of time to thoroughly destroy the old man, the self-proc
 
 &nbsp;
 
-Originally I ...... was supposed to be an adult male living in Japan.
+Originally, I... was supposed to be an adult man living in Japan.
 
 *元々私……俺は、日本に住む成人男性だったはずなのだ。*
 
-It wasn't that I was hit by a truck, but I found myself in a world of gods.
+I wasn't hit by a truck from another world or anything; I just found myself in what seemed to be the divine realm.
 
 *それが、別に異世界トラックにはねられた訳でもなく気が付けば神界とやらにいた。*
 
 &nbsp;
 
-A white world. In front of me was a dark-haired, blonde-eyed girl smiling at me.
+A white world. In front of me stood a girl with black hair and golden eyes, smiling brightly.
 
 *白い世界。目の前には黒髪金目の少女がにっこり笑っていた。*
 
@@ -301,177 +300,177 @@ A white world. In front of me was a dark-haired, blonde-eyed girl smiling at me.
 
 &nbsp;
 
-Welcome!　Suddenly, you are transferred to a world under my control. ...... I'm going to create a new body for you, so you will be reincarnated?　Well, you're going to another world!
+"Welcome! Suddenly, I will transfer you to the world I manage... or rather, I guess it's reincarnation since I will be reconstructing your body! You will be going to another world!"
 
 *「ようこそ！　突然ですがあなたには私の管理する世界へと転移……身体を新造するので転生ですかね？　まぁ異世界へいってもらいます！」*
 
-'...... eh?"
+"…Huh?"
 
 *『……えっ？』*
 
-'Yes, now you have saved your life. Here's where I said, 'What are you doing all of a sudden?　It's an abduction!　Apologize!" and if you had disobeyed me, I would have erased you. Congratulations!　You chose your words better than the last guy!"
+"Yes, you just got lucky. If you had suddenly said, 'What are you doing! This is kidnapping! Apologize!' and resisted, I would have erased you. Congratulations! You chose your words better than the last person!"
 
 *「はい、今あなたは命拾いしました。ここで『いきなり何するんだ！　拉致だ！　謝れ！』とか言って逆らったら消してましたからね。おめでとう！　前の人より言葉選びが良かったね！」*
 
 &nbsp;
 
-A girl claps her hands, crackling.
+The girl clapped her hands.
 
 *パチパチパチ、と手を叩く少女。*
 
-...... I heard the guy before me was erased.
+...It seems the last person was erased.
 
 *……俺の前の人は消されたらしい。*
 
 &nbsp;
 
-Let me give you the power. And there's something I need you to do."
+"I will grant you power. And I have something I want you to do."
 
 *「あなたに力を授けましょう。そして、やってもらいたい事があるんです」*
 
-Yes.
+"Y-yes."
 
 *『は、はい』*
 
-You may be honest. Oh, I am the space-time god. I am a god. A real one, you know."
+"Good, you're obedient. Oh, I am the God of Time and Space. A real god, you know."
 
 *「素直でよろしい。あ、私は時空神。神様です。本物の、ね」*
 
 &nbsp;
 
-Then God continues his explanation.
+Saying that, the god continued explaining.
 
 *そう言って神様は説明を続ける。*
 
 &nbsp;
 
-There is a fool who calls himself 'God' in the world we are sending you to, and you must defeat him."
+"There is a fool in the world I'm sending you to who calls himself a 'god', so please defeat him."
 
 *「送り込む世界の中に『神』を名乗るバカがいるので、倒してください」*
 
-'...... God, is it?"
+"…A god, huh?"
 
 *『……神、ですか？』*
 
-I call myself a god. I've been neglecting it for a while and it grew back, so I thought I'd show you the power of a real god. But I can't do it directly, so I have to prepare a reincarnated person.
+"A self-proclaimed god. He sprouted while I was neglecting things for a bit, so I thought I would show him the power of a real god. However, due to certain restrictions, I need to prepare a reincarnator like you."
 
 *「自称神です。ちょっと放置してる間に生えてたので、本物の神の力を見せてシメとこうかと。ただ、直にはできない制約なんで、こうして転生者を用意する必要があるんですね」*
 
 &nbsp;
 
-I heard that it is possible for God to make someone else do it, not directly, but with the help of someone else.
+It seems it's permissible for the god to lend power to someone rather than act directly.
 
 *神様が直接でなく、誰かに力を貸してやらせるのはアリだそうな。*
 
-I see, it is a God-like constraint. So, God in that world must really be self-proclaimed.
+I see, a typical god-like restriction. That means the god in that world is indeed a self-proclaimed one.
 
 *なるほど、神様らしい制約だ。ということは、その世界の中にいる神様は本当に自称なのだろう。*
 
 &nbsp;
 
-The reward is a life of freedom in this world. Use the power we have given you to become a merchant, a hero, or enjoy the pleasures of the world as you please."
+"The reward is a free life in this world. Feel free to engage in trade, become a hero, or indulge in pleasures with the power granted to you."
 
 *「報酬は、この世界での自由な生活。与えた力で商人するなり英雄になるなり享楽を貪るなりご自由にどうぞ」*
 
-'Um, ...... is that okay?　What can I do?"
+"Um... is that really okay? Can I do anything?"
 
 *『えっと……いいんですか？　何しても？』*
 
-You can call yourself God if you want, but being my apostle makes you the equivalent of a lower god."
+"You can even call yourself a god if you want; being my apostle would make you equivalent to a lower god."
 
 *「なんなら神様を自称してもいいですよ、私の使徒ってことで下級神相当にはなりますし」*
 
 &nbsp;
 
-Even though the target is not supposed to be named?　He nods his head.
+Isn't it forbidden to name the target? I tilted my head.
 
 *ターゲットは名乗ってはダメなのに？　と首をかしげる。*
 
 &nbsp;
 
-No, it's fine to call yourself a god. It's just that there is one whose name I can't overlook for a moment."
+"No, it's fine to call yourself a god. However, there is one name I can't overlook."
 
 *「いや、神様を名乗ること自体はいいんですよ。ただちょっと見過ごせない名前のが１匹いまして」*
 
-'Huh, uh, let's see. So, that can't-be-overlooked thing is...'
+"Huh, um, so what is this name I can't overlook?"
 
 *『はぁ、えっと。それでその見過ごせないのとやらは』*
 
-Yes. The God of Chaos!"
+"Yes. 'God of Chaos'!"
 
 *「はい。『混沌神』です！」*
 
 &nbsp;
 
-That name seems to be the NG word for the god in front of me.
+That name seems to be a no-go word for the god in front of me.
 
 *その名前が、目の前の神様のＮＧワードらしい。*
 
 &nbsp;
 
-"So you're saying, 'We have to find this god of chaos and defeat him.
+"So I just need to find and defeat this God of Chaos, right?"
 
 *『その混沌神ってのを探して倒せばいい、ということですね』*
 
-'I like that you understand so quickly. That's what I mean. ...... more, I've got a body."
+"You're quick to understand. That's exactly it. ...Oh, the body is ready."
 
 *「理解が早くていいですね。そういうことです。……っと、身体ができましたよ」*
 
 &nbsp;
 
-And when God snapped his fingers, there stood a woman who looked like she was about 18 years old, the God in front of him. She has straight black hair, dark eyes, and round eyes that give her a slightly plain look, but upon closer inspection she is a cute type of girl. She also has quite a few breasts.
+As the god snapped her fingers, a woman who looked about 18 years old, resembling the god in front of me, stood there. She had straight black hair, dark eyes, and a slightly plain but cute appearance. She also had quite a chest.
 
 *と、神様が指を鳴らすと、そこには目の前の神様を１８歳くらいにしたような雰囲気の女性が立っていた。黒髪ストレート、黒目で丸っこい目は少し地味な印象があるが、よく見ると可愛いタイプの女の子だ。胸も結構ある。*
 
 &nbsp;
 
-I'm a guy, you know?"
+"Wait, I'm a man, though?"
 
 *『って、俺、男なんですけど？』*
 
-My taste--gasp. For the convenience of giving you power, it's easier to do it if you look like me."
+"My preference—cough. For the sake of granting you power, it's easier to make you resemble me."
 
 *「私の趣味――げふん。力を与える都合で、私に似せた方がやりやすいんですよ」*
 
-You just said it was a hobby!"
+"I swear you just said 'preference'!?"
 
 *『今趣味って言ったよね！？』*
 
-If you have a problem with it, I'll turn it off. It's true that it's easy to do. Oh, and since it's going to be your body, you can rub my boobs and do even more amazing things with it, right?　Right?
+"If you have complaints, I'll erase you. It's true that it's easier this way. Oh, since it's going to be your body, you can grope my breasts and do even more amazing things, okay? Right?"
 
 *「文句があるなら消しますよ。やりやすいのは本当ですし。ああ、貴方の体になるからおっぱい揉んだりもっとすごい事しても良いんですよ？　ね？」*
 
 &nbsp;
 
-I shut up. In that case, it would be me, not my body, that would be erased.
+I fell silent. In that case, it would be me, not my body, that would be erased.
 
 *俺は黙る。その場合消されるのは身体ではなく俺の方だろうから。*
 
-I wasn't attracted by the unlimited titty rubbing.
+I wasn't particularly drawn to the idea of groping breasts.
 
 *別におっぱい揉み放題に惹かれたわけではない。*
 
 &nbsp;
 
-I'll give you spatial magic, basic knowledge, and a talent that will make it easier for you to learn skills in the service."
+"Now, I will grant you spatial magic, basic knowledge, and a talent that makes it easier to acquire skills as a bonus."
 
 *「では空間魔法と、基本的知識と、サービスでスキルを習得しやすくなる才能を付与しておきますね」*
 
-Oh, thank you."
+"Ah, thank you."
 
 *『あ、ありがとうございます』*
 
-And as a further service, I'll show you how I actually use my powers on that body as a tutorial. In honor of your unused partner, this is a first-time-only offer, okay?"
+"And as an additional service, I will demonstrate how to use my power in this body as a tutorial. This is a limited-time offer for your unused partner, you know?"
 
 *「そしてさらにサービスで、チュートリアルとしてその身体で私が力を実際に使って見せてあげましょう。あなたの未使用だった相棒に免じて初回限定ですよ？」*
 
-I'm not a virgin! --I'm not a virgin! Yes, please.
+"Wh-what, I'm not a virgin!—cough. Yes, nice to meet you."
 
 *『ど、どどど童貞ちゃうわ！――げふん。はい、よろしくお願いします』*
 
 &nbsp;
 
-Thus, I became me and descended into another world.
+Thus, I became 'me' and descended into another world.
 
 *かくして、俺は私になり、異世界へと降り立った。*
 
@@ -479,11 +478,11 @@ Thus, I became me and descended into another world.
 
 &nbsp;
 
-Now, our tutorial partner is the "God of Chaos". I'm off!
+"Now, the tutorial opponent is the 'God of Chaos'. Here we go♪"
 
 *「では、チュートリアルの相手は『混沌神』です。いっきまっすよー♪」*
 
-"Eh."
+"Huh?"
 
 *『えっ』*
 
@@ -499,13 +498,10 @@ Thus, we return to the beginning.
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-（God is so great, He doesn't care what you do.)
+(The god is great, so you can do anything, okay?)
 
 *（神様はえらいので、なにしてもいいんですよ？）*
-

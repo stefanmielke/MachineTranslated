@@ -4,109 +4,109 @@
 
 &nbsp;
 
-He said he would retrieve a sock from someone he knew when he returned to the ground from the dungeon, and we exchanged contact information.
+After returning to the surface from the dungeon, I was told that they would retrieve a friend's sock for me, so we exchanged contact information.
 
 *ダンジョンから地上に戻ったら知り合いの靴下を回収してくれるとのことで、連絡先を交換することになった。*
 
-However, I can't give out my identity as an E-rank adventurer or a new merchant. Because I am now a great magician, Karina-chan. I have no choice but to use spatial magic.
+That said, I can't exactly show my ID as an E-rank adventurer or a rookie merchant. Right now, I'm the great mage Karina. So, I decided to use spatial magic.
 
 *とはいえ、Ｅランク冒険者や新人商人としての身分証は流石に出せない。今の私は大魔法使いカリーナちゃんなので。仕方ないので、空間魔法を使うことにした。*
 
 &nbsp;
 
-I picked up some stones from around there and processed them into the shape of a gradient ball. A little bit of spatial magic is applied by inserting a leather string through the hole, and the pendant, which looks like a communication device, is completed.
+I picked up a stone nearby and shaped it into a magatama. I threaded a leather cord through the hole and cast spatial magic on it, completing a communication pendant.
 
 *そこら辺の石を拾って、じゃりっと勾玉の形に加工。穴に革ひもを通して空間魔法をちょちょいとかけまして、通信機なペンダントの完成だ。*
 
 &nbsp;
 
-Here you go. This stone is a communicator, so if you talk to it, it will fly away."
+"Here you go. This stone is the communication device, so if you talk to it, it'll reach me."
 
 *「はいこれ。この石が通信機になってるから、これに話しかけてくれれば飛んでくよ」*
 
-Tushinki?"
+"Communication device?"
 
 *「ツーシンキ？」*
 
 &nbsp;
 
-Oh, that's where you're coming from.
+Ah, that's where it comes from.
 
 *あ、そこからか。*
 
 &nbsp;
 
-You know that thing where you use wind magic to send your voice to a place far away?　It's like that. Try talking to me. I'll adjust the volume, but please keep it low, and I'll cut out loud noises.
+"See, there's wind magic that carries your voice over distances, right? It's like that; your voice will reach me. Try talking to it. I'll adjust it, so please speak softly. Loud sounds will be cut off."
 
 *「ほら、風の魔法で離れたところに声届けるやつあるじゃん？　あんな感じで私に声が届くの。試しに話しかけてみて。調整するから小声でお願いね、大きな音はカットするけど」*
 
-Oh. ...... hmm, uh, Karina?"
+"Okay... um, Karina?"
 
 *「おう。……んん、あー、カリーナ？」*
 
-Oh-ho!"
+"Whoa!"
 
 *「おひょうっ」*
 
 &nbsp;
 
-A whisper exploded in my ear!
+A whisper exploded in my ear. Is this ASMR?!
 
 *ささやき声が私の耳元に炸裂した。ＡＳＭＲかよぉッ！*
 
-It is an audio work that is pleasant and titillating to the ear!
+It's a voice work that sends a pleasant shiver through my ears!
 
 *耳に心地よくゾクゾクしちゃう音声作品だよぉッ！*
 
 &nbsp;
 
-"Hey, what's with the funny voice all of a sudden?"
+"W-what's with that sudden weird voice?"
 
 *「な、なんだ急に変な声出して」*
 
-"I made an adjustment mistake. ...... No, this is it. Wear it anyway."
+"I messed up the adjustment... but this works too. For now, just wear it."
 
 *「調整ミスったんだよ……いやこれはこれで。とりあえず身に着けてみて」*
 
-"Oh. Like this?"
+"Alright. Is this how it goes?"
 
 *「おう。こんな感じか？」*
 
 &nbsp;
 
-And Masilo-san put the pendant I made around his neck. A stone gradient caught in the fluffy valley of fluffy fur.
+With that, Mashiro-san hung the pendant I made around their neck. The stone magatama nestled in the fluffy valley of their soft fur.
 
 *と、マシロさんは私が作ったペンダントを首に下げた。もふっとした毛のふわふわな谷間に挟まる石の勾玉。*
 
-I hear a thump, thump, thump heartbeat. I like ...... heartbeat ASMR too. I can hear chewing noises and other echoes too. Yeah, it's not good for the stones. Privacy.
+I could hear a heartbeat. ...Heartbeat ASMR sounds nice too. Chewing sounds might echo as well. Yeah, that's definitely a problem. Privacy.
 
 *ドクン、ドクンと心音が聞こえる。……心音ＡＳＭＲもいいな。咀嚼音とかも響いてきそうだ。うん、流石にマズいな。プライバシーが。*
 
 &nbsp;
 
-"...... If you keep this up, your voice and all sorts of sounds will be able to get through to me. I'll give it two short pokes and I'll make sure your voice gets through."
+"…At this rate, all sorts of sounds will be transmitted to me. I'll set it so that tapping twice will let your voice through."
 
 *「……このままだと声とかいろんな音が私に筒抜けになっちゃうな。短く２回突っついたら声が届くようにしておくね」*
 
-I'll give it back early. Well, I'll get back to you as soon as I can."
+"Ah, yeah. Well, I'll return it soon."
 
 *「ああうん。まぁ早めに返すわ」*
 
-'Do that. Oh, and if Black Mantis comes up again or something, you can use it to call him."
+"Do that. Oh, you can use it to call me if the Black Mantis shows up again."
 
 *「そうして。あ、ブラックマンティスがまた出たりしたら呼ぶのに使ってもいいよ」*
 
-"Oh, ...... that's certainly possible. This is the first time Black Mantis has been exterminated in less than a week, so you never know what might happen."
+"Ah... that could definitely happen. It's the first time the Black Mantis has been defeated in less than a week, so who knows what might happen."
 
 *「あー……それは確かにあり得るな。ブラックマンティスが一週間たたずに退治されたのは初めてだから、何が起こるか分かんねぇもん」*
 
 &nbsp;
 
-What's more, they say this is the first time the Mithril Devil has been defeated. I hear they don't know what will happen more and more. Hmmm, this is not going to keep me away from the dungeon either for a week or so: ......
+Furthermore, it seems it's the first time the Mithril Devil has been defeated. Things are getting even more unpredictable. Hmm, it looks like I won't be able to leave the dungeon for about a week...
 
 *さらに言えばミスリルデビルの討伐は初らしい。ますますどうなるかわからないそうな。うーん、これは一週間くらい私もダンジョンから離れられそうにない……*
 
-I guess ...... is wherever I am if I metastasize. I guess I'll just have to be ready for the call.
+...Wait, for me, transferring means it doesn't matter where I am. Just preparing for a call should be enough.
 
 *……って、私の場合転移すればどこにいても一緒か。呼び出しに備えるくらいでよさそうだな。*
 
@@ -116,81 +116,81 @@ I guess ...... is wherever I am if I metastasize. I guess I'll just have to be r
 
 &nbsp;
 
-And then I was asked to learn even more about the dungeon.
+So, after that, I got to learn more details about the dungeon.
 
 *で、その後ダンジョンのことについて更に詳しく教えてもらうことになった。*
 
 &nbsp;
 
-That's what I mean. In other dungeons, there will be different rules, but you know what not to do here? ......, even though it's a little late for that."
+"That's the deal. Other dungeons might have different rules, but you understand what you can't do here, right? ...Though it's already a bit late for that."
 
 *「ってことだ。他のダンジョンではまた別のルールがあるだろうが、ここでやっちゃいけねぇ事は分かったな？……もう色々と遅いけどよ」*
 
-'Yeah, well, to add to that, it's OK to defeat the dungeon boss at the back here, and you're not allowed to touch the core beyond that. Okay, okay."
+"Yeah, well, to add, it's okay to defeat the dungeon boss deeper inside, but you're not supposed to touch the core beyond that. Got it, got it."
 
 *「うん、まぁ、追加で言うとこの奥にあるダンジョンボスを倒すのはＯＫで、その先のコアは触っちゃダメなんだよね。分かった分かった」*
 
-Even if I wanted to, I couldn't touch it because it's warded.
+"Even if you wanted to touch it, there's a barrier preventing it."
 
 *「触ろうったって結界が張ってあって触れねぇんだけどな」*
 
 &nbsp;
 
-If you hadn't told me, I'd have gone to touch it, maybe even bludgeoning it with spatial magic or going through it.
+If I hadn't been told, I might have tried to break through or bypass it with spatial magic.
 
 *言われなかったら空間魔法でぶち破ったりスルーしたりして触りに行ってたかもしれないな。*
 
 &nbsp;
 
-I said, "All right, let's go see the core. Let's go worship the core."
+"Alright, since we're at it, let's go pay our respects to the core."
 
 *「よし、折角だ。コアを拝んで来ようぜ」*
 
-"Oh, are you okay?　Dungeon bosses are strong, right?"
+"Eh, is that okay? The dungeon boss is strong, right?"
 
 *「え、大丈夫？　ダンジョンボスって強いんでしょ？」*
 
-Black Mantis is ten times stronger. Here we go, Karina.
+"The Black Mantis is ten times stronger. Come on, let's go, Karina."
 
 *「ブラックマンティスのが十倍強ぇよ。おら、いくぞカリーナ」*
 
 &nbsp;
 
-Mr. Masilo stood me up and led the way saying that.
+With that, Mashiro-san stood me up and led the way.
 
 *そう言って私を立たせ、先導するマシロさん。*
 
 &nbsp;
 
-Eh, I can go by myself."
+"Eh, I can go by myself."
 
 *「えー、ひとりで行けるよぅ」*
 
-What if I let you go out there alone and things get bad again?　I'm the one who's supposed to be watching you, so to speak!"
+"Shut it! What if something dangerous happens if I let you go alone? I'm basically your bodyguard!"
 
 *「うっせ、お前ひとりで行かせてまたヤベーことになったらどーすんだよ！！　いわばアタシが監視ってやつだよ！」*
 
-It is."
+"That's true."
 
 *「それはそう」*
 
 &nbsp;
 
-Well, I guess I'll just follow what the senior adventurers say here.
+Well, I guess I'll follow the advice of my senior adventurer.
 
 *ま、ここは先輩冒険者の言うことに従っておきますか。*
 
-And like Blade senior, he seems to be the more dependable senior!
+They seem like a reliable senior, just like Blade-senpai!
 
 *ブレイド先輩のように頼りになる方の先輩っぽいし！*
 
 &nbsp;
 
-As for the Black Mantis carcass, I gave only the head to Mr. Masilo and all the rest is in my backpack (spatial magic through my backpack). I also gave him a slice of the mithril devil, so I'll leave the reporting to you, Masilo-san.
+By the way, I handed over just the head of the Black Mantis to Mashiro-san, and the rest is stored in my backpack (through spatial magic). I also gave them one piece of the Mithril Devil, so I'll leave the reporting to you, Mashiro-san.
 
 *ちなみにブラックマンティスの死骸については頭だけマシロさんに渡して、あとは全部私のリュック（を通じた空間魔法）の中にしまっている。ミスリルデビルも１切れだけ渡したので報告は任せたぞマシロさん。*
 
-You can blab about me as a passing yabby great wizard or something, because I'm sure that if you inquire at the Velarde lordship hall, they will testify to my existence!
+Just say I'm a passing great mage or something, and if they inquire at the lord's mansion in Verald, they should be able to confirm my existence!
 
 *私のことは通りすがりのヤベー大魔法使いとかなんとかボカしといてくれ、ヴェーラルドの領主館に問い合わせれば実在を証言してくれるはずだから！*
 
@@ -198,43 +198,43 @@ You can blab about me as a passing yabby great wizard or something, because I'm 
 
 &nbsp;
 
-So I decided to challenge the dungeon boss accompanied by Masilo.
+So, with Mashiro-san accompanying me, I decided to challenge the dungeon boss.
 
 *というわけで、マシロさん同行でダンジョンボスに挑む事に。*
 
-Holding back?　There's no need since I've already shown my ability to Mr. Masilo. So, the super giant ants, which were thought to be the queen ants, broke apart as soon as they appeared.
+Hold back? I’ve already shown my strength to Mashiro-san, so there's no need for that. Therefore, the super giant ant, presumed to be the queen ant, was torn apart the moment it appeared.
 
 *手加減？　もうマシロさんに実力見せちゃってるから必要ないよね。なので、女王アリと思われる超巨大なアリは出現と同時にバラバラになった。*
 
 &nbsp;
 
-I was prepared for it, but seriously, a dungeon boss kills you in a blink of an eye. It would take even Atashi a day to do that."
+"I was prepared, but seriously, the dungeon boss was taken out in an instant. It would take me a whole day!"
 
 *「覚悟してたけど、マジでダンジョンボスが瞬殺かよ。アタシでも１日かかるんだぞ」*
 
 &nbsp;
 
-With that said, slightly frustrated, Masilo took out a dart and fiddled with it. I wanted to be active, I'm sorry!
+Saying that, Mashiro-san took out some darts and started fiddling with them, looking somewhat dissatisfied. Sorry, I know you wanted to shine!
 
 *そう言って若干不満げにダーツを取り出して弄るマシロさん。活躍したかったね、ごめんね！*
 
 &nbsp;
 
-I'm not sure what to make of the darts, but when I look at them again, they look exactly the same, as if they were made by a Dwarven master craftsman. ......
+"...Hey, looking at these darts again, they seem exactly like the work of a master dwarf..."
 
 *「……なぁこのダーツ、改めて見るとドワーフの名工が拵えたかのように寸分たがわず同じ代物なんだが……」*
 
-Oh!　Is that the core? And the wards?"
+"Ah! Is that the core? And the barrier?"
 
 *「あ！　あれがコアかな。それと結界？」*
 
-Hmm?　Oh. Yeah."
+"Huh? Ah, yeah. That's right."
 
 *「ん？　ああ。そうだな」*
 
 &nbsp;
 
-When we proceeded to the back of the boss room, we found a passageway with a green ward and a black ball on a pedestal at the back of the passageway. Is that the core?
+As we moved deeper into the boss room, we found a passage with a green barrier and, further inside, a black sphere resting on a pedestal. Is that the core?
 
 *ボス部屋の奥へ進むと、緑色の結界が張られた通路と、その奥に台座に乗った黒い球が置かれていた。あれがコアってやつか。*
 
@@ -249,4 +249,3 @@ When we proceeded to the back of the boss room, we found a passageway with a gre
 &nbsp;
 
 &nbsp;
-

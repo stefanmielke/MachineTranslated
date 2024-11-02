@@ -1,4 +1,4 @@
-# Dear, take off your socks! illustrations
+# Dear, take off your socks! ● Illustration included
 
 ## ディア君、靴下脱いで！●挿絵アリ
 
@@ -6,15 +6,15 @@
 
 &nbsp;
 
-I'm so happy to have won!　I could have won!　A dragon priestess is ...... ugh, I'm a guy!"
+"......Haa...! I managed to win! But being the dragon priestess... ugh, I'm a guy!"
 
 *「……はぁぁ……！　優勝できましたがっ！　龍の巫女って……ううっ、僕男なのに」*
 
-Good work, Mr. Dear.
+"Good job, Dear."
 
 *「お疲れー、ディア君」*
 
-I'm back!　Oh, God, I'm back at ......!
+"I'm back! Ah, geez... already!"
 
 *「ただいまもどりましたっ！　あー、もぅ……っ　もうっ！」*
 
@@ -24,39 +24,39 @@ I'm back!　Oh, God, I'm back at ......!
 
 &nbsp;
 
-He gently welcomes Deere back to the base after the awards ceremony.
+Gently welcoming Dear back to the base after the award ceremony.
 
 *表彰式を終えて拠点に戻ってきたディア君を優しく迎える。*
 
-He was squirming and wriggling around, perhaps holding back a great deal of embarrassment.
+It seems he has been holding back a lot of embarrassment, fidgeting and twisting his body.
 
 *恥ずかしいのを相当我慢してたのか、もじもじと体をよじらせている。*
 
 &nbsp;
 
-It was a lot of fun!"
+"Wow, that was fun!"
 
 *『いやー、楽しかったっすね！』*
 
-Arthur might be fine with that, but I'm dressed like this, okay?"
+"That might be fine for Arthur, but I'm in this outfit, you know?"
 
 *「アーサーはそれでいいかもしれないけど、僕はこの格好ですよ？」*
 
-I heard from the guys that you're wearing a woman's skirt, too. I just heard from the guys that you're wearing a woman's skirt, too.
+"Hey, Dear. I heard from everyone that your skirt is actually women's clothing underneath, right?"
 
 *「ねぇディア君。みんなからちょっと聞いたんけど、それスカートの中もちゃんと女物なんだって？」*
 
-I was fine when I tried it on, but in a real fight, I had to put it on properly or the safety might not work on my opponent!　Ugh, it was fine when I tried it on, but in a real battle, if I don't put it on properly, the safety device against the opponent might not work. ......"
+"......Y-yes! Ugh, it was fine during the fitting, but in actual combat, if I don't wear it properly, the safety mechanism for the opponent might not activate..."
 
 *「……っ、そ、そうですよっ！　うう、試着のときは大丈夫だったのに、実戦ではちゃんとつけないと相手への安全装置が働かないかもって……」*
 
 &nbsp;
 
-And Dia-kun's face turns bright red and he confesses.
+Dear confesses with a bright red face.
 
 *と、顔を真っ赤にして白状するディア君。*
 
-Yes. Now Dia, you are all black gothic lolita. And that, of course, extends to underwear as well!
+That's right. Right now, Dear is dressed in full black goth-loli. And of course, that extends to his underwear too!
 
 *そう。今のディア君は全身黒ゴスロリ。そして、それは勿論下着にも及ぶのだ！*
 
@@ -64,21 +64,21 @@ Yes. Now Dia, you are all black gothic lolita. And that, of course, extends to u
 
 &nbsp;
 
-In addition, underwear does not really have to be made for women.
+Actually, he doesn't have to wear women's underwear.
 
 *尚、本当は下着は女物にしなくてもいい。*
 
-This was planted by all the Five Elders, who told me to say so. I am the mastermind.
+This was arranged by the five elders, telling me to "say that." I'm the mastermind behind this.
 
 *これは五大老のみんなに「そう言っといて」と仕込んでもらった。私が黒幕です。*
 
-With regard to the costume, I have also had the socks made into regular knee socks from the church.
+Regarding the costume, the socks are also regular knee-highs from the church.
 
 *衣装に関して、靴下も教会産の普通ニーソにしてもらっている。*
 
 &nbsp;
 
-Dia-kun, an idol tamer who wore women's underwear, behaved stoutly, and was called a miko or a princess all the time. I'm sure ...... plenty of shame has accumulated. ......
+Wearing women's underwear and acting tough, Dear the idol tamer has been called a priestess and a princess... surely a lot of embarrassment has built up...!
 
 *女物の下着を履いて気丈にふるまい、巫女とか姫とか呼ばれまくったアイドルテイマーのディア君ちゃん。……たっぷり羞恥が蓄積されたことだろう……！*
 
@@ -86,235 +86,235 @@ Dia-kun, an idol tamer who wore women's underwear, behaved stoutly, and was call
 
 &nbsp;
 
-I think I'll stir things up a bit more!
+Should I tease him a little more!!!
 
 *もうちょっと煽っとこうかな！！！*
 
 &nbsp;
 
-He said, "Hey, what kind of pants are you wearing?　Let me see."
+"Hey, what kind of panties are you wearing? Show me."
 
 *「ね、どんなパンツ履いてるの？　見せてよ」*
 
-What?　I don't show my underwear to people!"
+"Huh!? N-no, I-I don't show my underwear to others!"
 
 *「え！？　や、そ、し、下着は人に見せたりしないものですからっ！」*
 
-What?　Me and Dear are friends."
+"Come on? We're close, right?"
 
 *「えー？　私とディア君の仲じゃん」*
 
 &nbsp;
 
-Dia-kun's face turns bright red, and I find myself involuntarily smiling and my cheeks rising.
+Seeing Dear's face turn bright red, I can't help but smile widely.
 
 *顔を真っ赤にするディア君に、思わずニマニマと頬が上がるのが自分でもわかる。*
 
-I gently approach him, hug him from the side and whisper in his ear.
+I gently approach him, hugging him from the side and whispering in his ear.
 
 *そっと近づいて、横から抱きよせて耳元で囁く。*
 
 &nbsp;
 
-I'm curious to see what kind of underwear Dear is wearing.　I'm curious what kind of underwear you're wearing.
+"Hey, can I see? I'm curious about what kind of underwear Dear is wearing."
 
 *「ねぇ、見せて？　ディア君がどんな下着履いてるのか気になるなぁー」*
 
-......, oh, and Arthur's watching too!"
+"......W-well, Arthur is watching too..."
 
 *「……ッ、あ、アーサーも見てますしっ」*
 
-'That's fine, it's a dragon, I don't care. ...... here?　Do they wear them here?"
+"That's fine, he's a dragon, so he won't mind. ...Here? Is this where you're wearing them?"
 
 *「いいじゃん、ドラゴンだし気にしないよ。……ここ？　ここに履いてるのかな？」*
 
 &nbsp;
 
-and gently strokes Dear's tummy and lower belly. I do not reach down to his crotch.
+I softly stroke Dear's belly, gently caressing his lower abdomen. I don't reach down to his groin.
 
 *と、ディア君のおなかを、下腹をそっと撫でる。股間にまでは手を伸ばさない。*
 
-The gothic-lolita frills are fluttery and fun.
+The frills of the goth-loli outfit are fun to touch.
 
 *ゴスロリのフリルがわしゃわしゃしてて楽しい。*
 
 &nbsp;
 
-Nnghi!　Oh, sister. That, that... ......"
+"Nhii!? W-wait, um..."
 
 *「んひッ！？　お、お姉さん。そ、そのっ……」*
 
-What?　What's up?"
+"Hm? What's wrong?"
 
 *「ん？　どったの？」*
 
 &nbsp;
 
-Dear you are red to the tips of your elf ears. I wonder if I shouldn't ...... suck on it?　I'm tempted to suck it.
+Dear's ears are bright red, even the tips... Should I not suck on them? I'm starting to want to.
 
 *ディア君はエルフ耳の先まで真っ赤だ。……咥えたらダメかな？　しゃぶりたくなってきた。*
 
-And here Arthur spoke to me in a whisper. In dragon language.
+At that moment, Arthur speaks to me in a low voice, in dragon language.
 
 *と、ここでアーサーが小声で話しかけてきた。ドラゴン語で。*
 
 &nbsp;
 
-I should go back to my room, shouldn't I?
+『(Should I go back to my room?)』
 
 *『（自分、部屋に戻っといた方がいいっすか？）』*
 
-' (Shameful. Pretend you don't know what's going on, help me out.
+『(Teasing. Pretend to not understand, help me)』
 
 *『（羞恥煽る。何も分からんフリ、手伝え）』*
 
-'(Ooooh!)"
+『(Got it!)』
 
 *『（うっす！）』*
 
 &nbsp;
 
-Guttural, short instructions in dragon language and tamer skills.
+I give short instructions in a low voice, using dragon language and tamer skills.
 
 *小声、ドラゴン語とテイマー技能で短く指示を出す。*
 
 &nbsp;
 
-I'm so glad you and Deere are getting along so well!
+"Wow, it's great that you and Dear are so close!"
 
 *『いやぁ、姐さんとディア君が仲良しで何よりっすねー！』*
 
-I'm sure we're good friends, sister!　I'm sure we're good friends, but you're my sister!
+"Ah, no, um! W-well, we are close, but, um, big sister!"
 
 *「あ、いや、そのっ！　た、確かに仲良しですがっ、お、お姉さんっ！」*
 
-I'm going to wear a gothic lolita dress after this. I want to wear matching underwear with Dear.
+"Speaking of which, I'm going to wear a goth-loli dress after this too. I want to match my underwear with Dear's."
 
 *「そういや私もこの後ゴスロリドレス着るんだよね。下着、ディア君とおそろいにしたいなぁ」*
 
-"Shhh, matching underwear!"
+"M-matching underwear!?"
 
 *「し、下着をおそろいですか！？」*
 
-If you want, I can wear the ones you're wearing right now, or something?"
+"How about I wear what Dear is wearing right now?"
 
 *「なんなら今ディア君が履いてるやつを私が履くとかでもいいよ？」*
 
-"...... ugh ......"
+"......Ugh..."
 
 *「……ううっ……」*
 
 &nbsp;
 
-The underwear designated by the Five Elders are string pants, so even I can actually wear them.
+The underwear designated by the five elders is a thong, so I can actually wear it too.
 
 *五大老指定の下着は紐パンなので、実際私でも履けるのだ。*
 
-...... and here I'm stroking my waist and untying Deere's underwear!　Spatial magic, hey no!
+...And at this moment, while stroking Dear's waist, I untie the string of his underwear! Space magic, here we go!
 
 *……と、ここで腰を撫でつつディア君の下着の紐をほどく！　空間魔法てぇいや！*
 
 &nbsp;
 
---So light and crisp, the cloth falls almost silently to the floor.
+---With a light sound, the fabric falls almost silently to the floor.
 
 *――ぱさり、と軽い布がほぼ無音で床に落ちる。*
 
 &nbsp;
 
-What?"　......hyahi!"
+"Huh? ...Hyaah!?"
 
 *「え？　……ひゃひ！？」*
 
-I'm sorry, something fell out.　Here you go.
+『Oh, something fell! Here you go.』
 
 *『あれ、なんか落ちたっすよー？　はいこれ』*
 
-Oh, thanks for picking me up, Arthur."
+"Thanks for picking it up, Arthur."
 
 *「お、拾ってくれてありがとアーサー」*
 
 &nbsp;
 
-Under the skirt, Arthur picks up Dear's underwear and I take it.
+Under the skirt, Arthur picks up Dear's underwear, and I receive it.
 
 *スカートの下、アーサーがディア君の下着を拾って私が受け取る。*
 
-The black string pants that Mr. Dear was wearing were wet with the perfect amount of his body heat still on them.
+The black thong that Dear was wearing still retains his body heat and feels warm.
 
 *ディア君が付けていた黒い紐パンは、その体温がバッチリ残っていてぬくぬくしていた。*
 
-The cloth area is much smaller. A few ruffles on the outside and a tiny ribbon are adorable.
+The fabric area is quite small. There are a few frills on the outside, and a small ribbon that looks cute.
 
 *布面積がだいぶ小さい。外側には少しのフリルと、ちいさなリボンが可愛らしい。*
 
 &nbsp;
 
-I was like, "Wow, you were wearing underwear like this. Did you stand on stage like that wearing this?"
+"Wow, so this is what your underwear looks like. You were wearing this on that stage?"
 
 *「へぇ、こんな下着だったんだね。こんなのつけてあんな舞台に立ってたんだ？」*
 
-"~~~!　Don't look at me!
+"~~! D-don't look at it!!"
 
 *「～～ッ！　み、見ないでくださいっ！！」*
 
 &nbsp;
 
-Dia-kun takes my underwear from my hand and squeezes it tightly.
+Dear snatches the underwear from my hand and grips it tightly.
 
 *私の手から下着を奪ってぎゅっと握りしめるディア君。*
 
 &nbsp;
 
-When he looked at me, his eyes were completely teary, his face was red, and his nose was a little twitchy.
+The look in his eyes as he looks at me is tearful, his face bright red, and his nose slightly twitching.
 
 *私を見るその目はすっかり涙目で、顔真っ赤で、鼻が少しぴくっと震えて。*
 
-And yet it also contained a troubled but slightly happy emotion. ...... Oh, yes!　I wanted to see that face!
+Yet, while he seems troubled, there's a hint of happiness in his expression... Ah, yes! That's the face I wanted to see!!
 
 *それでいて困ってはいるけど少し嬉しそうな感情も含まれていて……ああ、そう！　その顔が見たかった！！*
 
 &nbsp;
 
-Dear, take off your socks!　Now!"
+"Dear, take off your socks! Right now!"
 
 *「ディア君、靴下脱いで！　今すぐ！」*
 
-What, uh, no, no, I'm not wearing underwear right now, so here I am: ......"
+"Huh, b-but, I'm not wearing any underwear right now, so here..."
 
 *「えっ、あ、い、いや、今僕、下着履いてないのでここでは……」*
 
-Now!　It has to be now, it has to be now!　Just take them off!　Here, put these on!"
+"Now! It has to be now, right now! Just take them off! Here, change into these!"
 
 *「今！　今じゃなきゃダメ、今なの！　いいから脱いで！　はいこれ、これに履き替えて！」*
 
-"Eh, ha, yes. ...... uu. Don't look at it, okay?"
+"W-wait, y-yes... Ugh. D-don't look, okay?"
 
 *「え、は、はいっ……うう。み、見ちゃダメですからね？」*
 
 &nbsp;
 
-Deere was somewhat bewildered, but reluctantly accepted the offer.
+Dear, somewhat confused, reluctantly accepts.
 
 *多少困惑するディア君だったが、しぶしぶ受け入れてくれた。*
 
-I mean ......, that too cute reaction is already that of a girl.
+...But that adorably cute reaction is already that of a girl.
 
 *……ってかその可愛すぎる反応はもう女の子のそれなんだよなぁ。*
 
 &nbsp;
 
-And on the way there, Arthur peeked up my skirt and said, "Huh!　Hey, hey Arthur!" I was surprised and changed into the socks I gave him.
+And while Arthur peeks under the skirt and I gasp, "Wha!? C-come on, Arthur!" he changes into the socks I handed him.
 
 *そして途中でアーサーにスカートの中を覗かれて「ふぁっ！？　こ、こらアーサー！」とびっくりしつつ、私が渡した靴下に履き替えた。*
 
 &nbsp;
 
-The socks were naturally collected with or without them.
+Of course, I collected the socks he changed into without question.
 
 *履き替えた靴下は、当然有無を言わさず回収した。*
 
-...... This one got a 70!　I wore them throughout the tournament, and they might even go over 80!
+...This definitely scored a 70 points! He wore them throughout the tournament, so it might even exceed 80 points!
 
 *……これは７０点はいったな！　大会中ずっと履いてたし、８０点超えるかも！*
 
@@ -322,17 +322,14 @@ The socks were naturally collected with or without them.
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(Belatedly, Deere, it's yours!
+(Delayed, but here's Dear's part!
 
 *（遅ればせながら、ディア君のやつだよ！*
 
-I know I've been a bit underwhelmed lately with all the AI illustration-related stuff, but Dear, it's your gothic lolita, right?　(You're lying if you don't have a picture for this one. ......)
+Recently, I've been holding back a bit due to the AI illustration situation, but this is Dear in goth-loli, right? It's a lie to say there are no illustrations...)
 
 *最近AIイラスト関連がアレでちょっと自重してたけど、ディア君のゴスロリだよ？　これで絵がないのは嘘でしょ……）*
-

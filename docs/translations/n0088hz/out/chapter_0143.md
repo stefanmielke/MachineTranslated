@@ -1,4 +1,4 @@
-# No man's body can defeat God
+# There’s no way a human can win against a god
 
 ## 人の身で神に勝てるハズもなし
 
@@ -6,43 +6,43 @@
 
 &nbsp;
 
-Now, use your massage skills to make the girls say "ahhh" and "ahhh" and make them feel shame and earn some tasty socks!　You can get it from ......'s ......'s ......'s ......'s ......'s ......'s!"
+"Now, with this massage skill, let's make the girls go 'ahh, ahh' and stir their sense of shame to earn some delicious socks! Yes... yes...!"
 
 *「さぁこのマッサージスキルで女の子達をあひんあひん言わせて羞恥心を煽り美味しい靴下を稼ぐのです！　のです……のです……！」*
 
 &nbsp;
 
-With God's self-echo, I returned to reality.
+With the god's self-echo, I returned to reality.
 
 *神様のセルフエコーと共に、私は現実へと帰還した。*
 
-After all, God is faithful to his own desires, isn't he!
+In the end, the god is just a guy who's true to his own desires!!
 
 *結局神様自分の欲望に忠実なヤツじゃないですかぁ！！*
 
 &nbsp;
 
-Ugh, there were more useful skills like alchemy, why did I choose massage?
+Ugh, if only I had gotten a more useful skill like alchemy or something, why did I end up with massage?
 
 *うう、折角なら錬金術とかもっと有用なスキルあったじゃんよぅ、なんでマッサージにしちゃったの私。*
 
 &nbsp;
 
-...... No, not really, you can get it with the rest of your SP to spare, right?
+...No, I mean, I could easily acquire it with the remaining SP, right?
 
 *……いや別にさ、残りのＳＰで余裕で取得できるよ？*
 
-Yes, I can afford to acquire it. I regretted that I should have gone with this one, but it was available and I could afford the balance.
+Yeah, I could totally get it. I regret that I didn't choose that one, but it's still obtainable, and I have enough balance.
 
 *そう、余裕で取得できちゃうんだよね。やっぱこっちが良かった、と後悔しつつもそれは入手可能で、残高に余裕もあって。*
 
 &nbsp;
 
-Or rather, I was reminded that there was no other use for them in the first place.
+Moreover, I was re-recognizing that there really isn’t any other use for it.
 
 *というかそもそも他に使い道もないことを再認識していて。*
 
-I'm already in the mood to trade this for skills like alchemy or swordsmanship: ......
+At this point, wouldn’t it be better to just exchange it for skills like alchemy or swordsmanship? That’s how I feel...
 
 *もうこれ錬金術とか剣術とかのスキルと交換でいいんじゃないかな、という気分……*
 
@@ -50,11 +50,11 @@ I'm already in the mood to trade this for skills like alchemy or swordsmanship: 
 
 &nbsp;
 
-In other words, it is God's skillful guidance. God damn it!
+In other words, it’s the god’s clever manipulation. Damn it!
 
 *つまりは神様の巧みな誘導である。ちくせう！*
 
-I guess there is no way for a human being to defeat God. ......
+There’s no way a human can win against a god, huh...!
 
 *人の身で神に勝てるハズもなし、ということか……！*
 
@@ -62,13 +62,13 @@ I guess there is no way for a human being to defeat God. ......
 
 &nbsp;
 
-Ha, but well, I'm sure it's actually a really rare and useful skill."
+"Ha, but well, I'm sure it's actually a rare and useful skill."
 
 *「はー、でもまぁ実際きっと本当にレアで有用なスキルなんだろうなぁ」*
 
 &nbsp;
 
-I'll massage you and Deere when I get back, I will.
+When I get back, I’ll give a massage to Dia and the others. That’s what I’ll do.
 
 *帰ったらディア君達のことマッサージしてあげよう、そうしよう。*
 
@@ -80,183 +80,183 @@ I'll massage you and Deere when I get back, I will.
 
 &nbsp;
 
-"Hello, sir."
+"I'm back!"
 
 *「ただいまぁ」*
 
-Oooh!　Karina's back!"
+"Oh! Karina, welcome back!"
 
 *「おっ！　カリーナおかえり！」*
 
-I'm sure you'll be fine. Thank you for your hard work."
+"Welcome home, Sister Karina. Thank you for your hard work."
 
 *「おかりなさいカリーナお姉さん。お疲れ様です」*
 
-I'm home. Hey, Dia, are you doing maintenance on the Golem?　I told you it could wait.
+"I'm home! Huh, is Dia maintaining the golem? I thought you said it could wait."
 
 *「ただいまー。あれ、ディア君ゴーレムのメンテしてるの？　後でいいって言ったのに」*
 
-I was out of time, so I just went for it."
+"I was just a bit bored, so I couldn't help it."
 
 *「手持無沙汰だったのでつい」*
 
 &nbsp;
 
-Back at the base, Masilo-san was having a drink in the living room and Dia-kun was doing maintenance on the golem used in the portable shrine. ...... Oh, I'm dressed like a boy today, okay?　You look like a neutral mechanic girl. Cute.
+When I returned to the base, Mashiro was drinking alcohol in the living room, and Dia was maintaining the golem used for the portable shrine. ...Oh, he's dressed like a boy today? He looks like an androgynous mechanic girl. Cute.
 
 *拠点に戻ると、マシロさんがリビングでお酒を飲み、ディア君はお御輿で使ったゴーレムのメンテナンスをしてくれていた。……あ、今日は男の子の格好してるよ？　中性的なメカニック少女に見えるけどね。可愛い。*
 
 &nbsp;
 
-Where did Mr. Masiello get that alcohol?
+"Where did you get that alcohol, Mashiro?"
 
 *「マシロさんはどっから出したのそのお酒」*
 
-I brought it in from home. I love a good drink after a bath!"
+"I brought it from home. There's nothing better than a drink after a bath!"
 
 *「ウチから持ち込んだ。風呂上がりの酒は最高だな！」*
 
 &nbsp;
 
-He wanted to enjoy a drink after his bath as soon as the request was over.
+Since the quest was over, it seemed he was eager to enjoy a drink after his bath.
 
 *依頼が終わったので早速風呂上がりの一杯を嗜みたかったらしい。*
 
-And then Isiah put down the knob. It was dried crawler meat that had been rehydrated in water to make it soft and juicy. Was this also brought in by Mashiro-san?
+At that moment, Aishia placed some snacks down. It was dried meat from a crawler that had been rehydrated with water, turning it all jiggly. I guess this was also brought by Mashiro.
 
 *と、そこにアイシアがツマミを置いていく。クロウラーの干し肉を水で戻してぷるっぷるになったやつだった。これもマシロさんの持ち込みか。*
 
 &nbsp;
 
-Welcome back, my dear sir. Would you like a bath?　Would you like to eat?"
+"Welcome back, Master. Would you like to take a bath? Or have a meal?"
 
 *「おかえりなさいませあるじ様。お風呂にしますか？　ご飯にしますか？」*
 
-I'm feeling hungry too, so I'm thinking dinner. It's a little early, but it's dinner.
+"Hmm, I'm starting to get a bit hungry, so I guess a meal. It's a bit early, but let's have dinner."
 
 *「んー、私もなんかお腹空いてきたしご飯かなぁ。ちょっと早いけど晩御飯だ」*
 
 &nbsp;
 
-And as a bonus, 'Or wa-ta-si?' I wanted him to ask.
+I also wanted him to ask, "Or would you prefer me?"
 
 *あとオマケで『それともワ・タ・シ？』と聞いてほしかった。*
 
-Well, I can't choose that option in front of you, Dear!
+Well, I can't choose that option in front of Dia, though!
 
 *まぁディア君の手前、その選択肢は選べないけども！*
 
 &nbsp;
 
-Would you like some rice, Miss Dia?"
+"Would you like a meal too, Dia?"
 
 *「ディア様もご飯にしますか？」*
 
-Yes, it's a good time to go to ......."
+"Yeah, it’s a good stopping point... well then."
 
 *「そうですね、キリもいいし……っと。」*
 
 &nbsp;
 
-With a slam, the hatch of the golem closes and Dia-kun comes toward us.
+With a bang, Dia closed the golem's hatch and came over.
 
 *バタン、とゴーレムのハッチを閉じてこちらに来るディア君。*
 
-I sat on the couch after 'washing' off the dirt.
+He cleaned himself with 'Cleaning' and sat down on the sofa.
 
 *『洗浄』で汚れを落としてソファーに座った。*
 
 &nbsp;
 
-I mean, Dia, you're a golem technician?　That's amazing for a kid."
+"By the way, Dia, are you a golem technician? You're amazing for a kid."
 
 *「つーかディアよぅ、お前ゴーレム技師なのか？　子供なのにすげーな」*
 
-It wasn't that hard to just move it, I had the manual and the magic stone."
+"It's not that difficult if you just move it. I had the manual and the magic stone."
 
 *「動かすだけならそれほど難しくはないですよ、マニュアルも魔石もあったので」*
 
-Our Dear is a genius. Hmmm."
+"Our Dia is a genius. Hehe."
 
 *「ウチのディア君は天才なんだよ。ふふん」*
 
-It's not Carina's place to puff out her chest. Sit down here. Carina, have a drink, it's on me - don't drink it Dia, it's too early for a child.
+"That's not something Karina should be proud of. Come on, sit here. Karina, you should drink too; it's on me—Dia, you can't drink yet, you're still a kid."
 
 *「カリーナが胸を張るとこじゃねぇだろ。おら、ここ座れ。カリーナも飲めよ、アタシの奢りだ――ディアは飲むなよ、子供にゃまだ早ぇからな」*
 
-So I'm older than you. ......
+"But I'm older than you..."
 
 *「だから僕の方が年上なんですけど……」*
 
-You're just a kid among elves.
+"You're still a kid among elves."
 
 *「エルフん中じゃ子供なんだろーが」*
 
 &nbsp;
 
-Mashiro invites me to sit next to him.
+I sat down next to Mashiro as he invited me over.
 
 *マシロさんに招かれて隣に座る。*
 
-Incidentally, Aisia is properly judged an adult by dwarf standards, so she is allowed to drink.
+By the way, Aishia is considered an adult by dwarf standards, so it seems she can drink.
 
 *ちなみにアイシアはドワーフ基準でちゃんと成人判定なので飲んでもいいらしい。*
 
-According to Mr. Masiello's logic.
+According to Mashiro's reasoning.
 
 *マシロさんの理屈では。*
 
 &nbsp;
 
-Sorry to keep you waiting. Paella."
+"Sorry to keep you waiting. Here’s the paella."
 
 *「おまたせしました。パエリアです」*
 
-Oh, I've been waiting for you!　I've been waiting for you!"
+"Oh! I've been waiting for this!"
 
 *「おっ！　まってました！」*
 
-Wow, you eat rare food!　Give me some of that too. I'll pour you some sake.
+"Wow, this is a rare dish! Give me a bit too. I'll pour you some alcohol."
 
 *「へぇ、珍しいモン食うなぁ！　アタシにも少しくれよ。酒注いでやるからさ」*
 
-It's okay - it's not an exceptionally rare food in Velarde."
+"Sure, it's not particularly rare food in Verald."
 
 *「いいよー、ヴェーラルドでは別段珍しくない食べ物なんだよね」*
 
-"Sister, it's quite rare in Carcassa, isn't it?"
+"Sister, it's quite rare in Calcass."
 
 *「お姉さん、カルカッサではだいぶ珍しいですからね？」*
 
 &nbsp;
 
-After sharing some of the paella that Aisia had made, Masilo-san poured some sake into our mugs. Bliss, bliss, bliss.
+After sharing a bit of the paella Aishia made, Mashiro poured some alcohol into my mug. Ah, bliss.
 
 *アイシアの作ったパエリアを少し分けると、マシロさんがジョッキにお酒を注いでくれた。いやぁ至福至福。*
 
-I can only thank God for that!
+I can only be grateful to the god for this!
 
 *こんなの神様に感謝しかねぇなぁ！*
 
 &nbsp;
 
-'You can return the favor by working hard on your sock deliveries again.'
+"You can keep working hard on delivering socks to repay the favor."
 
 *『また靴下納品を頑張って恩返ししてくれればいいですよ』*
 
 &nbsp;
 
-And the voice of God.
+Said the voice of the god.
 
 *と、神様の声。*
 
 &nbsp;
 
-...... so Mr. Cossioli was left in his room.
+...Speaking of which, I left Koshori-kun in the room.
 
 *……そういやコッショリ君は部屋に置きっぱなしだった。*
 
-Well, it's not like I'm going to do anything I don't want to be seen.
+Well, it’s not like I’m doing anything that would be a problem if seen, so it’s fine.
 
 *まぁ見られて困ることするわけでもないしいいか。*
 
@@ -264,17 +264,14 @@ Well, it's not like I'm going to do anything I don't want to be seen.
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(Next time, to the land of dwarves.
+(Next time, to the land of the dwarves.
 
 *（次回、ドワーフの国へ。*
 
-(I have a feeling it's going to be an "aha" moment, since the book work hasn't been completed in time: ......)
+I have a feeling I might end up saying "Ah" since the book publication work isn't on schedule...)
 
 *書籍化作業が間に合ってないので「あっ」てなりそうな予感……）*
-

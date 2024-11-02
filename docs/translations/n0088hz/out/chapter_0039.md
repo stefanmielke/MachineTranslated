@@ -1,46 +1,46 @@
-# A Bits of Truth ●Illustrations
+# A Fragment of Truth ● With Illustrations
 
 ## 真理の一端　●挿絵アリ
 
 &nbsp;
 
-I'm Karina. I've stocked up on lotions and I have no more business in this town!
+I’m Karina-chan. I’ve stocked up on lotion, so I have no more business in this town!
 
 *私カリーナちゃん。ローションも仕入れたし、もうこの町に用はないわ！*
 
-I left the port town of Velarde--
+I departed from the port town of Veraldo――
 
 *私は港町ヴェーラルドを出立した――*
 
 &nbsp;
 
---We decided to call it - and after leaving the gate, we transitioned into the town.
+――or rather, after leaving through the gate, I transferred back into the town.
 
 *――ということにして、門から出た後、町の中に転移した。*
 
 &nbsp;
 
-No, I have to pretend I'm leaving town now, and it should be about 5-8 days before I get to Solacidore. You know, too much alone time is not so good. You know?
+No, I need to pretend I left the town now and that I’ll arrive in Solashidore in about 5 to 8 days. You see, having too much free time alone is kind of boring, or rather, not very good. Right?
 
 *いや、今から町を出た事にしてソラシドーレにつくのが５～８日後くらいにしないといけないんだけどさ。あれなんだよ、ひとり時間が多すぎても暇っていうか、あまりよくないっていうか。ね？*
 
 &nbsp;
 
-Oh, and of course I'm taking delivery requests to Solacidore at the Adventurer's Guild. It's important spending money. My luggage is in the storage space, so I can easily enjoy sightseeing in Velarde.
+Ah, of course, I’ve also taken a delivery request to Solashidore at the Adventurers' Guild. It’s important pocket money, after all. The luggage is stored in my storage space, so I can enjoy sightseeing in Veraldo without a care.
 
 *あ、もちろん冒険者ギルドでソラシドーレ行きの配達依頼も受けてるよ。大事なお小遣いだからね。荷物は収納空間に納めてるので、私は気軽にヴェーラルド観光を楽しめるって訳よ。*
 
 &nbsp;
 
-Identification cards are also sealed so that there is no history of money transactions. Seven silver coins, which had been cashed in advance, were the budget for the stay.
+I’ve sealed my ID to avoid leaving a record of money transactions. The budget for my stay consists of seven silver coins I exchanged for cash in advance.
 
 *お金のやり取り履歴が残らないよう身分証明書も封印。あらかじめ現金にしておいた銀貨７枚が滞在予算である。*
 
-After running out, go back to the storage space and relax by yourself until around the time of Solacidore's arrival.
+Once I’ve spent it all, I’ll head back to my storage space and relax until it’s time to arrive in Solashidore.
 
 *使い切ったら収納空間に帰ってソラシドーレ到着の頃合いまで一人のんびりする方向で行こう。*
 
-The massager I bought at the alchemy store, no. I'd like to try some toy modifications, too!
+I want to try out the massage device I bought at the alchemy shop, or rather, I want to experiment with modifying some toys!
 
 *錬金術の店で買ったマッサージ器、じゃなかった。オモチャの改造も試したいしね！*
 
@@ -48,171 +48,171 @@ The massager I bought at the alchemy store, no. I'd like to try some toy modific
 
 &nbsp;
 
-First of all, let's enjoy seafood as if we were in a port town!
+First, let’s enjoy some seafood, fitting for a port town!
 
 *まずは港町らしく魚介類でも堪能してみますかぁ！*
 
-Oh, and I'd like to get a pair of girl's socks if possible. And I'd like to get one dose of period-skipping pills: ......
+Oh, and if possible, I’d like to get a girl’s socks too. I want to have at least one dose of the period skip medicine……
 
 *あ、できれば女の子の靴下も手に入れたいな。生理スキップ薬を１回分は手に入れておきたいし……*
 
-It seems difficult to ask for a sober sock please. I'd be willing to pay for them. I think the ...... shame part is the key.
+Asking for socks in a plain way seems difficult. I wouldn’t mind paying for them, though. …The shame part is the key, isn’t it?
 
 *地味に靴下くださいとかいうの難しそうだなぁ。お金を払うこともやぶさかではないのだけど。……羞恥心、のところがキモだよなぁ。*
 
 &nbsp;
 
-Now, the food stalls!
+“Alright, let’s hit the stalls!”
 
 *「さーて、屋台だー」*
 
 &nbsp;
 
-Food stalls are lined up, and the good smell of grilled squid and shellfish wafts through the air. The place was quite crowded.
+Stalls are lined up, and the delicious smell of grilled squid and shellfish wafts through the air. It’s quite lively.
 
 *屋台が並んでおり、イカや貝を焼いたいい匂いが漂っている。結構な賑わいだ。*
 
-Oh!　You have scallops! ...... Butter-roasted, you say!　Makes me want soy sauce. ...... And sake.
+Oh! They have scallops! …Grilled with butter, huh!? I’m going to want some soy sauce… and some sake.
 
 *お！　ホタテあるじゃん！……バター焼きだと！？　醤油欲しくなるな……あと日本酒。*
 
 &nbsp;
 
-Oh, no, wait?　I don't have soy sauce, but I do have some wine that I rolled up from the pirates yesterday.
+Ah, wait a minute? I don’t have soy sauce, but I do have the wine I seized from the pirates yesterday.
 
 *あ、いやまてよ？　醤油はないけど、酒なら昨日海賊から巻き上げたワインがあるんだよなぁ。*
 
-I wonder if white wine would go better with the seafood?　Ah, but it's not good to drink outside in the daytime, is it? My drinking habits.
+Since it’s seafood, maybe white wine would pair better? Ah, but drinking outside like this during the day might not be good for me, considering my drinking habits.
 
 *魚介だし白ワインの方が合うかな？　あー、でも昼間からこんなお外で飲むのは不味いか。私の酒癖的に。*
 
-Then it's best to buy freshly grilled scallops here and take them home to drink!
+Then, the best option is to buy the freshly grilled scallops here and take them home to enjoy with a drink!
 
 *なら、ここで焼きたてのホタテを購入してお持ち帰りで飲むのがベスト！*
 
 &nbsp;
 
-"Pops, two of those scallops!　Two of those scallops!"
+“Hey there! I’ll take two of those scallops!”
 
 *「おっちゃん！　そのホタテ２つ！」*
 
-"Aiyou."
+“Sure thing!”
 
 *「あいよっ」*
 
 &nbsp;
 
-I suppressed my desire to eat them right there and then, bought the scallops and quietly pretended to put them in my backpack and put them away in the storage space. Don't forget the camouflage of putting them in a tiny wooden box.
+I suppressed my desire to eat them on the spot, bought the scallops, and pretended to put them in my backpack while actually storing them in my storage space. I didn’t forget to camouflage them in a small wooden box.
 
 *私はこの場で食べたい気持ちを抑え、ホタテを購入してそっとリュックに入れるフリをして収納空間に仕舞った。ちいさな木箱に入れるカモフラージュも忘れずにな。*
 
 &nbsp;
 
-"An, why don't you eat here?　I want you to eat it right now while it's still hot."
+“Hey, aren’t you going to eat them here? I’d like you to eat them while they’re hot.”
 
 *「あん、ここで食ってかないのかい？　熱いうちにすぐ食って欲しいんだが」*
 
-Hmm?"　Uh, oh. I'm going to bring it back as a souvenir. I'm going to heat it up and eat it when I get home."
+“Hm? Ah, yeah. I’m taking them home as a souvenir. I’ll warm them up and eat them later.”
 
 *「ん？　あー、ああ。土産にするんだよ。帰ってから温めて食べる感じ」*
 
-I see. But I don't want you to have a stomach ache at that time."
+“I see. But if you get a stomachache then, it’s not my problem.”
 
 *「なるほど。けど、そん時に腹壊してもしらんからな」*
 
-I know.
+“I know that.”
 
 *「わかってるって」*
 
 &nbsp;
 
-Well, inside, time stands still, so it's all good.
+Well, time stops inside, so it’s all good.
 
 *まぁ中だと時間止まってるからへーきへーき。*
 
-Yeah, I'm glad I bought the backpack after all. It was worth the DIY work to make the wooden box.
+Yeah, I’m really glad I bought this backpack. The wooden box I DIYed was worth it too.
 
 *うん、やっぱりリュックを買って良かった。木箱もＤＩＹした甲斐があるってなもんよ。*
 
 &nbsp;
 
-By the way, where can I buy fresh raw fish?"
+“By the way, where can I buy fresh fish?”
 
 *「ちなみに新鮮な生魚を買うならどこで買えるの？」*
 
-"Maybe the morning market, it's over now. ...... Oh, there was a fish store for the general public, in case you were wondering."
+“Probably the morning market, but it’s already over… Oh, there’s a fish shop for regular folks too.”
 
 *「朝市かなぁ、もう終わってるけど……あ、一応一般人向けの魚屋もあったか」*
 
-Let's go there. Tell me where it is."
+“Maybe I’ll check it out. Can you tell me where it is?”
 
 *「行ってみようかな、場所教えてよ」*
 
-"Oh, you know where to find me at ......."
+“Sure, the location is…”
 
 *「おう、場所はな……」*
 
 &nbsp;
 
-The old man tells me a lot of things smoothly, probably because I bought scallops.
+Maybe because I bought scallops, the old man is happily sharing various tips with me.
 
 *ホタテを買ったからかスルスルと色々教えてくれるおっちゃん。*
 
-Maybe it's because I'm beautiful!　Or both?
+It might be because I’m beautiful! Or maybe it’s both?
 
 *私が美人だからかもしれない！　あるいはその両方か？*
 
 &nbsp;
 
-Thanks!　Oh, do you have any other stalls you'd recommend besides this one?"
+“Thanks! Oh, are there any other recommended stalls around here?”
 
 *「あんがと！　あ、ここの他におススメの屋台とかある？」*
 
-Kraken baked goods," he said. The merman grill is so bad, you'd better not touch it."
+“Try the Kraken grill. The merman grill is pretty nasty, so you might want to avoid that.”
 
 *「クラーケン焼きだな。マーマン焼きはえぐいから手を出さない方が良いぞ」*
 
-I don't mind the Kraken because he's a squid, but I certainly don't want to be a merman.
+“Kraken is squid, so that’s fine, but I definitely want to steer clear of the merman, yeah.”
 
 *「クラーケンはイカだからいいとして、マーマンは確かに遠慮したいなぁうん」*
 
 &nbsp;
 
-And thus, I asked for recommendations at the next stall as well, and bought many seafood items for several people at a time.
+And so, I asked for recommendations at the next stall and bought a bunch of seafood in portions for several people.
 
 *と、こうして次の屋台でもおススメを聞いて沢山の海産物を数人前ずつ買っていった。*
 
-...... mmm!
+…Hmm!
 
 *……むむ！*
 
 &nbsp;
 
-There is a beautiful vendor!
+There’s a beautiful salesgirl!!
 
 *美人の売り子さんがおる！！*
 
 &nbsp;
 
-Oh, miss. Will you buy our iso-nikomi for me, too?　Can you eat that much?"
+“Oh, young lady. Are you going to buy our sea stew too? Can you eat that much?”
 
 *「あらお嬢さん。ウチの磯煮込みも買っていってくれるの？　そんなに食べられる？」*
 
-I'm sure there are plenty of kids with plenty to eat at the destination where I'm delivering the goodies.
+“There are plenty of hungry kids at the place I’m delivering souvenirs to, so it’s all good!”
 
 *「お土産を届ける先に食べ盛りの子が沢山いるので大丈夫ですよー」*
 
-Hmmm. Orphanage or somewhere?"
+“Hmm. An orphanage or something?”
 
 *「ふぅん。孤児院かどこか？」*
 
-That's about it.
+“Well, something like that.”
 
 *「まぁそんなとこです」*
 
 &nbsp;
 
-She was a beautiful woman with a bandana on her head and shorts that gave her a pirate's touch.
+She had a bandana on her head and wore shorts, giving off a pirate vibe.
 
 *頭にバンダナ、ショートパンツという、海賊みを感じる美人さんだった。*
 
@@ -222,57 +222,57 @@ She was a beautiful woman with a bandana on her head and shorts that gave her a 
 
 &nbsp;
 
-This is a pretty good SP to expect!
+This could lead to some serious SP!
 
 *これは、結構なＳＰが期待できる！！*
 
-He seemed friendly, and I wondered if I could get a pair of wang socks if I asked him ......, and I started talking to him with my intention.
+She seems friendly, and I thought maybe I could get a pair of socks if I asked her… so I gathered my courage and decided to speak up.
 
 *気さくな感じで、頼んだらワンチャン靴下を手に入れることができないだろうか……と思い、私は意を決して話を切り出した。*
 
 &nbsp;
 
-"By the way, nice sister ......, well, I know you'll be surprised that I'm suddenly saying this, but ...... would you be willing to sell me your sister's socks!"
+“By the way, lovely lady… um, I think you might be surprised by this sudden request, but… would you sell me your socks?!”
 
 *「ところで素敵なお姉さん……その、突然こんなことを言うのは驚かれると思うんですけど……お姉さんの靴下を売ってくれませんか！？」*
 
-"Hm?　Socks?"
+“Hmm!? S-socks?”
 
 *「んん！？　く、靴下？」*
 
-"I'll pay you, ...... that, I need a pair of socks from a beautiful woman to treat my sick sister!"
+“I’ll pay you… um, I need a beautiful lady’s socks for my sick sister’s treatment!”
 
 *「お金払うので……その、病気の妹の治療に美女の靴下が必要なんです！」*
 
-What kind of disease is that?
+“What kind of illness is that!?”
 
 *「どんな病気だいそれ！？」*
 
 &nbsp;
 
-I think it's probably a headache.
+I think it’s probably a mental illness.
 
 *多分、頭の病気だと思うんだよなぁ。*
 
 &nbsp;
 
-'Well, look, do you think it's ingredients for magic potions or something like that?
+“Well, you know, I think it’s something like materials for a magic potion?”
 
 *「えーと、ほら、魔法薬の材料とかそんな感じだと思います？」*
 
-I see. The material for magic potions. ...... but we can't sell the socks."
+“Oh, I see. Materials for a magic potion… but I can’t sell my socks.”
 
 *「あーなるほどねぇ。魔法薬の素材か……でも、靴下は売れないよ」*
 
-I'll pay you in Chinese silver coins, Chinese silver coins!"
+“I’ll pay you in middle silver coins!”
 
 *「中銀貨、中銀貨払いますから！」*
 
-I'm wearing sandals. I don't have any socks. Sorry."
+“It’s not that! You see, I’m wearing sandals. Besides, I don’t have any fancy socks. Sorry.”
 
 *「そうじゃなくて、私ほら、サンダルだし。ってか、靴下なんて上等なモン持ってないんだよ。悪いね」*
 
-"What ...... is ......?"
+“W-what…?”
 
 *「なん……だと……？」*
 
@@ -280,15 +280,14 @@ I'm wearing sandals. I don't have any socks. Sorry."
 
 &nbsp;
 
-I have learned one truth about the world.
+I learned one truth about the world.
 
 *私は世界の真理を一つ知った。*
 
-Just because she's beautiful doesn't mean she wears socks. ......
+Just because someone is beautiful doesn’t mean they’re wearing socks…!
 
 *美女だからといって、靴下を履いているとは限らないのだ……！*
 
 &nbsp;
 
 &nbsp;
-

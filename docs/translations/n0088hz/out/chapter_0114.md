@@ -1,42 +1,42 @@
-# NTR destroys the brain. ......
+# NTR destroys the brain...!
 
 ## ＮＴＲは脳を破壊する……ッ！
 
 &nbsp;
 
-The forest in the dungeon was not very wide on the upward side, but it seemed to be quite wide in the flat direction.
+The forest inside the dungeon wasn't very wide in the upper area, but it seemed quite spacious in the horizontal direction.
 
 *ダンジョン内にあった森は、上方面にはあまり広くなかったが、平面方向には結構広くなっているようだった。*
 
 &nbsp;
 
-Perhaps this is a space that has been expanded by spatial magic. I still think there is a theory that dungeons = spatial magic users.
+This is probably a space that has been expanded with space magic. I do think there is a theory that dungeons = users of space magic.
 
 *恐らくこれ、空間魔法で拡張した空間になっているのだろう。やはりダンジョン＝空間魔法の使い手という説はあると思う。*
 
-One learns from nature as one's master. Like discovering the force of attraction by watching an apple fall or mastering the mantis with a praying mantis as a teacher, it may be possible for me to learn more spatial magic with the dungeon as my teacher.
+People learn from nature as their teacher. Just like discovering gravity by watching an apple fall, or learning Mantis Fist from a mantis as a master, it might be a good idea for me to learn further space magic with the dungeon as my teacher.
 
 *人は自然を師に学ぶもの。リンゴが落ちるのを見て引力を発見したり、カマキリを師匠にして蟷螂拳を習得したり、そういう感じで私もダンジョンを師匠として更なる空間魔法を学ぶというのもアリかもしらんね。*
 
 &nbsp;
 
-I mean, I just noticed that when I'm in this place - in a spatial magic that is not my own ...... that, I get pretty drunk. I wonder if there is a difference between the space that my body is aware of and the space that my head is aware of, even though my body is aware of the space as it should be,...... woebegone.
+By the way, I just realized that being in this place—inside someone else's space magic—makes me... well, quite dizzy. I wonder if it's because my body understands the original space, but there's a difference from the space my mind recognizes... ugh.
 
 *というか、さっき気が付いたんだけど、この場所――自分のじゃない空間魔法の中――にいると……その、結構酔う。なんだろう、身体は本来の空間を把握しているのに頭で認識している空間と差異があるとかなんだろうか……うぉえっぷ。*
 
 &nbsp;
 
-"I feel like I'm seasick...... or maybe VR sickness......"
+"It's just like seasickness... no, maybe it's VR sickness..."
 
 *「まるで船酔い……いや、ＶＲ酔いかなぁ……」*
 
 &nbsp;
 
-I barely haven't thrown up, but at this rate, it will only be a matter of time before my stomach reverses itself. Oh, dungeon, what a trap.
+I'm barely holding back from vomiting, but at this rate, it's only a matter of time before my stomach reverses. Curse you, dungeon, what a trap.
 
 *辛うじて吐いてはいないけど、このままだと胃袋がリバースするのも時間の問題だろう。おのれダンジョンめ、なんというトラップ。*
 
-Maybe this is why I went into Isiah's room by mistake: ......
+I probably entered Aisia's room by mistake because of this...
 
 *多分間違えてアイシアの部屋に入っちゃったのもこれが原因だよ……*
 
@@ -44,129 +44,129 @@ Maybe this is why I went into Isiah's room by mistake: ......
 
 &nbsp;
 
-Since we had no choice, we decided to return to the storage space at once.
+Since there's no helping it, I decided to return to the storage space for a while.
 
 *仕方がないので、一旦収納空間に帰還することにした。*
 
 &nbsp;
 
-Oh, that's too tight. I'm sorry, ......, but neither Deere nor Isiah are here."
+"Ah, this is tough. I'm back... Wait, neither Dia-kun nor Aisia is here."
 
 *「あー、きっつ。ただいまぁ……って、ディア君もアイシアもいないのか」*
 
 &nbsp;
 
-It is late afternoon and the sun is still high in the sky. I wonder if they are going sightseeing or shopping in Carcassa. I'm a little worried about ....... I'll keep an eye on them. Eiyei, mmmm!
+It's still a bright afternoon. I wonder if they went sightseeing or shopping in Calcutta... I'm a bit worried. I should check on them. Here we go, here we go!
 
 *時刻はまだ日の高い昼下がり。二人はカルカッサの観光なりお買い物なりに行ってるんだろうか。……少し心配だな。様子を見ておこう。えいえい、むんっ！*
 
 &nbsp;
 
-'--"How about this, Ms. Isiah?"
+‘—Aisia-san, how about this?’
 
 *『――アイシアさん、これなんてどうでしょうか？』*
 
-'Oh, it's lovely!　As I thought, Dear-sama has good taste--'
+‘Oh, it's cute! As expected, Dia-sama has good taste—’
 
 *『お、可愛いですね！　やはりディア様はセンスがある――』*
 
 &nbsp;
 
-I gently closed the window as I made sure they were safe.
+I confirmed the safety of the two and quietly closed the window.
 
 *私は二人の無事を確認したのでそっと窓を閉じた。*
 
-Looks like he is buying ...... accessories. Is she on a date?
+...It seems they are buying accessories. Are they on a date?
 
 *……アクセサリーを買っているようだ。デート中かな？*
 
-When did you become such a good friend ......?　Aisia, you said you adore me, right?　Dia, you said you don't need me anymore as your first love!
+When did they become that close...!? Aisia, you said you admired me! Dia-kun, you said you were over your first love!?
 
 *いつのまにそんな仲に……っ！？　アイシア、私のことお慕いしてるっていってくれたじゃんよう！　ディア君も初恋の私はもう良いって！？*
 
 &nbsp;
 
-Ugh, I feel so alienated! ...... No, wait, maybe it could be a surprise present for me!
+Ugh, the feeling of being left out! ...Wait, maybe this could be a surprise present for me!?
 
 *うう、疎外感っ！……いやまて、もしかしたら私へのサプライズプレゼントという線も考えられるのではなかろうか！？*
 
-I glance at it again.
+I peeked in again.
 
 *もう一度ちらっと覗いてみる。*
 
 &nbsp;
 
-'--Yes, it suits you, Mr. Dear!
+‘—Yeah, it suits Dia-sama!’
 
 *『――うん、ディア様にお似合いです！』*
 
-'Really?　Well, then, I guess I'll buy one...'
+‘Is that so? Hmm, then, um, shall I buy it—’
 
 *『そうですか？　んー、なら、その、買ってみますか――』*
 
 &nbsp;
 
-Close quickly.
+I quickly closed it.
 
 *スッと閉じる。*
 
-Daaaaah!　It was Dear's personal shopping!　He bought a cute ribbon!
+Daaaah! It was Dia-kun's personal shopping! He was buying a cute ribbon!
 
 *だぁあああ！　ディア君の個人的お買い物だったぁ！　可愛いリボン買ってたぁ！*
 
-Oh no!　This is a date!　You made me an outcast, and now you're on a date with me!
+No way! This is a date! They're dating while leaving me out!
 
 *やーだー！　デートじゃんコレぇ！　私のけ者にしてデートしてんじゃんコレぇ！*
 
 &nbsp;
 
-Well, I'm a man on the inside, so I can't answer to your feelings yet!　Aisia is my slave too, so I have to treat her with a firm attitude as a master!
+Sure, I'm a guy on the inside, and I still can't respond to Dia-kun's feelings! But Aisia is my slave, so I have to maintain a dignified attitude as her master!
 
 *そりゃー、私中身男だし、ディア君の気持ちにはまだ答えらんないけどぉ！　アイシアだって私の奴隷だからご主人様として毅然とした態度で接しないとなんだけどぉ！*
 
-If they get together, I'll be holed up in my own storage space!　I'll be purified by the vibrations of lovemaking!　Help me, Satyoooooooooooooooooooooooooooooooooooooooooooooooooooooooo!
+If those two get together, even though this is my own storage space, I’ll be left out!! I’ll be purified by their lovey-dovey vibes! Help me, Satiiiiiii!!
 
 *二人がくっついちゃったら私、ここ自分の収納空間なのにハブられちゃうじゃんよぅ！！　ラブラブの波動に浄化されちゃうよぅ！　助けてサティたーーーーん！！*
 
 &nbsp;
 
-...... flicker.
+...Peek.
 
 *……ちらっ。*
 
 &nbsp;
 
-"Well done.
+‘—Well done.’
 
 *『――よくできましたね』*
 
-Ehehehe."
+‘Hehe.’
 
 *『えへへ』*
 
 &nbsp;
 
-Aah!　Ahh!　Dia is stroking Isiah's head!
+Ah! Ah! Dia-kun is petting Aisia's head!
 
 *あー！　あー！　ディア君がアイシアの頭なでなでしてるぅー！*
 
-Oh no, I'm going to throw up. I'm going to throw up. ntr destroys the brain. ......
+Oh no. I feel like throwing up. NTR destroys the brain...!
 
 *やべぇ。吐きそう。ＮＴＲは脳を破壊する……ッ！*
 
 &nbsp;
 
-
+"Uroooooo..."
 
 *「おろろろろ……」*
 
 &nbsp;
 
-I transitioned to the bathroom and reversed the contents of my stomach.
+I teleported to the bathroom and reversed the contents of my stomach.
 
 *私はトイレへ転移し、胃袋の中身をリバースした。*
 
-...... Oh, I'm sorry, Mr. Scavenger Slime. I let you deal with what I took out of the top. ...... Oh, this is okay. Hmmm, I knew it was a deep karmic life form.
+...Ah, I'm sorry, Scavenger Slime-kun. I made you process what came out from above... Oh, this is okay. Hmm, it really is a deep karma for a living being.
 
 *……あー、ごめんよスカベンジャースライム君。上から出したものを処理させてしまったわ……あ、これは大丈夫なのね。うーん、やっぱ業が深い生命体よのぅ。*
 
@@ -174,55 +174,55 @@ I transitioned to the bathroom and reversed the contents of my stomach.
 
 &nbsp;
 
-Ugh. But it was ribbons I was buying. In other words, she seems to be on her way to becoming a man's daughter, and as an ornamental pretty boy girl, it's the right thing to do, you know. Should I be happy about this ......?
+Ugh. But what they were buying was a ribbon. This means I'm progressing smoothly on the path of being a cute boy, which is correct as a beautiful girl for appreciation. Should I be happy about this...?
 
 *うぅぅ。でも購入してたのはリボンだった。つまりこれは順調に男の娘の道を進んでるようで、観賞用美少女な男の娘としては正解であるからしてぇ。喜ぶべきなんだろうかコレぇ……？*
 
-Ha. Yes, growing up as a man's daughter just means two girls going out and shopping together. It's a date, or rather, a date, but not a man-woman date!　It's a yuri friendship date!
+Ah. That's right, growing as a cute boy means that they are just two girls going out shopping together. It's a date, but not a typical boy-girl date! It's a yuri friendship date!
 
 *はっ。そうだよ男の娘として成長してるってことは、ただ二人でお出かけしてお買い物してる女の子二人ってことじゃん。デートっていうか、デートだけど、男女のそれじゃない奴じゃん！　百合友情デートじゃん！*
 
 &nbsp;
 
-I glance at them again. Spatial magic, ei, ei, mmm!
+I peeked at the two again. Space magic, here we go, here we go!
 
 *もう一度、ちらっと二人の様子を覗き見してみる。空間魔法、えい、えい、むん！*
 
 &nbsp;
 
-Dear, I will carry your baggage.
+‘—Dia-sama, I'll carry the bags!’
 
 *『――ディア様、荷物は私が持ちますよっ』*
 
-I can carry this much. I can't let you carry it.
+‘It's okay, I can carry this much. I can't let Aisia-san carry it—’
 
 *『大丈夫です、これくらいボクが持ちます。アイシアさんに持たせるわけにも――』*
 
 &nbsp;
 
-Hebuaaaaah!
+Hehbaaaaaah!
 
 *へぶぁああああ！*
 
-Dia-kun was doing a handsome move that didn't let the girls carry the baggage.
+Dia-kun was doing a cool move by not letting a girl carry the bags.
 
 *ディア君が女の子に荷物を持たせないイケメンムーブしてたぁ。*
 
-Ugh, so cool and cute.
+Ugh, so cute.
 
 *ううう、かっこ可愛いいよぅ。*
 
-Oh, calm down. Calm down, me. Deep breath ...... sooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo.
+Calm down. Calm down, me. Deep breath... in, out, in, out.
 
 *お、落ち着け。落ち着くんだ私。深呼吸……すー、はー、すー、はー。*
 
 &nbsp;
 
-Ugh, I wonder if that's it. I wonder if this is a trend of them getting together.
+Ugh, is this the flow where those two get together?
 
 *うう、アレかなぁ。これ二人がくっついちゃう流れなのかなぁ。*
 
-If so, I'm super sad, but I have to congratulate you. ......, kuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu... ......
+If that's the case, I'll be super lonely, but I have to bless them... ugh...
 
 *だとしたら超寂しいけど、祝福しないとぉ……っ、くぅうっ……*
 
@@ -230,13 +230,10 @@ If so, I'm super sad, but I have to congratulate you. ......, kuuuuuuuuuuuuuuuuu
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(*NTR is not a NTR)
+(Note: This is not NTR)
 
 *（※ＮＴＲではありません）*
-

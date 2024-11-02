@@ -1,228 +1,227 @@
-# I don't deny that.
+# I won't deny that
 
 ## それは否定しない
 
 &nbsp;
 
-Container in a Japanese-style backyard. A western style comfortable space in it. I am relaxing there.
+A container in a Japanese-style backyard. A comfortable Western-style space inside. I relax leisurely there.
 
 *和風な裏庭の中にあるコンテナ。その中の洋風な快適空間。そこでのんびりくつろぐ私。*
 
-By the way, I went back to my base and slept normally at night. There is no need to spend the night in the container. If you lock the door securely from the inside and return to the base, it is a comfortable home.
+By the way, I returned to my base and slept normally at night. There's no need to spend the night in the container. As long as I lock it securely from the inside and return to my base, it's my comfortable usual home.
 
 *ちなみに夜は普通に拠点に帰って寝た。コンテナの中で夜を明かす必要ないからね。内側からしっかり鍵をかけて拠点に戻れば快適ないつものお家さ。*
 
 &nbsp;
 
-"Your tea, sir."
+"Master, here's your tea."
 
 *「あるじ様、お茶です」*
 
-Yeah, thanks, Isiah."
+"Yeah, thanks, Aisia."
 
 *「うん、ありがとうアイシア」*
 
 &nbsp;
 
-I sipped the tea that Isiah had brewed for me and breathed a sigh of relief. Well, today is going to be another good day.
+I sip the black tea Aisia made for me and let out a sigh. Ah, it looks like today will be a good day too.
 
 *アイシアが淹れてくれた紅茶をすすり、ほぅと一息。いやぁ、今日もいい一日になりそうだ。*
 
-And then came the pet. He was wearing his underpants. Hasn't this cat got any shame? I'm going to pet her bottom.
+Just then, my pet came over. With its pants completely exposed. Does this cat have no shame? I'm going to pet its butt.
 
 *と、そこにペットがやってきた。パンツ丸出しである。恥じらいはないのかこの猫はよ。尻撫でるぞ。*
 
 &nbsp;
 
-"Whaaa...... good morning nyah!"
+"Yawn... good morning, nya."
 
 *「ふぁぁ……おはようにゃー」*
 
-Good morning Misha. I think you should wear a skirt or something underneath."
+"Good morning, Misha. I think you should wear a skirt or something down there."
 
 *「おはようミーシャ。下はスカートとか穿いた方が良いと思うよ」*
 
-Your wife was stroking my ass all over again yesterday. ...... You can complain to her, it's not my fault."
+"Yesterday, your wife petted my butt a lot, nya... You should complain to her, I'm not at fault, nya."
 
 *「昨日もおめーの嫁さんに尻撫でられまくったんにゃよ……文句はそっちに言えにゃー、私は悪くねーにゃ」*
 
 &nbsp;
 
-No, I'm not complaining about anything. Misha, she's a beautiful girl to look at, and she's eye candy enough.
+Well, I don't have any complaints. Misha looks like a beautiful girl, so it's quite a treat for the eyes.
 
 *いや別に文句はないけどね。ミーシャ、見た目は美少女だから十分眼福だし。*
 
 &nbsp;
 
-I'll wear them when I go out. I mean, there are only women here, so don't worry about it, right?　Ah. I wonder if Arthur is a male. Well, he's a dragon, so it doesn't matter.
+"I'll wear something when I go outside, nya. Besides, there's only girls around, so there's nothing to worry about, nya? Oh, Arthur is a male, right? Well, he's a dragon, so it doesn't matter, nya."
 
 *「ちゃんと外出る時には穿くにゃ。ってか、女しか居ねぇんだから気にすることねーにゃん？　あ。アーサーはオスだっけかにゃ。まぁドラゴンだし関係ないにゃんね」*
 
-"............ I guess so!　Well, as long as I'm the one looking at you sexually, it's all good, right?"
+"........... That's true! Well, it's not a problem if I look at you with lewd eyes, right?"
 
 *「…………そうだね！　まぁ私がエッチな目で見る分には問題ないよね？」*
 
-I knew you'd wear them. Well, you're a guy who can get it on with a woman."
+"You should definitely wear something. Speaking of which, you were able to handle it even if it was a girl, huh?"
 
 *「やっぱ穿くにゃ。そういやオメーは女でもイケるクチだったにゃ」*
 
-"Excuse me. That makes it sound like I could be a man.
+"How rude. That would mean I could handle it even if I were a boy."
 
 *「失敬な。それだと私が男でもイケるようじゃないか」*
 
 &nbsp;
 
-However, since Dia-kun is Dia-kun, I will make an exception.
+By the way, let's consider Dear-kun an exception since he's Dear-kun.
 
 *尚、ディア君はディア君なので例外とする。*
 
-Casually, Aisia serves Misha toast, fried eggs, and salad for breakfast. Misha sits down at the table and eats.
+Aisia casually serves Misha breakfast: toast, fried eggs, and salad. Misha sits at the table and starts munching away.
 
 *さりげなくアイシアがミーシャに朝ごはんのトーストと目玉焼き、サラダを出す。テーブルについてはぐはぐと食べるミーシャ。*
 
 &nbsp;
 
-So, are we going to find this dragon and negotiate with him today?
+"So, are we going to look for that dragon and negotiate today, nya?"
 
 *「で、今日は件のドラゴンを探して交渉するのかにゃ？」*
 
-Yes."
+"That's right."
 
 *「そうだね」*
 
-......Seriously, Karina is that dragon maiden princess thingy?"
+"......Is it true that Karina is the dragon priestess, nya?"
 
 *「……マジでカリーナって龍の巫女姫ってやつなんにゃん？」*
 
-What are you talking about? Princess is a title that is only appropriate for you, Dia.
+"What are you talking about? The title of 'princess' is more fitting for Dear-kun."
 
 *「何言ってんの。姫ってのはディア君にこそふさわしい称号じゃんか」*
 
-No, that's true, but in the sense of being able to talk to a dragon as an equal."
+"Well, that's true, but I mean in the sense of being able to talk on equal terms with a dragon, nya."
 
 *「いや、それはそうだけども、ドラゴンと対等に話せる的な意味でにゃよ」*
 
 &nbsp;
 
-Hmmm. I would certainly have to say that by that definition I am.
+Hmm. Indeed, if that's the definition, I can't help but say that I am.
 
 *ふむ。確かにその定義なら私がそうだと言わざるを得ない。*
 
 &nbsp;
 
-I'm stronger than the dragon. My fists will break the dragon's fangs."
+"Well, I'm stronger than a dragon anyway. My fist can break a dragon's fang."
 
 *「まぁ私の方がドラゴンより強いし。私の拳はドラゴンの牙を折るよ」*
 
-"Hahahaha, I'm joking. What kind of fist is harder than a dragon's fangs?
+"Hahaha, stop joking, nya. What kind of fist is harder than a dragon's fang?"
 
 *「ハハハ、冗談よすにゃ。ドラゴンの牙より硬いってどんな拳にゃそれ」*
 
-These are Arthur's fangs, the ones I knocked out before.
+"This one, the fang of Arthur that I broke before."
 
 *「これ、前に殴り折ったアーサーの牙ね」*
 
 &nbsp;
 
-He takes out Arthur's fangs, which he had previously beaten and broken with spatial magic, and shows them to him.
+I take out Arthur's fang that I broke before using spatial magic and show it.
 
 *空間魔法で以前殴り折ったアーサーの牙を取り出し、見せる。*
 
 &nbsp;
 
-"Oh, really?"
+"Wait, seriously?"
 
 *「え、マジ？」*
 
-If you think I'm lying, ask Arthur. Why do you think Arthur is here in the first place?"
+"If you think it's a lie, ask Arthur. Why do you think Arthur is staying with me in the first place?"
 
 *「嘘だと思うならアーサーに聞いてみなよ。そもそもなんでアーサーがウチに居ると思ってんのさ」*
 
-Because ...... Deere is so cute?"
+"......Because Dear-chan is cute?"
 
 *「……ディアちゃんが可愛いから？」*
 
-I don't deny that."
+"I won't deny that."
 
 *「それは否定しない」*
 
 &nbsp;
 
-And then Mr. Dear and Arthur woke up there, too.
+At that moment, Dear-kun and Arthur also woke up.
 
 *と、そこでディア君とアーサーも起きてきた。*
 
-However, she is well dressed and today she is still in her miko princess costume - a gothic lolita dress.
+That said, they both tidied themselves up properly and are wearing their priestess outfits today—gothic lolita dresses.
 
 *とはいえ、しっかりと身嗜みを整えていて今日も巫女姫衣装――ゴスロリドレスである。*
 
-I'll at least put a headdress on Arthur, I'll lend you mine?
+Should I lend Arthur a headpiece too?
 
 *アーサーにもヘッドドレスくらい付けてやろうかな、私のヤツ貸すよ？*
 
 &nbsp;
 
-Good morning, you two.
+"Good morning, you two."
 
 *「おはよー二人とも」*
 
-Good morning. I forgot it's this way today."
+"Good morning. I forgot that we were here today."
 
 *「おはようございます。今日はこっちだって忘れてました」*
 
-Hello, everyone!　Today is the day of the battle with the dragon, isn't it?　Please show them your power!
+"Yo! Today is finally the day to battle the dragon! Please show us your power, sis!"
 
 *『ちーっす！　今日はいよいよドラゴンとバトルっすね！　姐さんの力を見せつけてやってくださいっす！』*
 
 &nbsp;
 
-Arthur is in the groove. And he's ready to make me work for him.
+Arthur is really pumped up. And he's fully intent on making me work.
 
 *アーサーもノリノリだ。そして私に働かせる気満々だ。*
 
-I was wondering about the second dragon too, and I don't mind.
+I've been curious about the second dragon too, so it's fine by me.
 
 *私も２匹目のドラゴンが気になってたし、別にいいけどね。*
 
 &nbsp;
 
-...... By the way, didn't you say that breakfast would be served at Yohki's house?"
+"......By the way, didn't you say that breakfast would be served at Youki's house?"
 
 *「……ところで、朝ごはんはヨウキさんのお宅で出してくれるって言ってませんでした？」*
 
-Ah."
+"Ah."
 
 *「あっ」*
 
 &nbsp;
 
-Come to think of it, that's what we talked about. Oh shoot, I accidentally ate it.
+Now that you mention it, we did talk about that. Oops, I accidentally ate already.
 
 *そういえばそんな話もしてた。しまった、うっかり食べちゃったよ。*
 
-And I look at Misha, who is eating breakfast in progress.
+I look at Misha, who is currently in the process of eating breakfast.
 
 *と、現在進行形で朝ごはんを食べているミーシャを見る。*
 
 &nbsp;
 
-...... I'll eat two meals!"
+"......I'm going to eat two servings, nya!!"
 
 *「……私は２食分食べるにゃ！！」*
 
-Misha," she said, "you're a glutton. Good, good, good."
+"You're really greedy, Misha. Alright, alright."
 
 *「食い意地張ってるなぁミーシャ。よーしよしよし」*
 
-'At least pet my chin or my head instead of my butt, meow!
+"At least pet me on my chin or head instead of my butt, nya!?"
 
 *「せめて尻じゃなくて顎とか頭とか撫でろニャー！？」*
 
 &nbsp;
 
-Wow, this ass is really comfortable to stroke. That's a god butt!
+Ah, it's really nice to pet this butt. Truly a divine butt!
 
 *いやー、ほんと撫で心地よくてこの尻。さすが神尻だね！*
 
 &nbsp;
-

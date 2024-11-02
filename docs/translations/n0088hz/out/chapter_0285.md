@@ -4,177 +4,176 @@
 
 &nbsp;
 
-Tch. Misha!　Show the maid what you got!"
+“Chh. Misha! Show the maid what you can do!”
 
 *「チッ。ミーシャ！　メイドに目にもの見せてやれっ！」*
 
-Oh, you're in charge!　Leave it to me!"
+“Okay! Leave it to me!”
 
 *「おう！　任せるにゃ！」*
 
 &nbsp;
 
-Misha, without any hesitation, punches the maid. However, the maid gently put her hand on Misha's fist, and Misha spun around and fell down.
+Without any hesitation, Misha lunges at the maid. However, the maid gently places her hand on Misha's fist, causing Misha to spin and fall over in a vertical roll.
 
 *何の躊躇もなくメイドに殴り掛かるミーシャ。だが、メイドはミーシャの拳にそっと手を当てると、くるんとミーシャが縦回転でスッ転んだ。*
 
 &nbsp;
 
-Bunyooooooooooooooooooooooooooooooooooooooooooooooooooooooooo!"
+“Bunyaaaaa!?”
 
 *「ぶにゃーーーーー！？」*
 
 &nbsp;
 
-Misha falls down on the bed with a thud!　Misha falls down on the bed with a mighty thud.
+Misha crashes onto the bed with a thud!
 
 *ベッドにぼっすん！　と勢いよく倒れ伏すミーシャ。*
 
 &nbsp;
 
-Is this guy an aiki user?
+“This one, is she a master of Aikido!?”
 
 *「こいつ、合気の使い手か！？」*
 
-No, sir. No, just that you also use the Chao-ryu school of aiki, Sir."
+“No, it’s just that her style is the Chaos Style—she simply uses Aikido, that’s all, dear customer.”
 
 *「いいえ。流派、混沌流――合気も使う、というだけですわお客様」*
 
 &nbsp;
 
-That said, a maid homunculus doing curtesy in a maid's uniform.
+The maid homunculus says this while performing a curtsy in her maid outfit.
 
 *そう言ってメイド服でカーテシーをするメイドホムンクルス。*
 
-...... has been opening a pit at my feet for a while now, but I can't fall in!
+…By the way, she has been opening a pitfall at my feet since earlier, but I’m not falling!
 
 *……ってかさっきから足元に落とし穴を開いているのだが、落ちない！*
 
-This guy's floating!　What's going on?
+She’s floating, isn’t she!? What’s going on!?
 
 *こいつ、浮いてやがるぞ！？　どうなってんだ！*
 
 &nbsp;
 
-As a maid, you must be able to work on unstable footholds. Therefore, these shoes are special. It is a divine weapon, the "sky joke. It's a scaffold weapon that runs like a joke in the sky.
+“As a maid, one must be able to work even on unstable ground. Therefore, these shoes are special. They are the divine tool ‘Kū Jōdan.’ A divine tool for traversing the sky like a joke.”
 
 *「メイドたるもの、不安定な足場でもお仕事できなければいけません。故に、この靴は特別性。神器『空冗談』ですわ。空を冗談のように駆ける、足場の神器ですの」*
 
-I'd like to share with you the divine ......!　That's a very nice explanation, thank you. ...... Tei!
+“Divine tool…! Thanks for the detailed explanation… hey!”
 
 *「神器……！　そいつぁご丁寧に解説どうも……てい！」*
 
 &nbsp;
 
-This time, the magic is dropped from the ceiling in the opposite direction, as if it were a net. But, like a metastasis, it moved in an instant and was avoided. Only the bed and Misha entered the storage.
+This time, she drops a net-like spatial magic from the ceiling. However, she dodges it in an instant, as if teleporting. Only the bed and Misha ended up in the storage.
 
 *今度は逆に天井から網のように空間魔法を落とす。が、転移の如く一瞬で移動、避けられる。収納に入ったのはベッドとミーシャだけだった。*
 
 &nbsp;
 
-That's another effect of the shoes!"
+“Is that also the effect of the shoes!?”
 
 *「それも靴の効果か！？」*
 
-'No, this is the effect of this maid's uniform--the Divine Apparatus "Poet Mother etc.". It's a sacred weapon designed to go join a well meeting immediately at any time. It allows for super speed."
+“No, this is the effect of this maid outfit—the divine tool ‘Shimotō.’ It was created to allow immediate participation in gossip sessions. It enables super speed.”
 
 *「いえ、これはこのメイド服――神器『詩母等』の効果です。井戸端会議にいつでもすぐ参加しに行くために作られた神器ですわ。超スピードを実現しますの」*
 
 &nbsp;
 
-The maid homunculus says so and moves behind me. I released Misha from storage and bumped him. Misha collapsed on the floor.
+The maid homunculus says this and moves behind me. I release Misha from the storage and throw her. …She dodges, and Misha falls flat on the floor.
 
 *メイドホムンクルスはそう言って私の後ろに移動する。私は収納からミーシャを放出しぶつけた。……避けられ、ミーシャはべちゃっと床に倒れた。*
 
 &nbsp;
 
-Unyah, you're being handled badly, Karina!"
+“Ugh, your handling is terrible, Karina!”
 
 *「うにゃあ、扱いがひでーぞカリーナ！」*
 
-They have more than one sacred object, so be on your guard, Misha!"
+“That one has multiple divine tools, don’t let your guard down, Misha!”
 
 *「あっちは神器複数持ちだとよ、油断するなよミーシャ！」*
 
-"Divine artifacts!　Seriously, ......, is there anything we can do to counter it with a sacred weapon?
+“Divine tool!? Seriously… do we have anything to counter that with a divine tool!?”
 
 *「神器！？　マジか……こっちも神器で対抗するにゃ、なんかねーの！？」*
 
 &nbsp;
 
-I don't know if it is really a sacred object or not. However, there is no doubt that there is something that has the same performance as a sacred object.
+The maid’s words invoke the Chaos God, but it’s unclear whether it’s really a divine tool. However, there’s no doubt that there’s something with divine tool-level performance.
 
 *混沌神を呼称させるメイドの言だ、本当に神器かどうかは分からない。が、神器並みの性能の何かがあるのは間違いない。*
 
 &nbsp;
 
-Activate--stop.
+“Activate—stop!”
 
 *「起動――止まりなさい」*
 
-Ugh!"
+“Ugh!?”
 
 *「うぐっ！？」*
 
 &nbsp;
 
-As if the air around me was solidified by spatial magic, my movement was stopped. I used spatial magic to transfer a short distance and escaped from the restraints.
+It feels as if the surrounding air has solidified with spatial magic, halting my movements. I used spatial magic to teleport a short distance and escaped the restraint.
 
 *空間魔法で周りの空気を固められたかのように、私の動きが止められる。空間魔法で短距離転移し、拘束から逃げた。*
 
 &nbsp;
 
-The "Oh, well, I didn't know that this maid catsuit's divine weapon, the "Head Demon Inclusion," which stops and drops any mosquito or vampire, doesn't work. It seems our guest is the real deal. Then, next, it is the turn of this cufflink, the divine weapon 'Reaction Maru'. Ei-ei-ei."
+“Oh my, to think that even the ‘Demon Lord’s Package’ divine tool of this maid headband cannot stop you. You seem to be the real deal, dear customer. Now, it’s time for this cufflink, the divine tool ‘Rebound Maru.’ Here we go!”
 
 *「おやおや、いかなる蚊でも吸血鬼でも止めて落とす、このメイドカチューシャの神器『首領鬼包停』が効かないとは。お客様は本物のようですね。では次はこのカフスボタン、神器『反動丸』の出番です。えいえい」*
 
 &nbsp;
 
-A pebble pangs from the cufflinks on my wrist!　Pebbles explode from the cufflinks on my wrist!　They fly from the cufflinks on my wrists with a resounding "Pang! Like bullets, if you are not careful for even a moment, you will be shot out of your hand.
+From the cufflink on her wrist, small stones go pop! pop! and explode towards me. They come flying like bullets, and if I let my guard down for even a moment, I would be shot through.
 
 *手首のカフスボタンから、小石がパンッ！　パンッ！　と音を立てて爆ぜ飛んでくる。それこそ弾丸のように、一瞬でも気を抜いていたら撃ち抜かれる勢いだ。*
 
 &nbsp;
 
-What the hell is going on here?　That's one hell of an armed maid, what the hell is going on!"
+“Guh, this is one outrageous armed maid, what’s going on here!”
 
 *「ぐ、このっ！　とんでもない武装メイドだな、どうなってやがる！」*
 
-108 sacred weapons adorn my body. Which of the 108 sacred weapons will you use to defeat me?"
+“I adorn myself with 108 divine tools. Now, which divine tool do you think you can defeat me with?”
 
 *「我が身を飾るは１０８の神器。さてあなたはどの神器で倒せるでしょうか？」*
 
-108?　Don't tell me a bunch of lies!
+“108!? Don’t just spout nonsense!”
 
 *「１０８ぃ！？　嘘八百並べてんじゃねぇぞ！？」*
 
-"If that's what you think, then you should just shut your eyes to the facts and think that's what you want to think."
+“If you think so, then it’s fine to close your eyes to the truth and believe that.”
 
 *「そう思われるのであれば、事実に目を瞑りそう思われていればよろしいかと」*
 
 &nbsp;
 
-But when I try to remove the maid's uniform or catsuit with spatial magic, it is played. This is the same reaction as if they were truly divine.
+However, when I try to use spatial magic to strip her maid outfit or headband, I get repelled. This is the same reaction as if it were truly a divine tool.
 
 *だが、私が空間魔法でメイド服やカチューシャを脱がそうとしても弾かれるのだ。これは、本当に神器であるのと同じ反応。*
 
-Don't tell me that the maid is really right and that all the equipment in her body is divine?
+Could it be that, as the maid says, all of her equipment is indeed a divine tool?
 
 *まさか、メイドの言う通り本当に、全身の装備が全部神器だとでもいうのだろうか。*
 
 &nbsp;
 
-"...... Ray, look at me!"
+“...Ray, look over here!”
 
 *「……レイ、こっちを見ろ！」*
 
-'Yes master. ...... oh dear."
+“Yes, Master. …Oh my, oh my.”
 
 *「はいご主人様。……おやおや」*
 
 &nbsp;
 
-Kaoru attracts the attention of the maid homunculus. In her hand was a brown potion with the lid open.
+Kaoru draws the maid homunculus's attention. In her hand, she holds a brown potion with the lid open.
 
 *メイドホムンクルスの注意を引きつけるカオル。その手には、蓋の開いた茶色いポーションが握られていた。*
-

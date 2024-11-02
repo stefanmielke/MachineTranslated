@@ -1,36 +1,36 @@
-# Oh Lord Brave.
+# Oh, brave hero.
 
 ## おお勇者殿。
 
 &nbsp;
 
-The "Aruji-sama, to put it succinctly and plainly, right after that, the drinking party suddenly started. ...... Well, it's just the usual Dwarvish thing to do."
+"To put it simply and clearly for you, right after that, a spontaneous drinking party started with much ado. ...Well, it's just another usual thing for dwarves."
 
 *「あるじ様に簡潔に分かりやすく言いますと、あの直後にやんややんやと突発的に酒宴が開始されまして。……まぁドワーフ的にはいつものことなんですが」*
 
 &nbsp;
 
-They say that when someone starts drinking and people gather there, the drinking party begins.
+It seems that once someone starts drinking and people gather, a drinking party begins.
 
 *誰かがお酒を飲み始めて、そこに人が集まれば酒宴は始まるらしい。*
 
-And it was a kitchen. There was food for snacks, a welcome guest (me) was there, and the food was already prepared, so there was no way it would not be a feast no matter what.
+Especially since it's the kitchen. There were snacks available, and the welcoming guest (me) was there, and with everything prepared, there was no way it wouldn't turn into a drinking party.
 
 *ましてやそこは調理場。つまみの料理もあったし、歓迎する客人（私）もそこにいて、しかも出来上がってるとくればもうあとは何がなくとも酒宴にならない筈がなく。*
 
 &nbsp;
 
-So the old man gathered all the old dwarven women, including grandmothers, and asked them to give him the cute socks they were wearing and eat them, and here we are.
+"So, you, my lord, gathered the older dwarf women, starting with grandma, and sweet-talked them into giving you their cute 'please take my socks' while you were at it, and this is the result."
 
 *「それで、あるじ様はおばあちゃんを初めとして年かさのドワーフ女性を集めて可愛い食べちゃいたい今履いてる靴下頂戴と口説きに口説いて、このありさまです」*
 
 &nbsp;
 
-Wow. I'm still too active when I'm sober.
+Wow. Me with alcohol is still way too active.
 
 *わーお。酒の入った私ってば相変わらずアクティブすぎる。*
 
-I even seduced Sister Harumikazuchi.
+Sister Harumikazuchi was sweet-talking too.
 
 *ハルミカヅチお姉様も口説いたりしてたしよ。*
 
@@ -38,23 +38,23 @@ I even seduced Sister Harumikazuchi.
 
 &nbsp;
 
-By the way, we had all the grandmothers there, and none of the men approached us because they were so uncomfortable. That part was easy."
+"By the way, since you were gathering the grandmas, the men felt awkward and no one approached. That was nice."
 
 *「ちなみにおばあちゃん達を集めてたこともあり、男共は気まずくて誰も近寄ってきませんでした。そこは楽でしたね」*
 
 &nbsp;
 
-Well, yeah. From my point of view, it's a loli harem, but from the dwarf's point of view, he's just about to have an old woman in attendance. I guess he didn't want to get too close. And moreover, it's her immediate family.
+Well, yeah. From my perspective, it's a loli harem, but from the dwarves' viewpoint, it's a situation with old women surrounding me. They probably didn't want to get too close, especially since they are relatives.
 
 *まぁうん。私からしたらロリハーレムだが、ドワーフ視点では老婆を侍らせているところだ。あんまり近寄りたくなかったのだろうね。ましてや肉親だ。*
 
 &nbsp;
 
-You can't "ask out" in front of grandma, can you?　I mean.
+Can you really make a 'proposal' in front of grandma?
 
 *お前、ばーちゃんの前で「お誘い」できんのか？　っていうね。*
 
-It seems that even the quintessential Dwarves could not do it.
+It seems even dwarves found that impossible.
 
 *流石のドワーフでも無理だった模様。*
 
@@ -62,17 +62,17 @@ It seems that even the quintessential Dwarves could not do it.
 
 &nbsp;
 
-'And yet, did I collect all those grandmothers?'
+"Still, did I really gather only grandmas like that?"
 
 *「それにしても、私そんなおばあちゃんばっかり集めてたの？」*
 
-"It seems like they were trying to avoid men, but also attract women who were on the fritz. I think that's what happened. ......
+"It seems you were avoiding men and gathering the leftover women. So, I guess that's how it turned out..."
 
 *「男を避けつつ、あぶれてる女性を集めてたようなので。結果そうなったんじゃないかなぁって……」*
 
 &nbsp;
 
-Uh, yeah. If you're a grandmother, it's only natural that you'd be abducted at a banquet that also doubles as a blind date party (sic). The guys would go for the younger, prettier girls.
+Ah, yeah. It's only natural that grandmas would be left out at a party that also serves as a matchmaking event (if you know what I mean). The men would definitely go for younger, cuter girls.
 
 *あー、うん。おばあちゃんならお見合いパーティー（意味深）も兼ねた宴であぶれるのは当然だよね。男は若くてかわいい女の子の方に行くだろうし。*
 
@@ -80,99 +80,99 @@ Uh, yeah. If you're a grandmother, it's only natural that you'd be abducted at a
 
 &nbsp;
 
-And Isiah's grandmother was peeking into the room. She looked so happy to see me. What's that?
+Then, Grandma Aishia peeked into the room. When she spotted me, her face lit up with joy. How cute.
 
 *と、アイシアのおばあちゃんが部屋をのぞき込んでいた。私を見つけてぱぁっと嬉しそうな顔になる。なにあれ、かわよ。*
 
 &nbsp;
 
-I said, "Oh, ...... Oh, you're awake. Kari. Good morning.
+"Ah... Oh, you're awake, Kari-chan. G-good morning!"
 
 *「あっ……お、起きたんだね。カリちゃん。お、おはよっ」*
 
-Oh. Good morning, Grandmother."
+"Ah. Good morning, Grandma."
 
 *「あ。おばあ様おはようございます」*
 
-I'm so embarrassed to be so old!　Here, I'll give you this!"
+"......～～～Ugh, it's embarrassing at my age! Here, take this!"
 
 *「……～～～ッ、うう、年甲斐もなく恥ずかしいねぇっ！　ほら、これあげるっ！」*
 
 &nbsp;
 
-He lightly taps me on the shoulder with a crack of embarrassment of some kind.
+She lightly tapped my shoulder a few times as a way to hide her embarrassment.
 
 *何かの照れ隠しにパシパシと軽く肩を叩かれる。*
 
-What's with that maidenly reaction? It's cute. A ring?　Wow, what a beautiful angel relief. It's so nice.
+Huh, what's with that girlish reaction? So cute. A ring? Wow, it's a beautifully crafted angel relief. Lovely.
 
 *え、なにその乙女な反応。かわよ。指輪？　わー、凄い綺麗な天使のレリーフ。素敵ぃー。*
 
 &nbsp;
 
-And more other dwarf girls heard it and came up to me when they saw that I was awake. Probably they were the ones I had made to stay with me yesterday.
+Then, other dwarf girls heard that and came over when they saw I was awake. They were probably the ones I had surrounded myself with yesterday.
 
 *と、さらに他のドワーフっ娘がそれを聞いて、私が起きたのを見て寄ってきた。多分私が昨日侍らせていた子たちだ。*
 
-Oh, is it water? Hi, I'm ...... I thought it might be alcohol, but it's water. Thank goodness.
+Oh, is this water? Thanks... Yeah, I thought it might be alcohol, but it was definitely water. I'm glad.
 
 *あ、お水っすか。どもども……うん、下手したら酒かもと思ったけどちゃんとお水だった。よかった。*
 
 &nbsp;
 
-Kari, you should take this. My ex-husband told me that the human race has a hangover, right?　You're so cute. Oh, actually, this cup is handmade by me.
+"Kari-chan, drink this. My late husband used to say that humans get hangovers, right? How cute. Oh, actually, this cup is handmade by me, so if you like it, you can keep it."
 
 *「カリちゃん、これおあがんなさい。前の旦那が言ってたが人族は二日酔いってのするんだろ？　可愛いねぇ。あ、実はこのコップは私の手作りなのよぉ、良かったら貰って」*
 
-"Oh, it's not fair!　That's not fair, I'll make something for Kari, too!　I'm going to borrow your workshop!　I'll make something for you soon!　Oh, a knife, just a knife!
+"Ah! That's unfair, I want to make something for Kari-chan too! I'll borrow the workshop for a bit! Wait, I'll make something right away! Oh, a knife, a knife is fine!?"
 
 *「あー！　ずるい、あちきもカリちゃんになんか作る！　ちょっと工房借りてくるね！　まってて、すぐなんか作ってくるから！　あ、ナイフ、ナイフでいい！？」*
 
-"Kari, let's play again, okay?　Come to our village, too. Oh, I'm always ready to play with you. And here is a pouch I made from the dragon stuff I got yesterday.
+"Kari, let's play again, okay? Come visit our village too. Ah, I'm always okay with that. Also, this is a pouch made from dragon materials I got yesterday, so treat it with care, thinking of me."
 
 *「カリ、また遊ぼうね？　ウチの里にも来てね。ああ、わっちならいつでもオッケーだから。それとこれ昨日もらったドラゴン素材で作ったポーチだよ、わっちだと思って大切にしてね」*
 
-If Kari had a (peep), I would have given her a baby. I think I can have 10 more children with Kari-chan. I'm going to give her a hair ornament. It gives me confidence.
+"Ugh, if I had been with Kari-chan, I would have had kids for you. I feel like I could have about ten kids with Kari-chan. I'll give you a hair accessory from my collection. It's my pride and joy."
 
 *「くぅ、カリちゃんに（ピー）ついてたら、子供産んであげてたんだけど。カリちゃんとならあと１０人くらい産める気がする。ウチからは髪飾りあげちゃう。自信作ぅ」*
 
 &nbsp;
 
-Yikes, I'm totally irresistible, aren't I?　Hehehe.
+Whoa, am I really super popular? Hehe.
 
 *やっべー、なんかすっげーモテモテなんじゃが？　ぐへへ。*
 
-Well, all these kids are apparently aunts and old people in the dwarf sense of the word.
+Well, these girls are all considered aunties or elderly from a dwarf's perspective, though.
 
 *まぁこの子たちみんなドワーフ的にはおばちゃんとかお年寄りらしいけども。*
 
-What's more, four of them seem to be children from other villages who rushed to the feast for the dragon materials.
+Moreover, four of them seem to have rushed to the drinking party for the dragon materials.
 
 *さらに言えば、うち４人はドラゴン素材目当てに酒宴に駆け付けた他里の子らしいけど。*
 
 &nbsp;
 
-Oh, you made me a knife?　So fast. And it fits my hand perfectly.
+Oh, did you make the knife for me? That was fast. And it fits perfectly in my hand.
 
 *あ、ナイフ作ってくれたの？　早っ。しかも私の手にぴったり。*
 
-Thank you all. I'll take good care of them!　I love you!
+Thank you, everyone. I'll cherish them! Love you!
 
 *みんなありがとう。大切にするね！　好き！*
 
 &nbsp;
 
-'By the way, God-willing, even grandmothers are welcome to shame socks, right?　I'm waiting for your delivery!　Hehehe!
+"By the way, even grandmas are welcome if they have shy socks, you know? I'm looking forward to your delivery! Hehe!"
 
 *『ちなみに神様的にはおばあちゃんでも恥じらい靴下なら大歓迎ですよ？　納品お待ちしてますね！　ぐへへ！』*
 
 &nbsp;
 
-God, please don't talk to me all of a sudden, I was a little surprised.
+God, please don't suddenly talk to me, it surprised me a bit.
 
 *神様、突然語りかけないでください、ちょっとびっくりしました。*
 
-And don't hee hee hee, you'll ruin a beautiful girl.
+And stop saying 'hehe,' it ruins the image of a beautiful girl.
 
 *あとぐへへ言うな美少女が台無しやぞ。*
 
@@ -182,87 +182,85 @@ And don't hee hee hee, you'll ruin a beautiful girl.
 
 &nbsp;
 
-So, the village head is approached as well.
+Then, the village chief called out to me.
 
 *で、里長にも声をかけられる。*
 
 &nbsp;
 
-Oh, Lord Braveheart," he said, "you have put the old ladies in a very good mood. Thanks to you, the ladies are in a very good mood. That's my hero.
+"Oh, brave hero. Thanks to you, the grandmas are in a fantastic mood. As expected of the brave hero."
 
 *「おお勇者殿。おかげでばーさま達がものすごく機嫌が良いぞ。さすが勇者殿」*
 
-"Wait, what?　How did you go from guest to hero?　I don't remember pulling out the holy sword.
+"Wait? Why did I go from being a guest to a hero? I don't remember pulling out a holy sword."
 
 *「まって？　なんで客人から勇者になったん？　聖剣を抜いた覚えはないんだけど」*
 
-"Well, ......, to seduce all the grandmothers and make them all your housemaids is, in our view, nothing short of heroic.　If you think we're crazy enough to take all the Five Elders as local wives, then..."
+"Well... sweet-talking all the grandmas and having them surround you is nothing short of heroic from our perspective, right? To make all five elders your local wives, are you out of your mind?"
 
 *「そりゃぁ……ばーさま達を全員口説いて侍らすなんて、儂らから見たら勇者以外の何者でもねぇぞ？　五大老を全員現地妻にするとか正気かってならぁ」*
 
 &nbsp;
 
-So that's what you mean by brave. I see.
+So that's what they meant by hero. I see.
 
 *そういう意味の勇者か。そうか。*
 
-Is ...... a local wife?
+...Wait, local wives?
 
 *……って、現地妻？*
 
 &nbsp;
 
-I'm like, "Oh, wait a minute. Did I just get married?"
+"Eh, wait a minute. Did I end up getting married or something?"
 
 *「え、ちょっとまって。私、結婚とかしちゃった系？」*
 
-The "ladies begged for dragon materials, and after generously handing them over, they presented you with a handmade creation that they were proud of. The rings, cups, pouches, hair ornaments, and knives ...... would all be enough to build a mansion in the land of humans if bought as usual. The more I look at it, the worse it looks. What is this magic grant? The Five Elders are not bad ......."
+"You were asked by the grandmas for dragon materials and generously handed them over, and then you were gifted with handmade confidence-boosting items. That ring, cup, pouch, hair accessory, knife... If you bought them normally, they'd be enough to build a mansion in the human kingdom. Yeah, the more I look at it, the more insane it seems. What is this magical enhancement? The five elders are not to be taken lightly..."
 
 *「ばーさま達からドラゴンの素材をおねだりされて気前よくホイホイ渡した挙句、それ使った手作りの自信作をプレゼントされてたじゃねーの。その指輪、コップ、ポーチ、髪飾り、ナイフ……普通に買ったらどれも人間の国で屋敷が建つ代物だろう。うん、見れば見るほどヤベェわ。なにこの魔法付与。五大老はダテじゃねぇな……」*
 
-What kind of things have you got on you?
+"What, what kind of enhancements do they have!?"
 
 *「ど、どんなのがついてんの！？」*
 
 &nbsp;
 
-Ring: a ring of substitution. It takes the place of a one-time fatal wound.
+Ring: Ring of Substitution. Takes a fatal blow once in place of the wearer.
 
 *指輪：身代わりの指輪。一度だけ致命傷を肩代わりする。*
 
-Cup: a poison-dispelling cup. Even poisonous swamps are turned into fresh water. The disadvantage is that it also turns liquor into water.
+Cup: Poison-Removing Cup. Turns even poisonous swamps into clean water. The downside is it turns alcohol into water.
 
 *コップ：毒消しの盃。毒の沼すら清水に変える。酒も水にしちゃうのが欠点。*
 
-Pouch: Large capacity pouch. Despite its appearance, it can hold about as much as a shed.
+Pouch: Large Capacity Pouch. Despite its appearance, it can hold the equivalent of a small hut.
 
 *ポーチ：大容量ポーチ。見た目とは裏腹に小屋くらいの量が入る。*
 
-Hair ornament: A hair ornament that hides one's appearance. Temporarily makes it harder for enemies to find you.
+Hair Accessory: Concealment Hair Accessory. Temporarily makes it hard for enemies to find the wearer.
 
 *髪飾り：姿隠しの髪飾り。一時的に敵から見つかりにくくする。*
 
-Knife: Automatic demolition knife. It flies by itself and performs automatic stripping.
+Knife: Automatic Disassembly Knife. Flies on its own and automatically strips items.
 
 *ナイフ：自動解体ナイフ。自ら飛び、自動で剥ぎ取りをしてくれる。*
 
 &nbsp;
 
-...... and they all seem to be national treasures.
+...It seems all of them are national treasures.
 
 *……と、どれも国宝級らしい。*
 
 &nbsp;
 
-Wow. It was a gift from a girl and I wasn't going to sell it, but it was a terrible idea.
+Wow. They were gifts from girls, so I had no intention of selling them, but this is outrageous.
 
 *うわぁ。女の子からのプレゼントだし売る気は無かったけど、とんでもなかったわ。*
 
-And then, it was a Dwarven proposal to give him a confident gift, wasn't it? I forgot!
+And giving handmade confidence-boosting items was a dwarf's way of proposing. I had forgotten about that!
 
 *そんで、自信作をプレゼントするのがドワーフ的プロポーズでしたね。忘れてました！*
-
-
 
 &nbsp;
 
@@ -274,27 +272,27 @@ And then, it was a Dwarven proposal to give him a confident gift, wasn't it? I f
 
 &nbsp;
 
-The book version, "The rest is up to you! ~God beat the last boss in the tutorial, so I'll live as I please~"
+The book version, "Feel free to do as you like! ~Since the god defeated the final boss in the tutorial, I will live freely~"
 
 *書籍版、『あとはご自由にどうぞ！～チュートリアルで神様がラスボス倒しちゃったので、私は好き放題生きていく～』*
 
-The, one-volume range of--
+The range of volume 1 is――
 
 *の、１巻範囲は――*
 
 &nbsp;
 
-It's up to "The First Town, Solacidore!"
+"To the first town, Sorashidore"!!
 
 *「最初の町、ソラシドーレ」までです！！*
 
 &nbsp;
 
-In other words, Dear, you've been working on ......2 since the volume!
+So, Dear-kun will... be in volume 2 and beyond!
 
 *つまりディア君は……２巻以降や！*
 
-If we don't sell one volume, Dear, you won't be able to get out, so buy one. ...... buy one!
+If volume 1 doesn't sell, Dear-kun won't be able to appear, so please buy it... please buy it!!
 
 *１巻売れなきゃディア君が出られないので、買ってね……買ってね！！*
 
@@ -302,15 +300,14 @@ If we don't sell one volume, Dear, you won't be able to get out, so buy one. ...
 
 &nbsp;
 
-Yes, so I'm gutting the Solacidore section and writing more.
+So, I'm thoroughly expanding the Sorashidore arc.
 
 *はい、というわけでソラシドーレ編をガッッッツリ書き増ししてます。*
 
-I'm looking forward to seeing the illustrator, Dr. Ixy, on the cover!
+I'm looking forward to the cover by illustrator Ixy-sensei.
 
 *イラスト担当、Ixy先生の表紙出るのが楽しみですねー。*
 
-And it looks like they will be doing a lot more. ...... Looking forward to it!
+And it seems there will be various other things happening too... I'm excited!!
 
 *そして他にも色々やってくれる模様です……楽しみ！！*
-

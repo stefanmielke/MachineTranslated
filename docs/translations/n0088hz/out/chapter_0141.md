@@ -1,32 +1,32 @@
-# I'm here to deliver!
+# I have come to deliver
 
 ## 納品に来ましたよっと
 
 &nbsp;
 
-I, Karina!　I'm an apostle of God!
+I am Karina-chan! The apostle of the gods!
 
 *私、カリーナちゃん！　神様の使徒よ！*
 
-I came to collect treasures and deliver them in good health in order to get a prize from God!
+I have come to diligently collect treasures and deliver them to receive rewards from the gods!
 
 *神様にご褒美を貰うためにお宝をせっせと集めて健気に納品しに来たの！*
 
-Well, when I say treasure, I mean socks.
+Well, even if I say treasures, they are just socks.
 
 *まぁ宝って言っても靴下なんだが。*
 
 &nbsp;
 
-The socks to be delivered this time are for seven people.
+This time, I am delivering socks for seven people.
 
 *今回納品する靴下は７人分。*
 
-Masilo's first socks, and the living shame socks for five bebays and others.
+Masiro-san's first socks, and the living shame socks of the five Bibeis.
 
 *マシロさんのお初靴下に、ビーベイ達５人分の生き恥靴下。*
 
-That and the first delivery of Isiah's slave socks.
+And this is the first delivery of Aisia's slave socks.
 
 *それとアイシアの奴隷靴下の初納品だ。*
 
@@ -34,229 +34,229 @@ That and the first delivery of Isiah's slave socks.
 
 &nbsp;
 
-We went to the church for delivery and worshipped the fleshy Madame Siesta before going to the chapel.
+I went to the church for the delivery, prayed to the well-endowed Madame Siesta, and then headed to the chapel.
 
 *納品のために教会に行き、肉付きのいいマダムシエスタを拝んでから礼拝堂へ。*
 
-Dear God - I'm here to deliver. ......
+God, I have come to deliver……
 
 *神様ー、納品に来ましたよっと……*
 
 &nbsp;
 
-'Carina, I've been waiting for you!　Get it out!　Let it all out!　Let it all out!"
+"Karina-chan, I've been waiting for you! Show me! Show me everything! Spill it all out!"
 
 *「カリーナちゃん、待ってましたよ！　出せ！　全部出せ！　ぶちまけちゃえ！」*
 
-Oh, oh. ...... please pay it forward."
+"Y-yes. Please accept them."
 
 *「お、おう。……どうぞお納めください」*
 
-Yay!"
+"Yay!!"
 
 *「わーい！！」*
 
 &nbsp;
 
-I take out my socks and line them up for God, who is still very insistent.
+As always, the god is incredibly eager, and I start taking out the socks and laying them out.
 
 *相変わらず凄いがっついてくる神様に、私は靴下を出して並べていく。*
 
 &nbsp;
 
-I'm sure she's in good shape. As expected of Karina-chan.
+"Hehehe, they look good. As expected of Karina-chan."
 
 *「ふふふ、いい具合ですねぇ。さすがカリーナちゃんです」*
 
-I am honored by the compliment."
+"I am honored to receive your praise."
 
 *「お褒めにあずかり光栄です」*
 
 &nbsp;
 
-Hehe," he bowed his head and accepted the compliment reverently.
+Hehe, I bow my head and humbly accept the compliments.
 
 *へへー、と頭を下げてお褒めの言葉を恭しく受け取る。*
 
 &nbsp;
 
-God says, "Which, which, which, which, which, which, which?" and chooses the first socks to examine.
+The god is selecting the socks to examine first, saying, "Which one should I choose?"
 
 *神様は「ど、れ、に、し、よーぉっ、か、なー？」と最初に吟味する靴下を選んでいる。*
 
 &nbsp;
 
-'Yeah, let's save the fun for later. Well then, let's start with ...... these slave socks!"
+"Well, let's save the fun for later. So first... these slave socks!"
 
 *「うん、楽しみは後にとっておきましょう。じゃあまずは……この奴隷靴下ですね！」*
 
 &nbsp;
 
-With that, God reached for Isiah's socks.
+Saying that, the god reaches for Aisia's socks.
 
 *そう言って神様は、アイシアの靴下に手を伸ばした。*
 
 &nbsp;
 
-Is Isiah's the cheapest?"
+"Are Aisia's the cheapest?"
 
 *「アイシアのが一番お安いんですか？」*
 
-Yes. I don't feel much shame. Well, 30 SP. Since it's the first time, I'll give you 40 SP as a bonus. I'm sure you and Sati will have fun with your sister socks."
+"Yes. There's not much shame to be felt, you see. Hmm, 30 SP. Since it's the first time, I'll give you a bonus and make it 40 SP. It would also be nice to enjoy them with Sati-tan's sister socks."
 
 *「ええ。羞恥があんまり感じられませんからねー。うーん、３０ＳＰ。初回ですしオマケして４０ＳＰにしてあげましょう。サティたんとの姉妹靴下で楽しむのもアリですね」*
 
 &nbsp;
 
-Oh, but a reasonable price. Nice!
+Oh, but that's a decent price. Nice.
 
 *お、でもそれなりの価格。いいぞー。*
 
-You had 995 SP left, now you have 1035.
+The remaining SP was 995, and now it's 1035.
 
 *残ってたＳＰが９９５だったのが、１０３５になったな。*
 
 &nbsp;
 
-Next time, I think they should at least throw him out on the streets naked except for his socks."
+"I think you should try throwing everyone out in the city completely naked, except for the socks."
 
 *「次は靴下以外全裸で街中に放り出すくらいしてみたらいいと思います」*
 
-
+"No, no, no, that's too much exposure play...!"
 
 *「いやいやいや、露出プレイにも程がある……！」*
 
-"You say that after you've been carrying a baby around?"
+"Are you really saying that after carrying a baby palanquin?"
 
 *「赤ちゃん御輿しておいてそれ言いますか」*
 
 &nbsp;
 
-And now it's the socks of Beebey and the other five. For one of them, I honestly don't know who it is, but God picks it up without hesitation and brings it to his mouth.
+Now, it's the socks of the five Bibeis. Among them, I honestly can't tell whose sock it is, but the god picks it up without hesitation and brings it to their mouth.
 
 *と、今度はビーベイ達５人の靴下だ。その中の一人分、誰のかは正直分からないが、神様は躊躇することなく摘まみ上げ、口に運ぶ。*
 
 &nbsp;
 
-'Ahhh, mmmm, mmmm, mmmm, mmmm, mmmm, mmmm, mmmm! ...... mmmm, mellow taste of shame!"
+"Ahh, nom nom. ...Mmm, the rich taste of shame!"
 
 *「あーん、もぐもぐ。……んーむ、芳醇な羞恥の味！」*
 
-Wow, ......, how can you eat that?
+"Wow... you really can eat that."
 
 *「うわっ……よく食べられますねそれ」*
 
-I'm not a picky eater who can only eat socks made by beautiful women. Besides, to God, the sex of a ningen is not a big deal. Did Karina say that she can't eat pork unless it's from a female pig?
+"I'm not picky about only eating beautiful women's socks, you know. Besides, for the gods, human gender isn't a big deal. Did Karina-chan say she can only eat female pig meat when eating pork?"
 
 *「私、別に美女の靴下じゃなきゃ食べられないなんて偏食じゃないですからね。それに、神様にとってニンゲンの性別なんて大した話ではないんですよ。カリーナちゃんは豚肉を食べるときにメス豚の肉じゃないと食べられないとか言ってましたか？」*
 
 &nbsp;
 
-Well, I understand that when you are of the same race, you are concerned about that too. God continues.
+Well, I understand that it might matter among the same species. The god continues.
 
 *まぁ同種族だとそのあたりも気になるのは分かりますけど。と続ける神様。*
 
-...... though I've never paid attention to the gender of pork sold in supermarkets, if you ask me.
+...Now that you mention it, I've never cared about the gender of the pork sold at the supermarket.
 
 *……言われてみればスーパーで売ってる豚肉の性別とか気にしたこともないけれども。*
 
 &nbsp;
 
-'Beautiful women are easier to shame and more palatable.'
+'Beautiful women are easier to feel shame and thus tastier.'
 
 *『美女の方が羞恥しやすくて、美味しくなりやすい』*
 
-It's really true what you said before, and that's all you were talking about. ......
+What they said before was really true, and that was all there was to it...
 
 *以前そう語っていたのは本当に本当で、それだけの話だったんだな……。*
 
 &nbsp;
 
-Well, I guess I'm a picky eater when my staple food is socks."
+"Well, I think it's a bit picky to have socks as a staple food."
 
 *「まぁ主食が靴下な時点で偏食だとは思いますが」*
 
-No, no, no, no. I eat food just like any other person. Socks are a luxury item. Just like a dog can't eat onions, but a person can eat onions, a person can't eat socks, but I can eat socks. That's all there is to it, isn't it?"
+"No, no, I eat regular meals too. Socks are a delicacy. Just like dogs can't eat onions but humans can, humans can't eat socks but I can. That's all there is to it, right?"
 
 *「いやいやフツーにご飯も食べますし。靴下は嗜好品ですし。犬がタマネギ食べられないけど人はタマネギを食べられるように、人は靴下を食べられないけど私は靴下を食べられる。それだけの話ですからね？」*
 
 &nbsp;
 
-Didn't I say that before?　And the God who stares at me.
+Didn't I mention this before? The god glares.
 
 *前にも言いませんでしたっけ？　と睨む神様。*
 
-Sorry, I honestly don't care.
+I'm sorry, but honestly, I don't care.
 
 *ごめんなさい正直どうでもいいっす。*
 
 &nbsp;
 
-Well, let's do the assessment, it's for five people and we had a fun spectacle, hmmm...350 SP for five people!"
+"Well, let's assess them. Since there were five people and it was a fun spectacle, hmm. For five people, 350 SP!"
 
 *「まぁ、査定の方しちゃいましょう。５人分だし楽しい見世物もありましたからー、んー。５人分で３５０ＳＰで！」*
 
 &nbsp;
 
-Wow, that was more gutsy than I thought!
+Wow, that's more than I expected!?
 
 *うわっ、思ってた以上にガッツリだった！？*
 
-That's 70 SP per person...glad I collected enough for 5 people. ......
+That's 70 SP per person. I'm glad I collected socks for five people...!
 
 *１人あたり７０ＳＰである。５人分回収しといてよかったぁ……！*
 
 &nbsp;
 
-The only thing I would say is that all five of us had the same taste, so it was just a big serving. If the flavors were more differentiated and the taste changed more, it could have scored higher. But I did get a chuckle out of the baby play while parading around town carrying a portable shrine."
+"To be honest, since all five have the same seasoning, it just feels like a large serving. If there had been more differentiation in flavor, we could have aimed for a higher score. But the baby play while carrying the palanquin through the town made me laugh."
 
 *「しいて言えば５人全員同じ味付けなので、単に大盛りって感じなのがアレですね。もっと差別化して味わいが変わればより高得点を狙えました。でも、お御輿担いで町中を練り歩きながらの赤ちゃんプレイは笑わせてもらいましたよ」*
 
-I'm glad you enjoyed it."
+"I'm glad you enjoyed it."
 
 *「楽しんでいただけたようで何よりです」*
 
-It was nice that it wasn't explicitly shameful, like nudity."
+"It was also nice that it wasn't blatant shame like being completely naked."
 
 *「全裸とかの露骨な羞恥じゃないのも良かったです」*
 
 &nbsp;
 
-Huh?　Didn't you recommend that blatant nude shaming to Isiah earlier?
+Huh? Didn't I just recommend that blatant naked shame for Aisia's socks?
 
 *あれ？　さっきアイシアの方にはその露骨な全裸羞恥をおススメしてませんでした？*
 
-And when I nod my head, God adds.
+As I tilt my head, the god adds an explanation.
 
 *と首をかしげると、神様が補足してくれる。*
 
 &nbsp;
 
-It's like cooking potatoes and radishes differently. Aisia-chan is a slave, so she has the humiliation that a slave deserves. ...... Oh, this one called living shame is also moderately good. If humiliation were a metaphor,...... concentrated lemon?"
+"It's like how the cooking method changes between potatoes and radishes. Aisia-chan is a slave, so there are humiliations appropriate for a slave. ...Ah, this living shame is also quite nice. If I had to compare the feeling of humiliation to something... concentrated lemon?"
 
 *「ジャガイモとダイコンで調理法が変わるようなもんですよ。アイシアちゃんは奴隷なので奴隷にふさわしい辱めがあるんです。……あ、これ生き恥というのも中々いいですね。屈辱感がたとえるなら……濃縮レモン？」*
 
-It looks soooooo good."
+"That sounds really sour."
 
 *「めっちゃすっぱそうですね」*
 
-This one has a nice flavor. Nice."
+"This has its own good flavor. Nice."
 
 *「これはこれでいい味わいですよ。ナイスです」*
 
 &nbsp;
 
-God laughs and puts his socks away in his pocket.
+The god chuckles and puts the socks into their pocket.
 
 *神様はふふん、と笑いながら靴下を懐にしまう。*
 
 &nbsp;
 
-Now, this is a total of 1385 SP.
+Now, that's a total of 1385 SP.
 
 *さて、これで合計１３８５ＳＰ。*
 
-What is the valuation of the last one, Mr. Masilo's socks?
+What will be the assessment amount for the last pair, Masiro-san's socks?
 
 *最後の一本、マシロさんの靴下の査定額は如何に？*
 
@@ -265,4 +265,3 @@ What is the valuation of the last one, Mr. Masilo's socks?
 &nbsp;
 
 &nbsp;
-

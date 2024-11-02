@@ -1,266 +1,266 @@
-# Let's try to get into the convention tomorrow.
+# Let's try participating in the tournament tomorrow.
 
 ## 明日は大会に参加してみるとしよう
 
 &nbsp;
 
-Thus, a lovely outfit was made for me.
+Thus, a cute costume was made for me as well.
 
 *かくして私にも可愛い衣装が作られた。*
 
 &nbsp;
 
-Honestly, I don't feel bad about dressing the pretty me.
+Honestly, I don't feel bad about dressing up as a cute version of myself.
 
 *正直、可愛い私を着飾るのは悪い気がしない。*
 
-In fact, it is even fun in the form of dressing up the avatar of a beautiful girl in a game in real life.
+In fact, it's quite fun to dress up my beautiful game avatar in real life.
 
 *むしろゲームの美少女アバターをリアルで着飾る形で楽しいまである。*
 
-I suppose you could say that's because changing clothes is done in an instant with spatial magic.
+This is also because changing clothes is completed in an instant with spatial magic.
 
 *それもこれも、着替えが空間魔法で一瞬で終わるから、と言うのもあるだろうね。*
 
 &nbsp;
 
-Ooh, I like the red dress too. It's open-chested and sexy!
+Oh, the red dress is nice too. It's revealing and sexy!
 
 *おー、赤いドレスもいいなぁ。胸開いてて色っぽい！*
 
-This white dress over here is neat and clean.
+This white dress over here has a sense of purity.
 
 *こっちの白いワンピースは清楚感あるよ。*
 
-Gym clothes...... what?　There is such a thing in this world......It's definitely the work of a reincarnated person.
+Gym clothes... Huh? There are even these in this world... This must be the work of a reincarnator.
 
 *体操服……え？　こんなのもあるんだこの世界……絶対転生者の仕業だ。*
 
 &nbsp;
 
-'But then again, why so many outfits when I told you on such short notice?'
+"By the way, why are there so many costumes when I just suddenly mentioned it?"
 
 *「にしても、急に言ったのになんでこんなに衣装があるのさ？」*
 
-What?　You want to look nice for the person you love, isn't that normal?"
+"Huh? It's normal to want to dress up someone you like beautifully, right?"
 
 *「え？　好きな人を素敵に装いたい、そう思うのは普通でしょ？」*
 
-I just want to see Kari's pretty face. I just want to see Kari's pretty face.
+"Exactly. I just want to see Kairi-chan's cute appearance."
 
 *「そうそう。あちきはカリちゃんの可愛い姿が見たいだけさね」*
 
-But this outfit is only lightly enchanted, so ...... it's almost just an outfit.
+"But this costume only has a light enchantment... it's basically just regular clothes."
 
 *「けど、この衣装は軽いエンチャントしかしてないから……ほぼただの服だよぅー」*
 
-With Kari's magic, I don't need any extra enchantments!"
+"With Kairi-chan's magic, we don't need any unnecessary enchantments."
 
 *「カリちゃんの魔法があれば余計なエンチャはいらないからねー」*
 
-"Technology is defeated ......!　We can only make Kari cool and cute ......"
+"Defeat of technology...! All we can do is make Kairi-chan look cool or cute..."
 
 *「技術の敗北……ッ！　私達にはカリちゃんをカッコよくしたり可愛くするしかできない……」*
 
 &nbsp;
 
-Still, it comes with something simple (but by the Five Elders' standards) like MP recovery assistance.
+Even so, there are simple (though based on the Five Great Elders' standards) things like MP recovery assistance.
 
 *それでもＭＰ回復補助、みたいな簡単（ただし五大老基準）なものは付いている。*
 
-It's a tiny amount, though, given the amount of magic I have: ......
+It's a tiny amount compared to my magical power...
 
 *私の魔力量からしたら微々たる量だけども……*
 
 &nbsp;
 
-I've got tails, too.
+"We also have a tailcoat."
 
 *「燕尾服もあるよぉ」*
 
-Oh, thanks, Lou."
+"Oh, thank you, Ru-chan."
 
 *「お、ありがとルーちゃん」*
 
 &nbsp;
 
-And Lou brought another new mannequin.
+Then, Ru-chan brought another mannequin.
 
 *と、ルーちゃんがまた新たなマネキンを持ってきた。*
 
-I really don't know when I made this.
+I wonder when she made all of these.
 
 *ホントいつの間に作ってたのこんなに。*
 
 &nbsp;
 
-"That said, there's only one dress I can wear in the show ...... that bothers me!"
+"That said, I can only wear one outfit for the main event... it's so troubling!"
 
 *「とはいえ、本番で私が着れるのは１着だけなんだよね……悩ましい！」*
 
-I still want someone who can fight, right?"
+"Maybe something that looks like it can fight would be good?"
 
 *「やっぱり戦えそうなヤツがいいかな？」*
 
-I was wondering if you would like me to wear this underwear tonight. Underwear only, right?"
+"I'd like you to wear this underwear tonight. Ah, just the underwear, okay?"
 
 *「あちきは今日の夜にこの下着を着てほしいかなって。あ、下着のみ、ね？」*
 
-Shivaara: "Hey, Shivaara, you're wearing that kind of defenseless holey underwear!　Such defenseless hole underwear!"
+"Wait, Shibara! Such a zero-defense hole underwear!?"
 
 *「ちょ、シバラ！　そんな防御力０な穴下着を！？」*
 
-She's got a lot of offensive power. It's fine if it's in your bedroom, but if you go to a convention, you're just a lascivious bitch."
+"The attack power is high, though. It would be fine in the bedroom, but if you wear it to the tournament, you'd just look like a pervert."
 
 *「攻撃力は高いねぇ。閨ならいいけど、大会に出たらただの痴女だよぅ」*
 
-I like the masculine clothes, too. ......
+"Masculine clothes would be nice too... a handsome type that isn't found among dwarves."
 
 *「男っぽい服もいいなぁ……ドワーフにいないタイプの美男子ぃ」*
 
 &nbsp;
 
-You can change as much as you want. ...... Wow, is this underwear?　It's a frilly ribbon now. Are you asking me to eat me?
+I can change as much as I want. ...Wow, is this underwear? It's practically a frilly ribbon. Are you trying to eat me?
 
 *着替え放題だねぇ。……わー、下着なのこれ？　もはやフリルのリボンだよ。私を食べてってか？*
 
 &nbsp;
 
-I'll put that on tonight. I think I'll wear the same gothic lolita dress as ...... Deere for the competition."
+"Well, I'll wear that tonight. For the tournament outfit... I think I'll go with a matching Gothic Lolita dress with Dia-kun."
 
 *「まぁそれは今夜付けるとして。大会に出る衣装は……ディア君とおそろいのゴスロリドレスにしよっかな」*
 
 &nbsp;
 
-With a snap of her fingers, she puts on a white gothic lolita dress. Since Dear has silver hair and black gothic hair, black hair and white gothic hair would be a good contrast.
+With a snap of my fingers, I donned a white Gothic Lolita dress. Since Dia-kun has silver hair and a black gothic style, a black-haired white gothic look would be a nice contrast.
 
 *パチン、と指を鳴らして白いゴスロリドレスを身に纏う。ディア君が銀髪黒ゴシックなので、黒髪白ゴシックは対比的にもアリだろう。*
 
-She gapes at her skirt and holds a pistol in each hand from a thigh holster.
+I thrust my hands into the skirt and drew pistols from the thigh holsters.
 
 *スカートにガッと手を入れてふともものホルスターから両手に拳銃を構える。*
 
-No bullets were inserted.
+The chambers are empty.
 
 *弾は入れていない。*
 
 &nbsp;
 
-I'll make a holster for your backside hip. That way it's easier to take it out."
+"Let's attach a holster to the lower back. That way, it's easier to draw."
 
 *「背中側の腰にホルスター付けられるようにしようか。その方が出しやすいよ」*
 
-"Put your hands behind your back and give it a jerk?　Wow, that's cool too!"
+"Like reaching back and going 'click'? Wow, that sounds cool too!"
 
 *「後ろに手を回して、ジャキッってかんじ？　わーそれもカッコいい！」*
 
-'Hmph, as expected of you, Kari. You understand romance, don't you!
+"Hehe, as expected of Kairi-chan. You understand romance!"
 
 *「フフフ、さすがカリちゃん。ロマンが分かってるね！」*
 
-I'll put it on for you. I'll put it on for you.
+"Stitch, stitch... and done! I'll put it on you now."
 
 *「ちくちく……はいできたー。付けてあげるねっ」*
 
 &nbsp;
 
-Ar-chan adjusted the holster in seconds and put it on my waist. Hmmm, God's work.
+A-chan adjusted the holster in seconds and attached it to my waist. Hmm, what a divine skill.
 
 *アーちゃんが秒でホルスターを調整し、腰につけてくれた。うーん、神業。*
 
-If you can sew at this speed, I'm convinced you'll come up with so many outfits.
+If she can sew at this speed, it's no wonder so many costumes are being produced.
 
 *この速度で裁縫できるなら、これだけの衣装が出てくるのも納得だよねぇ。*
 
 &nbsp;
 
-Moreover, the easy-to-remove position is perfect in one shot.
+Moreover, the position for easy access is perfect right away.
 
 *しかも取り出しやすい位置が一発でバッチリ。*
 
 &nbsp;
 
-Kari's data is stored in my body, you know. No need to take measurements?
+"I remember Kairi-chan's body data with my body. No need for measurements?"
 
 *「カリちゃんの身体データはわっちのカラダで覚えてるからねぇ。計測いらず？」*
 
-Oh, I'm so proud of you, Ah-chan!　I love it!"
+"Oh wow, as expected of A-chan! I love it!"
 
 *「おおー、さすがアーちゃん！　好きっ！」*
 
-"Heh heh, me too.
+"Hehe, I love you too."
 
 *「えへへ、わっちもだよぉ」*
 
 &nbsp;
 
-Aa-chan with a derelict smile.
+A-chan smiled sweetly.
 
 *デレっと笑顔のアーちゃん。*
 
 &nbsp;
 
-"Oh, Kari, I'm going to stab you with my knife. I'm going to stab you with my knife, so why don't you defend yourself with magic?"
+"Oh, Kairi-chan. I'm going to stab you with my knife, so please defend with magic?"
 
 *「あ、カリちゃん。あちきのナイフでぶっさすから魔法で防御してー？」*
 
-Hmm?"　Strength test, huh? Yes, here you go."
+"Huh? A strength test? Alright, go ahead."
 
 *「ん？　強度テストか。はーい、どうぞっ」*
 
-Teeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee!"
+"Take this!"
 
 *「てーい！」*
 
 &nbsp;
 
-When he was greeted with open arms, Shih-chan charged at him with a knife at the ready.
+As I opened my arms to welcome her, Shi-chan charged at me with a knife.
 
 *両手を広げて迎えたところに、シーちゃんがナイフを構えて突撃してきた。*
 
-No, it's more like a dagger. It's got a waist.
+No, it's more like a dagger. She's really putting her back into it.
 
 *いや、ナイフっていうよりドスっぽい。腰入ってる。*
 
-I catch Cee on my tummy, thinking, "I'm used to assaulting you, aren't I?
+I thought she was used to charging, and I caught Shi-chan in my stomach.
 
 *突撃し慣れてるなぁ、と思いつつ、私はシーちゃんをおなかに受け止める。*
 
 &nbsp;
 
-The knife, of course, does not pierce a millimeter and does not damage the dress.
+The knife obviously didn't pierce at all, and the dress remained unscathed.
 
 *ナイフは当然１ミリも刺さらず、ドレスも傷付かない。*
 
 &nbsp;
 
-I knew Kari's magic was foul!　My slitting knife can't even hit the target before the blade stands up!
+"After all, Kairi-chan's magic is unfair! My slashing knife doesn't even hit before it can cut!"
 
 *「やっぱりカリちゃんの魔法は反則だよぅ！　あちきの切り裂きナイフが刃が立つ以前に当たらないんだもん！」*
 
-I'm sorry, aren't I?　But if I let you guess, you'll get a hole in your dress.
+"Ahaha, I'm sorry? But if I let you hit, it would put a hole in the dress."
 
 *「あはは、ごめんねー？　でも当てさせちゃったらドレスに穴あいちゃうからね」*
 
 &nbsp;
 
-Hugs and strokes. Mmmm, cute.
+I hugged her and patted her. Hmm, so cute.
 
 *抱きしめてなでなで。うーん可愛い。*
 
 &nbsp;
 
-I'm sure it's safe to say that Shivaara's knife won't get through. But you'll have to wear my ring, right?"
+"If Shibara's knife doesn't work, then I can relax. But make sure to wear my ring, okay?"
 
 *「シバラのナイフが通じないなら安心だねー。でもあたしの指輪はちゃんと付けとくんだよ？」*
 
-'I know, Coo-chan. A substitute ring would give me peace of mind just in case!"
+"I know, Kuu-chan. With the substitute ring, I can feel secure just in case!"
 
 *「わかってるよクーちゃん。身代わり指輪があれば万一に備えて安心できるからね！」*
 
 &nbsp;
 
-Cu-chan for worrying about me. That's so kind of you!
+Kuu-chan worries about me. How kind!
 
 *心配してくれるクーちゃん。優しいなぁっ！*
 
@@ -268,11 +268,11 @@ Cu-chan for worrying about me. That's so kind of you!
 
 &nbsp;
 
-Well, that's how the costumes were decided.
+Well then, the outfit has been decided.
 
 *さて、そんなわけで衣装も決まった。*
 
-I think I'll join the tournament tomorrow ...... I think I'll bet myself the money deposited by Mr. Masilo and my own possessions as well to make some rough money!
+Let's try participating in the tournament tomorrow... I think I'll gamble the money I received from Mashiro-san and my own funds to make a big profit!!
 
 *明日は大会に参加してみるとしよう……自分自身にマシロさんから預かったお金と、私自身の所持金も賭けて荒稼ぎしようかな！！*
 
@@ -282,27 +282,24 @@ I think I'll join the tournament tomorrow ...... I think I'll bet myself the mon
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(Ato Goji, vol. 1--)
+(After Goji Volume 1――
 
 *（あとごじ1巻――*
 
-The rest of you are free to do as you please! 〜God beat the last boss in the tutorial, so I'll live my life as I please.
+"Feel free to do as you like! ~Since the god defeated the final boss in the tutorial, I'm going to live freely~"
 
 *『あとはご自由にどうぞ！ 〜チュートリアルで神様がラスボス倒しちゃったので、私は好き放題生きていく〜』*
 
---It was released yesterday!
+――Released yesterday!!
 
 *――昨日発売してます！！*
 
 &nbsp;
 
-Thanks for the purchase report!　(I'm glad you're happy with it: ！！！！！)
+Thank you for the purchase reports!!! I'm so happy!!!!)
 
 *購入報告ありがとうございます！！！　嬉しいです！！！！！）*
-

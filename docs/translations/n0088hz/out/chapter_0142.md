@@ -1,102 +1,102 @@
-# Bravo, oh, bravo ●Illustration Ali
+# Bravo, oh, bravo ● With Illustrations
 
 ## ブラボー、おお、ブラボー ●挿絵アリ
 
 &nbsp;
 
-Finally, the last pair of socks, Mr. Masilo's socks.
+Finally, the last pair, Mashiro-san's socks.
 
 *いよいよ最後の１足、マシロさんの靴下だ。*
 
-What is the assessed value?
+What will the appraisal amount be――
 
 *果たして査定額や如何に――*
 
 &nbsp;
 
-115SP."
+“――115 SP.”
 
 *「――１１５ＳＰです」*
 
-"I've gone over the edge!"
+“Exceeded the limit!?”
 
 *「限界を、越えた！？」*
 
 &nbsp;
 
-The valuation, which came out without any desirability, was over 100 SP, the highest price.
+Without hesitation, the appraisal amount that came out exceeded the highest value of 100 SP.
 
 *勿体ぶることなく出てきた査定額は、最高値である１００ＳＰを越えていた。*
 
 &nbsp;
 
-'Shame is thin, but the hair. ...... hairs are very good."
+“While the sense of shame is diluted, the hair... The hair is really good.”
 
 *「羞恥心こそ薄めですが、毛が。……毛がすごくいい」*
 
-Oh, at the hairs!"
+“Oh, is it about the hair!”
 
 *「おお、毛のところですか！」*
 
 &nbsp;
 
-It is the part of the leg hair that Masilo pulled out for me!
+It’s the part of the foot hair that Mashiro-san plucked for me!!
 
 *マシロさんに抜いてもらった足毛の部分である！！*
 
 &nbsp;
 
-"I like ...... for natural sock hair!　Oh, and the breakdown is 25 sp for the first socks and 90 sp for the hairs."
+“Natural sock hair... nice! Ah, the breakdown is 25 SP for the initial sock, and 90 SP for the hair.”
 
 *「天然靴下っ毛……いいね！　あ、内訳は初靴下の方は２５ＳＰ、毛が９０ＳＰです」*
 
-Oh. The total value of those assessments."
+“Oh. So that’s the total appraisal value.”
 
 *「あ。そういう査定の合計値」*
 
 &nbsp;
 
-For two pieces, the limit is well within reason.
+If it’s for two items, then the limit break is somewhat understandable.
 
 *２個分なら限界突破もまぁ納得である。*
 
-But was it really that good, hairs?
+Still, was the hair really that good?
 
 *にしても、そんなに良かったのか、毛。*
 
 &nbsp;
 
-She said, "Well, Karina may not understand it, but it's hair. And it's the one that you plucked out from the sole of your foot near the ball of your foot. It's been on my sole longer than a bad sock, you know?　It's like a sock you've worn for a month or so."
+“Well, it might be hard for Karina-chan to understand, but it’s hair. Moreover, it was plucked from near the paw pads on the sole. It’s a presence that lasts longer on the sole than a poorly made sock, you know? It’s like a sock that has been worn for about a month.”
 
 *「そりゃカリーナちゃんには分からないかもしれませんが、毛ですからね。しかも足裏の肉球の近いとこをぷちって抜いてくれたやつ。下手な靴下より長く足裏にある存在ですよ？　一ヶ月やそこら履き続けた靴下みたいなもんなのです」*
 
-Hohoho."
+“Oh ho.”
 
 *「ほほう」*
 
 &nbsp;
 
-If the hairs on your ...... feet are treated as socks, would you go for it if you had a chance with the beastie again?
+If foot hair is treated as a sock, then maybe I should aim for it again if I have a chance with a beastman.
 
 *……足の毛が靴下扱いになるなら、また獣人に縁があったら狙ってみますか。*
 
 &nbsp;
 
-It's not much, but it tastes rich. The mogu...... confusion that I have no idea why it is so demanding is also good. Kind of like a sticky avocado."
+“While the quantity is small, the flavor is rich. Munch munch... I have no idea why it’s in such demand, but that confusion is also good. It’s like a sticky avocado.”
 
 *「量こそ少ないですが、味は濃厚。もぐもぐ……どうしてそんな要求されているのかさっぱり分からない困惑もまた良し。ねっとりしたアボカドみたいな感じ」*
 
-Wow, I'm tempted to put mayonnaise on it."
+“Wow, I want to put mayonnaise on it.”
 
 *「わー、マヨネーズ付けたくなりますね」*
 
-That's the seasoning called shame, yeah."
+“That’s precisely the seasoning called shame, yes.”
 
 *「それこそが羞恥心という調味料なんですよ、ええ」*
 
 &nbsp;
 
-God put the rest away with satisfaction.
+The god seemed satisfied as they put the rest away.
 
 *神様は満足げに残りをしまい込んだ。*
 
@@ -104,255 +104,255 @@ God put the rest away with satisfaction.
 
 &nbsp;
 
-So, I finished the delivery and the SP is now ...... exactly 1500 SP.
+So, after completing the delivery, the SP is... exactly 1500 SP.
 
 *で、納品を終えてＳＰは……きっちり１５００ＳＰになりました。*
 
-God has already calculated this end, hasn't he?
+This neatness, the god must have calculated it, right?
 
 *このキリの良さ、さては神様計算済みだな？*
 
 &nbsp;
 
-I'd say it's more of a positive assessment, you know?　Like a baby carriage."
+“It’s more of a positive appraisal, you know? Like a baby palanquin.”
 
 *「どちらかというとプラス方向査定ですよ？　赤ちゃん御輿とか」*
 
-Aaaaahhhh!"
+“Thanks a lot!”
 
 *「あざーっす！」*
 
 &nbsp;
 
-Then I have no complaints!　Hi!
+Then I have no complaints! Yay!
 
 *なら文句はないです！　ハイ！*
 
 &nbsp;
 
-I mean, Carina, please don't save up and use more SP. I won't be picky, though, since you deliver."
+“By the way, Karina-chan, instead of hoarding, you should use more SP. I won’t nag you since you’re delivering.”
 
 *「ていうかカリーナちゃん、貯め込んでないでもっとＳＰ使ってくださいよ。納品してくれるのでうるさくは言いませんけど」*
 
-I'm sorry, but I have a tendency to tighten my purse strings when my balance is low."
+“I’m sorry, but when my balance is low, I tend to tighten my wallet.”
 
 *「すみません残高が少ないと財布の紐がキツくなるタチなんですよ」*
 
 &nbsp;
 
-I feel like I can spend about 500 SP if that's all I have in quicksand.
+With this much, I feel like I should be able to spend about 500 SP.
 
 *流石にこれだけあれば５００ＳＰくらいは使って良いかなって気分になるけど。*
 
 &nbsp;
 
-Mmmm. As for God, I'd like him to be more addicted to the rewards, dependent on them, and unable to help but deliver them. Come on, come on, let's eat something delicious.　You don't have chocolate in your world, do you?"
+“Hmm. As a god, I’d prefer you to indulge in more rewards and become dependent, unable to stop delivering. Come on, let’s eat something delicious, shall we? There’s no chocolate in your world, right?”
 
 *「むむむ。神様としてはもっとご褒美に溺れて依存して納品せずにはいられない状態になって欲しい所なんですが。ほらほら美味しい物食べましょう？　そちらの世界ではチョコレートなんてないでしょう？」*
 
-God?"
+“God?”
 
 *「神様？」*
 
-You know what I mean?　In fact, it's probably like a siesta or something. It's a love."
+“Just being honest, okay? In reality, it’s like Siesta or something. Such a lovely thing.”
 
 *「本音ですよ？　実際シエスタとかそういう感じでしょう。愛いやつです」*
 
 &nbsp;
 
-Well, he's God, isn't he? It can't be helped.
+Well, it is a god. It can’t be helped.
 
 *まぁ、神様だもんな。仕方ないな。*
 
 &nbsp;
 
-Then let's spend about 500 SP here, let's do that."
+“Then let’s spend about 500 SP here, shall we?”
 
 *「ではここで５００ＳＰくらい使っちゃいましょう、そうしましょう」*
 
-Eh."
+“Eh?”
 
 *「えっ」*
 
-I won't let you leave until you spend today, okay?"
+“I won’t let you go until you spend today, you know?”
 
 *「今日は使うまで帰しませんよ？」*
 
 &nbsp;
 
-What a surprise. I always get turned away with a 'it's time to go, see you later'.
+What the heck. I’m usually sent off with “It’s time, so goodbye.”
 
 *なんてこった。いつも『時間だからじゃあね』って追い返されるようにされるのに。*
 
-...... If you think about it, God is a space-time god, who can do anything with his divine power, even if time is pressing. He might say, "Late?　If we rewind time, it won't be a problem.
+...Thinking about it, the god is a time-space god, so even if time is pressing, they can do anything with their divine power. They’d probably say something like, “Late? Just rewind time, and it’s no problem.”
 
 *……よく考えたら神様ってば時空神じゃん、時間が差し迫ったとしても神の力で何とでもなるヤツじゃん。『遅刻？　時を巻き戻せば問題ないよね』とか言いそう。*
 
 &nbsp;
 
-What?" he asked. Do you feel like they won't let you go home stiff?"
+“Eh. Are you seriously not going to let me go?”
 
 *「え。ガチで帰してくれない感じですか？」*
 
-You want to take your time and think it over?　I can stretch it out for 10 years or even 100 years.　I am a space-time god.
+“Do you want to take your time and think slowly? That’s fine, I can stretch it for 10 years or 100 years, you know? I’m a time-space god after all.”
 
 *「時間をかけてゆっくり考えたいですか？　いいですよ、１０年でも１００年でも引き延ばしてあげますよ？　私時空神ですし」*
 
 &nbsp;
 
-The orders of magnitude of our sense of time is so different. ......　Is this God? ......
+The scale of their sense of time is different...! So this is what a god is like...
 
 *時間感覚の桁がちげぇ……！　これが神様か……*
 
 &nbsp;
 
-God takes out a catalog and holds up his hand.
+The god took out a catalog and waved their hand.
 
 *神様はカタログを取り出して手をかざす。*
 
-The paper flipped open and the page opened. Oh my, a delicious looking pudding a la mode.
+The pages flipped, and a page opened. Oh, that looks like a delicious pudding à la mode.
 
 *パラパラと紙がめくれてページが開いた。あら美味しそうなプリン・ア・ラ・モード。*
 
 &nbsp;
 
-I recommend the sweets around here that disappear after you eat them."
+“I recommend the sweets that disappear after you eat them around here.”
 
 *「おススメはここらへんの食べたら消えるスイーツ関係ですね」*
 
-You're trying to swamp me, aren't you? I'd rather have skills than running costs and other cosmetic costs."
+“You’re definitely trying to get me hooked... Considering the running costs, skills would be better, right?”
 
 *「沼にハマらせる気満々じゃないですか。……ランニングコストとかのコスパを考えるとスキルとかの方が良いんですけど？」*
 
-It would be easier if it were an item like Siesta that I would want on a regular basis."
+“It would be easier if it were items you’d want regularly like Siesta.”
 
 *「シエスタみたく定期的に欲しくなるようなアイテムだと楽なんですけどね」*
 
 &nbsp;
 
-It is a point given to me, but very self-serving.
+It’s points they gave me, yet they’re so self-centered.
 
 *私にくれたポイントなのに、とっても自分本位である。*
 
-Well, it's better than saying something weird and having it confiscated.
+Well, it’s better than saying something weird and having it confiscated.
 
 *まぁ変なこと言って没収されるよりはいいんだけどね。*
 
 &nbsp;
 
-How about this medicine that increases the maximum MP value by 10%?　It costs 100 SP.
+“Then how about this medicine that increases MP max by 10%? It’s 100 SP.”
 
 *「じゃあほら、このＭＰ最大値１割アップのお薬なんでどうです？　１００ＳＰです」*
 
-Ten percent is certainly a lot, but I've never had that much trouble running out of magic power.
+“10% is certainly significant, but I haven’t really had trouble with running out of magic power.”
 
 *「１割は確かにデカいですけど、現状別にそこまで魔力切れに困ったことないですね」*
 
-Damn it!　I made it too excellent! Even ...... would have had to be this good or it would have been a hindrance to messing with that piece of garbage, so I had no choice."
+“Damn it! I made it too good!!... But without this, I might have had trouble tormenting that trash, so it can’t be helped.”
 
 *「くそっ！　優秀に作り過ぎた！！……でもこのくらい無いとあのゴミをいたぶるのに支障が出たかもしれませんでしたからね、仕方ない」*
 
 &nbsp;
 
-God flipping through the catalog.
+The god flipped through the catalog.
 
 *パラパラとカタログをめくる神様。*
 
 &nbsp;
 
-Oh. How about a duplicate of the used sock collection around here, 200 SP each?"
+“Oh. How about this collection of used socks? Each for 200 SP.”
 
 *「お。この辺りの使用済み靴下コレクションの複製なんてどうですか、各２００ＳＰ」*
 
-I understand that God is pushing it, but I don't need a sock from a stranger or anything else, so ......!"
+“I understand it’s your recommendation, but I don’t need someone else’s socks...!”
 
 *「神様一押しなのは分かりますが、知らない人の靴下とか別にいらないんで……！」*
 
 &nbsp;
 
-They are lined up with the producer's picture, and it is nothing but disreputable.
+They’re lined up with pictures of the producers’ faces, and it’s just sketchy.
 
 *生産者の顔写真付きで並んでるし、いかがわしさしかない。*
 
-God says, "Mmmm, that's a lot of orders," and opens other pages.
+The god said, “Hmm, you have a lot of demands,” and opened another page.
 
 *神様は「むむむ、注文が多いなぁ」と他のページを開く。*
 
-I mean, I didn't know there was such a page ...... and here I am.
+Wait, was there even such a page...? That’s when I realized.
 
 *というかそんなページあったのかよ……と、ここで私は気付いた。*
 
 &nbsp;
 
-Hmm?　Could this be different from my catalog?　I thought.
+Huh? Isn’t this catalog different from mine?
 
 *ん？　これもしかして私のカタログと違くない？　と。*
 
 &nbsp;
 
-Because I did check it out, although I was just paraphrasing.
+After all, I flipped through mine and checked it out.
 
 *だって、私一通りはパラパラとだけど確認したんだよ。*
 
-But I don't remember seeing a sock collection catalog. If I had seen it, I'd definitely remember it, it's a quirk.
+But I don’t remember seeing a sock collection catalog. If I had, I’d definitely remember.
 
 *でも靴下コレクションのカタログなんて見た記憶がない。見てたら絶対覚えてるよ流石に。*
 
 &nbsp;
 
-If so, I might want some good feel-good skills that I don't have in my catalog or something: ......
+If that’s the case, I might want some nice skills that aren’t in my catalog...
 
 *となれば、私のカタログにない良い感じのスキルとかあれば欲しいかも……*
 
 &nbsp;
 
-Ah. How about some technical skills?　If you're going to actually move your body, you'd better have some skills in this area."
+“Oh. How about technical skills? If you’re actually moving your body, having these skills would be better.”
 
 *「あ。技術系のスキルとかどうです？　身体を実際に動かすならこの辺りのスキルはあった方が良いですよ」*
 
-Certainly ...... that is an option."
+“Certainly... That’s a valid option.”
 
 *「確かに……それは選択肢としてアリです」*
 
-Oh, this massage skill or going up to lvl 5 is quite applicable. It's rare and ...... is that?　I don't think I put it in Carina's catalog because it's rare..."
+“Oh, this massage skill is quite versatile when it reaches Level 5. It’s rare too... Wait, what? I don’t think I put this rare one in Karina-chan’s catalog—”
 
 *「お、このマッサージスキルとかＬｖ５までいくとかなり応用効いていいですよ。レアですし……ってあれ？　これレアだからカリーナちゃんのカタログに載せてなかったような――」*
 
-So be it! --ha!"
+“Then I’ll take that!!—Huh?”
 
 *「じゃあそれで！！――ハッ」*
 
 &nbsp;
 
-The moment I thought I had made a breakthrough - God was smiling back at me.
+The moment I showed a gap, the god smiled back instead.
 
 *隙を見せた――と思った瞬間、神様は逆ににまりと笑っていた。*
 
-Massage Lv5. its price was a whopping 500SP...... price as planned.
+Massage Level 5. Its price is a whopping 500 SP... just as planned.
 
 *マッサージＬｖ５。その価格はなんと５００ＳＰ……予定通りのお値段だった。*
 
 &nbsp;
 
-I was framed.
+I’ve been trapped.
 
 *ハメられた。*
 
 &nbsp;
 
-God, no.
+“God, you can’t be serious.”
 
 *「神様、まさか」*
 
-You did a wonderful job. You've bitten it beautifully. Bravo, oh, bravo."
+“Wonderful. You took the bait perfectly. Bravo, oh, bravo.”
 
 *「すばらしい。見事に食いついてくれましたね。ブラボー、おお、ブラボー」*
 
-Um, no cancellations or anything like that.
+“Um, can I cancel or something?”
 
 *「あの、キャンセルとかは」*
 
-Oh, we don't offer a cooling-off or refund service."
+“Oh, I don’t have a cooling-off period or refund service.”
 
 *「あ、クーリングオフとか払い戻しサービスはやってないんで」*
 
@@ -362,7 +362,7 @@ Oh, we don't offer a cooling-off or refund service."
 
 &nbsp;
 
-Snap, snap, snap," God applauded, and at the same time, a new skill was lodged in me.
+As the god clapped their hands, a new skill was bestowed upon me.
 
 *ぱちぱちぱち、と神様が拍手すると同時に、私に新たなスキルが宿った。*
 
@@ -370,17 +370,14 @@ Snap, snap, snap," God applauded, and at the same time, a new skill was lodged i
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(...... Huh?　May is over and we haven't finished the book work?
+(...Huh? Even though May is over, the book publication work isn’t finished yet?
 
 *（……あれ？　５月が終わったのに書籍化作業が終わってないよ？*
 
-(After one or two more talks, I'll prioritize the book work over updating the quirks: ......!)
+After one or two more chapters, I’ll definitely prioritize the book publication over updates...!?)
 
 *あと１，２話したら流石に更新より書籍化作業優先させるわね……！？）*
-

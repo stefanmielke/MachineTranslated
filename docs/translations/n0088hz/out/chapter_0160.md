@@ -1,4 +1,4 @@
-# I was found out. Easily exposed.
+# I got caught. I got caught easily.
 
 ## バレた。あっさりバレた。
 
@@ -6,65 +6,65 @@
 
 &nbsp;
 
-"Well, three drinks in a row?"
+"Well, how about three cups to start?"
 
 *「まぁ駆けつけ三杯？」*
 
-It's bad form for a Dwarf not to serve alcohol to his guests.
+"It's a disgrace for a dwarf not to serve alcohol to customers, so please, go ahead."
 
 *「お客様にお酒を出さないのはドワーフの名折れだものね、ささどうぞ」*
 
 &nbsp;
 
-And, as if it were a matter of course for the Dwarf sisters, alcohol was served from the kitchen cupboard.
+The dwarf sisters casually brought out alcohol from the kitchen cupboard.
 
 *と、ドワーフのお姉さん達が当たり前のように台所の戸棚からお酒が出してきた。*
 
-It is an amber-colored liquor in a glass bottle.
+It was an amber-colored drink in a glass bottle.
 
 *ガラス瓶に入った、琥珀色のお酒だ。*
 
-Poured into a small glass, it has a sweet, apple-like aroma from the volatile alcohol.
+Poured into a smaller glass, it emitted a sweet apple-like aroma from the evaporated alcohol.
 
 *小さめのグラスに注がれたそれは、揮発したアルコールからリンゴのような甘い香りがする。*
 
 &nbsp;
 
-Oh, hey," he said, "I'm a human being!　Anji-sama is a human being, so alcohol is not such a ......"
+"Ah, wait! Since you're human, you shouldn't drink that much..."
 
 *「あ、ちょっと！　あるじ様は人間だからお酒はそんな……」*
 
-I'll have some. Don't worry, it's not like I can't drink like this!"
+"Ah, I'll have some. Don't worry, I can drink despite how I look!"
 
 *「あー、いただくよ。大丈夫、こう見えて飲めないわけじゃないからね！」*
 
 &nbsp;
 
-Isiah stopped me, but I'm not stupid either.
+Aisia tried to stop me, but I'm not an idiot.
 
 *アイシアが止めたが、私だってバカじゃない。*
 
-A drink that is overtly strong alcohol. If I took even one sip, I would be waiting to get drunk!
+I could clearly feel the strong alcohol in the drink. If I took even a sip, I'd be completely drunk!
 
 *あからさまに強そうなアルコールを感じるお酒。一口でも飲んだら、私が泥酔待ったなし！*
 
-Dear you will be drunk and lose your memory before you make it known that you are a man's daughter and my property.
+Before it became common knowledge that Dia-kun is a boy in girl’s clothing and mine, I would probably get wasted and lose my memory.
 
 *ディア君が男の娘で私のモノだと周知する前に酔いつぶれて記憶も失うことだろう。*
 
 &nbsp;
 
-So here I'm going to use the strategy of pretending to drink that I used in the drinking contest with Gomez!
+So, I’ll go with the drinking act strategy I used in the drinking contest with Gomez!
 
 *だからここはゴメスとの飲み比べ勝負で使った飲んだフリ作戦でいく！*
 
 &nbsp;
 
-I bring the alcohol I received to my mouth - and at that moment it is stored in the storage space!
+I brought the drink to my mouth—and in that instant, I stored it in my dimensional space!
 
 *私は受け取ったお酒を口に運び――その瞬間に収納空間に格納！*
 
-Instead, he swallows the water that has been replaced!
+Instead, I swallowed the water I had switched it with!
 
 *かわりに差し替えた水を飲みこむ！*
 
@@ -76,143 +76,143 @@ Phew!
 
 &nbsp;
 
-'Oh no, it's delicious!　Thanks for the treat!"
+"Wow, this is delicious! Thank you for the treat!"
 
 *「いやー、美味しいですね！　ご馳走様です！」*
 
 &nbsp;
 
-I return the empty glass to her, and Isiah's grandmother and others stare at me.
+I returned the empty glass—only to find Aisia’s grandmother and others staring at me with narrowed eyes.
 
 *空になったグラスを返す――と、アイシアのおばあちゃん他がじぃっとジト目で私を見る。*
 
 &nbsp;
 
-...... There's no alcohol in your exhale. You haven't been drinking properly, have you?　You can't fool our eyes.
+"…There’s no alcohol mixed in your breath. You didn’t drink properly, did you? You can’t fool our eyes."
 
 *「……呼気に酒精が混じってない。ちゃんと飲んでないねぇ？　アタシらの目はごまかせないよ」*
 
-What kind of magic trick did you use?　What kind of magic trick did you use? I'm curious about the gimmick.
+"Eh, you got rid of the alcohol!? What kind of trick did you use? I’m curious about the gimmick."
 
 *「えー、お酒消しちゃったの！？　どんな手品つかったのかな。ギミックが気になる」*
 
-'I don't believe it, it's a desecration of alcohol! You didn't dump ......, did you?"
+"I can’t believe it, it’s a desecration of alcohol! …You didn’t throw it away, right?"
 
 *「信じらんない、酒への冒涜だよ！……捨ててないよね？」*
 
 &nbsp;
 
-They found out. They found out easily.
+I got caught. I got caught easily.
 
 *バレた。あっさりバレた。*
 
 &nbsp;
 
-He said, "Don't be shy. It's a very good sake."
+"Don’t hold back. It’s a special delicious drink."
 
 *「遠慮しなくていいよ。とっておきの美味しい酒だからね」*
 
-'Come on, have a drink, have a drink. I'll find out how it works!"
+"Come on, drink up. I’ll figure out your trick!"
 
 *「さ、飲んで飲んで。仕組みを見破ってやる！」*
 
-It's my father's secret fire wine. If you turn it off again, I'll be very angry.
+"This is my dad's secret fire liquor. If you make it disappear again, I’ll get angry, you know?"
 
 *「これはオトン秘蔵の火酒だよ。次ぃ消したら怒るよ？」*
 
 &nbsp;
 
-It's a very, very attention-grabbing experience. Observant eyes, eyes that don't tolerate the poor taste of alcohol.
+I’m really gathering attention. Eyes that observe, eyes that won’t tolerate wasting alcohol.
 
 *す、すごく注目を集めている。観察するような目、酒を粗末にするのは許さない目。*
 
-They are family, and when they look at me with eyes like that, just like Aisia and Satitan, I have no choice but to drink without any more deception. ......
+Being family, if I’m stared at with those eyes that look just like Aisia and Sati-chan, I have no choice but to drink without trying to deceive them…!
 
 *家族なだけあって、アイシアやサティたんそっくりのそんな目に見つめられたら、私はもう、ごまかさずに飲むしかないじゃない……！*
 
 &nbsp;
 
-I mean, fire wine is something that even dwarves have to judge alcohol.
+Besides, fire liquor is that stuff, the kind that even dwarves can’t help but recognize as alcohol.
 
 *ってか火酒ってアレじゃん、ドワーフでもお酒判定出さざるを得ないヤツじゃん。*
 
 &nbsp;
 
-I looked at ...... Isiah and he looked at me as if to say, "That's why I stopped you.
+…When I looked at Aisia, she had a look that seemed to say, "I told you to stop."
 
 *……アイシアを見ると「だから止めたのに」と言わんばかりの目をしていた。*
 
-Okay, I'm ready. I'm ready.
+I understand. I’ll brace myself.
 
 *わかったよ。覚悟キメるよ。*
 
 &nbsp;
 
-Yes, I'll take it!"
+"I-I’ll have some!"
 
 *「い、いただきますっ！」*
 
 &nbsp;
 
-The glass is tilted up and the wine is placed in the mouth. A cool sensation and a mellow aroma spread to the palate.
+I tilted the glass and took a sip. A moment of chill followed by a rich aroma spreading in my mouth.
 
 *ぐっとグラスを傾けて口に含む。一瞬ひやりとした感触と、芳醇な香りが口に広がる。*
 
-Oh, it tastes good. The next moment I thought, a stabbing heat attacked the mucous membranes of my mouth.
+Oh, it’s delicious. But the next moment, a stabbing heat assaulted my oral mucosa.
 
 *あ、美味しい。と思った次の瞬間、刺すような熱さが口内粘膜に襲い掛かった。*
 
 &nbsp;
 
-Wooooooo!　Kits!　Alcohol tight!
+Ugh!? This is intense! The alcohol is so strong!?
 
 *うごぉおお！？　キッツ！　アルコールきっつぅうう！？*
 
-My throat is ...... burning!　Oh, my stomach and stomach are burning!
+My throat… my throat is burning!! Ah, my stomach, it feels hot inside!
 
 *喉が……喉が焼けるッ！！　あああ、おなか、胃袋がカッカと熱い感じぃ！*
 
 &nbsp;
 
-"Puphahah ......"
+"Phew…"
 
 *「っぷはぁ……」*
 
-You drank it this time," he said!　You drank right this time. You did it, my guest!"
+"Oh! This time you actually drank it. Not bad, guest!"
 
 *「おっ！　今度はちゃんと飲んだね。やるじゃないか客人！」*
 
-That's why you are the right master for Isiah," he said. Let's welcome her."
+"That’s more like it for Aisia’s master. Let’s welcome you."
 
 *「それでこそアイシアのご主人様に相応しいわけだ。歓迎しよう」*
 
-I'd like to drink it too. Grandma. Give me a bottle of ...... no?　Stinky."
+"I want to drink the fire liquor too. Grandma, can I have a bottle…? No? How stingy."
 
 *「火酒ぇ……私も飲みたい。おばあ。一本頂戴……ダメ？　ケチ」*
 
 &nbsp;
 
-This time, I drank properly, and the Dwarf women welcomed me with smiles.
+N-Now, the dwarf women welcomed me with smiles for actually drinking.
 
 *こ、今度は、ちゃんと飲んだ私を、ドワーフの女たちは笑顔で歓迎してくれた。*
 
-...... Oh, no. Fluffy head fluffy suryuu......
+…Ah, no. My head is feeling all fuzzy…
 
 *……あ、ダメ。頭ふわっふわすりゅぅ……*
 
 &nbsp;
 
-Oh, my God!
+"Ah, Master!"
 
 *「あ、あるじ様ー！」*
 
 &nbsp;
 
-As I hear Aysia's voice, I slump down and sit up, my strength draining from my body.
+Hearing Aisia's voice, I felt my strength leave my body and I slumped down.
 
 *アイシアの声を聞きながら、私は体から力が抜けてきたのでくたりと座り込む。*
 
-And--
+And then—
 
 *そして――*
 
@@ -222,47 +222,47 @@ And--
 
 &nbsp;
 
-"Ha ......!　Oh, my head hurts! ......"
+"Haah…! Ah, my head hurts…"
 
 *「ハッ……！　あー、頭が痛てぇ……」*
 
 &nbsp;
 
-I woke up. My memory is gone. Hmmm, it's been a long time since I had this feeling.
+I woke up. My memory was completely gone. Hmm, it’s been a while since I felt this sensation.
 
 *目が覚めた私。スッとんだ記憶。うーん、久しぶりだねこの感覚。*
 
 &nbsp;
 
-So what the heck happened this time... ...... Wow. Wow, there are a lot of dwarves sleeping in this room. Both men and women are sleeping together. I was the only loli in the room.
+So, what happened this time… wow. There are a lot of dwarves sleeping in this room. Both men and women are sprawled out together. But around me, there are only lolis.
 
 *で、今回はいったいどうなったのかなーっと……わぁお。この部屋ドワーフがたっくさん寝てるね。男女両方ごちゃっと雑魚寝である。私の周りはロリしかいないけども。*
 
-...... Yeah, there's a few unclothed ones here and there, too, both men and women.
+…Yeah, there are a few without clothes too, both genders.
 
 *……うん、服着てないやつもちらほらいるね、これも男女共に。*
 
 &nbsp;
 
-Ah, good morning, Mister.
+"Ah, good morning, Master."
 
 *「あ、おはようございますあるじ様」*
 
-You can find me at "...... Good morning, Isiah. Hey, what happened since then?　I don't remember anything since I had a sip of alcohol."
+"…Good morning, Aisia. So, what happened after that? I don’t remember anything after putting the alcohol in my mouth."
 
 *「……おはようアイシア。ねぇ、あれからどうなったの？　お酒口にしてから記憶がないんだけど」*
 
-Yes, Master Dia is safe!　Master Dia is safe and sound!　He has been quarantined in the children's room to rest!"
+"Yes! Dia-sama is safe!! He was isolated in the children’s room to rest!!"
 
 *「はい！　ディア様は御無事です！！　子供部屋で隔離して休んでいただきました！！」*
 
 &nbsp;
 
-Yeah, that's good. So, what's wrong with me?
+Well, that’s good. But what about me???
 
 *うん、それはよかった。で、私はどうしたの？？？*
 
-I'm a little afraid to ask.
+I’m a bit scared to ask.
 
 *ちょっと聞くの怖いんだけど。*
 
@@ -271,4 +271,3 @@ I'm a little afraid to ask.
 &nbsp;
 
 &nbsp;
-

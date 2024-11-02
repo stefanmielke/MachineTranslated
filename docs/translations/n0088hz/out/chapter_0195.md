@@ -1,240 +1,237 @@
-# Would you like to have it made in lieu of rent?
+# 家賃代わりに作ってもらいますか？
 
 ## 家賃代わりに作ってもらいますか？
 
 &nbsp;
 
-It was the bear-eared beastman who won that match.
+The one who won that match was the bear-eared beastman.
 
 *その試合で勝利したのは熊耳獣人の方だった。*
 
-But both were covered in bruises and looked sore. They were hitting each other so hard, and their faces were so merciless.
+But both of them looked battered and in pain. They were really going at it, and their faces were merciless.
 
 *だが両者ともアザだらけで痛そうだ。めっちゃ殴り合ってたし顔も容赦なくだったもんなぁ。*
 
 &nbsp;
 
-This is a tournament, right?　Is it going to heal before the next match? What do you think, Isiah?"
+"Isn't this a tournament? Will they heal in time for the next match? What do you think, Aisia?"
 
 *「これ、トーナメントでしょ？　次の試合までに治るもんなのかね。どうなのアイシア」*
 
-We have potions, and I think they will cure."
+"We have potions, so I think they'll be fine."
 
 *「ポーションがありますし、治ると思いますよ」*
 
 &nbsp;
 
-Portion!　I see that's what you got.
+Potions! I see, so that's what they have.
 
 *ポーション！　なるほどそれがあったか。*
 
-As I watched, two of the players were getting potions from the management staff and drinking them. They even applied some of it directly to the bruises. Oh, if it's just a bruise, it heals quickly, wow.
+Looking on, the two players were receiving potions from the staff and drinking them. Some even applied them directly to their bruises. Wow, it seems like bruises heal quickly, that's amazing.
 
 *見ていると選手二人は運営スタッフからポーションをもらって飲んでいた。一部直接アザに塗ったりも。おー、打ち身くらいならすぐ治るんだね、すげー。*
 
 &nbsp;
 
-I know Lou is good at making potions. I wonder if it would be possible to have her make them and sell them.
+"Ruu-chan is good at making potions, right? Maybe we could have her make some to sell."
 
 *「ポーションはルーちゃんが得意なんだよねぇ。作ってもらって売るのはアリかな」*
 
-"I'm sure you can sell the potions at ...... grandmothers. Would you sell them with the Five Elders seal?"
+"…If it's potions from the grandmothers, they would definitely sell. Should we put the Five Elders' seal on them when we sell?"
 
 *「……おばあちゃん達のポーションなら、間違いなく売れますね。五大老印でもつけて売ります？」*
 
 &nbsp;
 
-Roo, the Five Elders' Barr Zebre, is a full-fledged master who seems to have been trained in the alchemy kingdom.
+Ruu-chan, known as the Five Elders' Barlzebul, seems to be a serious practitioner who trained in the Alchemy Kingdom.
 
 *五大老のバールゼブルことルーちゃん、錬金王国で修行したらしい本格派だ。*
 
-(It was a little awkward listening to him talk about the cafes of his memories.)
+(I felt a bit awkward listening to stories about the café of memories.)
 
 *（思い出のカフェの話とか聞いててちょっと気まずかった）*
 
 &nbsp;
 
-I think it's a good idea, too. The healer is now Mr. Mee's son, and it would be natural to say that he got it through that message. Would you like to have it made in exchange for rent?"
+"I think that's a good idea too. Since the healer is Mi-san's son, it would make sense to say we got them through that connection. Should we have her make some as rent?"
 
 *「僕もそれは良いアイディアだと思いますよ。ヒーラーがミーさんの息子になってますし、その伝手で仕入れたと言えば自然でしょう。家賃代わりに作ってもらいますか？」*
 
-I didn't really think about it. Well, I didn't really think about it."
+"Rent, huh. Now that you mention it, I hadn't really thought about it."
 
 *「家賃かぁ。そういや特に考えてなかったな」*
 
 &nbsp;
 
-Because I don't get rent from my wife.　It's more like he's using the workshop as bait to get her to live there.
+After all, it's not like I would ask my wife for rent, right? Rather, it feels like I'm using the workshop as bait to have her live with me.
 
 *だって妻から家賃貰うってなくない？　むしろ工房を餌にして住んでもらってる感ある。*
 
 &nbsp;
 
-I heard you pay rent, Mr. Masiello. Isn't that fine?"
+"I heard Mashiro-san pays rent. Isn't that fine?"
 
 *「マシロさんは家賃払ってるって聞きましたよ。別にいいんじゃないですか？」*
 
-"Nggggh!　Dey, Dear-kun. That, uh."
+"Ugh!? D-Dia-kun. Well, um..."
 
 *「んぐっ！？　でぃ、ディア君。その、あー」*
 
 &nbsp;
 
-Mr. Masiello's rent is paid by his body, and his body pays his rent, so, well, yes.
+Mashiro-san pays her rent with her body, so, well, yeah.
 
 *マシロさんの家賃はカラダで、カラダに払ってもらっているので、まぁうん。*
 
-I mean, if you put it that way, all the Five Elders are getting their rent paid too!
+If you think about it, all the Five Elders are also paying rent!
 
 *ってかそれで言ったら五大老のみんなも家賃払ってもらってるわけで！*
 
 &nbsp;
 
-Ah. Aside from ...... slave Isiah, I should pay rent too, right?"
+"Oh. …Setting aside the slave Aisia, I should probably pay rent too, right?"
 
 *「あ。……奴隷のアイシアさんはともかく、僕も家賃払ったほうが良いですよね？」*
 
-What?　Oh, um, um, ki, don't worry about it!"
+"Eh!? Ah, um, um, you really don't have to worry about it!?"
 
 *「え！？　あ、う、うーん、き、気にしなくていいんだよ！？」*
 
-'No. I'm not going to do it!　I have to keep these things tight!"
+"No! We need to be proper about these things!"
 
 *「いえ！　こういうのはしっかりしておかないと！」*
 
 &nbsp;
 
-Oh, no. I can't believe I'm getting rent money from you, Deere. ......
+N-no way. Asking Dia-kun to pay rent...!
 
 *そ、そんな。ディア君から家賃を払ってもらうだなんて……ッ！*
 
-Dia is a beautiful girl for viewing, but she can't afford to pay rent. ......Uh, but if Dia insists, she'll probably get punished ...... a little bit.... ....and later Mr. Masilo will probably punish you for it, but that's another ......
+Dia-kun is a beautiful girl meant for admiration, and rent? No way... but if Dia-kun insists... just a little... though Mashiro-san might punish me later, but still...
 
 *ディア君は観賞用美少女なのに、家賃だなんてそんな……うう、で、でもディア君がどーしてもって言うなら……ちょっとくらいなら……あとでマシロさんにお仕置きされちゃうだろうけどそれもまた……*
 
 &nbsp;
 
-I only have an allowance that my sister gives me.　I only have an allowance that my sister gives me, so I think I'll have to pay it all when I get to my country.
+"By the way, how much is it per month? I only have the allowance I got from my sister, so I think it would be best to pay it all at once when I go to my country."
 
 *「ちなみに月あたりおいくらなんでしょう？　手持ちはお姉さんからもらったお小遣いくらいしかないので、僕の国に行ったら纏めて払う形になると思いますが」*
 
-What?　Oh, yeah, right!　Money... ...... money, yes."
+"Eh!? Ah, y-yeah! Money... it's about money, right, yeah."
 
 *「え！？　あ、そ、そうだね！　お金かぁ……お金だよね、うん」*
 
 &nbsp;
 
-That. I'm a little relieved, but I'm also disappointed.
+Huh. I feel a bit relieved, but also disappointed in myself.
 
 *あれ。ちょっとホッとしてるけどガッカリもしてる自分がいる。*
 
 &nbsp;
 
-Dear Dia-sama. If you pay in money, your base class room will cost you a considerable amount of money.　You can use the bath as much as you want, there is a workshop, a completely secure private room, and three meals are included. The square footage is unmeasurable, and pets are allowed."
+"Dia-sama. If you pay with money, the rent for a room of the master’s base class will be quite a sum, you know? Unlimited use of the bath, a workspace, completely safe private room, three meals a day. The land area is immeasurable, and pets are allowed."
 
 *「ディア様。金銭で払うと、あるじ様の拠点クラスの部屋は相当な額になりますよ？　お風呂使い放題、作業場あり、完全に安全な個室、三食ごはん付き。敷地面積は計測不能でペット可ですし」*
 
-"...... indeed. It's not every day you get to keep a dragon or something like that."
+"…That's true. There aren't many places where you can keep a dragon."
 
 *「……確かに。ドラゴン飼える環境とかそうそうないですよね」*
 
-'Arthur is my pet!　No cans!　No can do!"
+"Arthur is my pet! That doesn't count! It doesn't count!"
 
 *「アーサーは私のペットだから！　ノーカン！　ノーカンだから！」*
 
 &nbsp;
 
-I have a feeling that she misses Dear more than me, but she is my pet!
+Even though it seems like Arthur is closer to Dia-kun than to me, he is still my pet!
 
 *私よりディア君に懐いてる感はあるけど、アレあくまで私のペットだからね！*
 
 &nbsp;
 
-However, if you ask me, aside from Aisia and Arthur, who are my possessions, Dia-kun felt like I was completely providing for him. He's cute, super smart, and a reliable companion.
+However, when I think about it, while Aisia and Arthur are technically my possessions, Dia-kun feels completely like someone I'm supporting. She's cute, super smart, and a reliable companion.
 
 *しかし、言われてみれば私の所有物にあたるアイシアやアーサーはともかく、ディア君は完全に私が養ってる感じだった。可愛い上に超賢くて頼れる仲間なんだけど。*
 
 &nbsp;
 
-After all, wouldn't it be quicker here to have Master Dear pay with his body as well?"
+"Perhaps it would be quicker for Dia-sama to pay with her body?"
 
 *「やはりここは、ディア様にも身体で払ってもらうのが手っ取り早いのでは？」*
 
-Eh."
+"Eh?"
 
 *「えっ」*
 
-I'm not sure I'm willing to do that. I wouldn't be too far off."
+"That seems to be the case. I'm not opposed to it either."
 
 *「そうなりますか。僕もやぶさかではないですが」*
 
 &nbsp;
 
-Oh, no, no, no, no, you're still going to pay rent with your body, aren't you?
+Wait, no way, are we really saying Dia-kun should pay rent with her body!?
 
 *えっヤダうそまって、ディア君にもやっぱりカラダで家賃を払ってもらうの！？*
 
-......I would be super happy to wake up in the morning and have Dear in my arms or something. ......
+…If I woke up in the morning with Dia-kun in my arms, that would be super happy...
 
 *……朝起きて腕の中にディア君がいたりなんかしたら超幸せだろうなぁ……*
 
 &nbsp;
 
-The most important thing to remember is that the best way to get the most out of your home is to make sure that it's a good place to live. I'm learning a lot of things on the side. ......
+"That said, housework is Aisia-san's job, and recently, with the Five Elders' workshop in operation, I haven't had a chance to contribute. I've been learning various things along the way..."
 
 *「とはいえ、家事はアイシアさんの仕事で、最近は物作りも五大老工房が稼働して僕の出る幕じゃなくなってるんですよね。ついでにって色々教わってますし……」*
 
-You have the job of taking care of Arthur, don't you?"
+"Dia-sama has the job of taking care of Arthur, doesn't she?"
 
 *「ディア様にはアーサーの面倒を見る仕事があるじゃないですか」*
 
-"It's just another normal play, but will ...... that be the case?"
+"That's just playing around normally, though... Is that really how it works?"
 
 *「それも普通に遊んでるだけですけど……そうなるんでしょうか？」*
 
 &nbsp;
 
-Uh, yeah. You pay with your body, which means you're in charge of a regular job.
+Ah, yeah. Paying with her body means just doing her job normally.
 
 *あ、うん。身体で払う、つまり普通にお仕事を担当ってことね。*
 
-I was in a bit of a hurry. Just a little bit.
+I got a bit flustered. Just a little.
 
 *ちょっと焦ったわ。ちょっとだけね。*
 
 &nbsp;
 
-...... Then I'll just assume that Dear's rent is being paid by dressing cute and taking care of Arthur. I don't even want to collect it now. I mean, I'm a ...... friend, so don't worry about it. I'm always there for you."
+"…Then let's say Dia-kun pays rent by looking cute and taking care of Arthur. I don't want to collect now anyway. …Besides, we're friends, so don't worry about it. I always get help from you, Dia-kun."
 
 *「……んじゃあディア君の家賃は、可愛い格好するのとアーサーの面倒みることで払ってもらってるってことにしとこ。今更徴収したくもないし。……ってか仲間なんだから気にしないで。私、ディア君にはいつも助けてもらってるもん」*
 
-'Mmm, if your sister says so. ...... Oh, the next match is starting!"
+"Muu, if you say so, Onee-san. …Ah, the next match is starting!"
 
 *「むぅ、お姉さんがそう言うなら。……あ、次の試合始まりますよ！」*
 
 &nbsp;
 
-Deere looks at the ring when he says that.
+Saying that, Dia-kun looked at the ring.
 
 *そう言ってリングを見るディア君。*
 
-Incidentally, while I was agonizing over the thought of Dear's 'rent', the match was over before I knew it.
+By the way, while I was lost in thought about Dia-kun's "rent," the match had ended before I knew it.
 
 *ちなみに私がディア君の『家賃』を考えて悶々としていたら、いつの間にか試合は終わっていた。*
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(It's on sale on the 20th!
+(It's being released on the 20th!!
 
 *（２０日に発売だぞー！！*
 
-(You can also make reservations at bookwalker!)
+You can also pre-order it on Bookwalker!)
 
 *bookwalkerでも予約できるよ！）*
-

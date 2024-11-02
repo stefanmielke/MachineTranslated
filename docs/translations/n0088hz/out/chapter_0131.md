@@ -1,4 +1,4 @@
-# We're friends... # We're friends... # We're friends... # We're friends...
+# We are best friends forever☆
 
 ## 私達、ズッ友だょ☆
 
@@ -8,15 +8,15 @@
 
 &nbsp;
 
-I, Karina-chan!　I bravely asked Mr. Masiello, "We're friends, aren't we!" and he replied, "Yes, we are!
+I'm Karina! When I bravely asked Mashiro, "We're friends, right!?" she replied, "That's right!"
 
 *私カリーナちゃん！　マシロさんに勇気をもって「私達、友達だよね！？」って聞いたら「そうだよ」って返ってきたの！*
 
-Mashiro, my friend!　We're friends!
+Mashiro, my friend! We are best friends forever☆
 
 *マシロ、マイ、フレンド！　私達、ズッ友だょ☆*
 
-...... How do you pronounce the little "yo" part?
+…How do you pronounce the small "yo" part?
 
 *……小さい「よ」の部分どう発音すんのコレ？*
 
@@ -24,149 +24,149 @@ Mashiro, my friend!　We're friends!
 
 &nbsp;
 
-Anyway, he is a friend (officially approved by him). We did it!
+Anyway, we are friends (officially recognized). Yay!
 
 *ともあれ、お友達（本人公認）である。やったぜ！*
 
-I know I lured him in partly out of guilt, but in this case, I had no choice but to omotenashi him.
+I did lure her in with a bit of guilt, but now that it's come to this, I have no choice but to entertain her.
 
 *罪悪感で誘い込んだとこあるけど、こうなったらオモテナシするしかあるまい。*
 
 &nbsp;
 
-'Okay, let's make room for Mr. Masilo!　There's plenty of room!"
+"Alright, let's make a room for Mashiro too! There's plenty of space!"
 
 *「よし、マシロさんの部屋も作ろう！　場所はいくらでもあるからね！」*
 
-"What?　Room? ...... Well, you know, Dia. You showed up from somewhere too, didn't you?"
+"What? A room? …Oh right, you said Dia. You appeared from somewhere too, didn't you?"
 
 *「なんだと？　部屋？……そういや、ディアっつったか。お前もどこからか現れてたよな」*
 
-Yes, yes. I have my own room."
+"Yes, I do have my own room."
 
 *「ええはい。自分の部屋があるので」*
 
 &nbsp;
 
-With these words, Dia-kun pointed to the door of his room. The doors were standing in a row, and when opened, they would become a gate leading to his room.
+Saying that, Dia pointed to the door of his room. The doors standing in a row will become a gateway to their own rooms when opened.
 
 *そう言ってディア君は部屋の扉を指さした。ぽつぽつと並んで立っているその扉は、開ければ自分の部屋につながるゲートになる。*
 
 &nbsp;
 
-Oh, yeah. That's the bathroom, and that's the bath. This is our room."
+"Oh yeah. That one is the toilet, and that one is the bath. This is our room."
 
 *「ああうん。あれがトイレで、そっちはお風呂。こっちは私達の部屋だよ」*
 
-"...... can I take a look at it for a second?　I don't know what it is."
+"…Can I take a look? I don't really get it."
 
 *「……ちょっと見せてもらってもいいか？　なんかよくわからん」*
 
-In the meantime, do you want to take a bath?"
+"Shall we take a bath first?"
 
 *「とりあえず、お風呂でも入る？」*
 
-You have a bath!"
+"There's a bath!!"
 
 *「風呂があるのか！！」*
 
 &nbsp;
 
-Whoa, that's a big bite. Your tail is buzzing, too.
+Whoa, she's really excited about this. Her tail is wagging too.
 
 *おっと、すごい食いついてきたな。尻尾もブンブンしてるぞ。*
 
 &nbsp;
 
-And I'll collect your socks while I'm at it."
+"Also, I'll collect your socks while I'm at it."
 
 *「あと、ついでに靴下回収するよ」*
 
-'Oh, finally. I wondered how long I would have to wear them. I've been wearing them for so long, they're so stiff and uncomfortable.
+"Oh, finally. I was wondering how long I had to wear these. They've been on for so long that they feel stiff and gross."
 
 *「お、やっとか。いつまで履けばいいんだと思ったよ。ずっと履きっぱなしでゴワゴワして気持ち悪かったんだコレ」*
 
 &nbsp;
 
-On the other hand, he was assiduous in his response to the sock collection.
+On the other hand, she had a nonchalant attitude towards the sock collection.
 
 *一方で靴下回収に対してはアッサリとした態度だった。*
 
-Not very tasty from a shameful point of view... Hmmm. ...... Ah, yes.
+It's not very tasty in terms of embarrassment. Hmm… Oh, right.
 
 *羞恥心的にはあまり美味しくないなー。うーん。……あ、そうだ。*
 
 &nbsp;
 
-'It's about time to collect, because that's when you start smelling like unwashed dog!　Oh no, I didn't think they could smell that fast, Mr. Masillo is so talented!"
+"The right time to collect them is when they start to smell like an unwashed dog! Wow, I didn't expect them to smell this bad so soon. Mashiro, you're impressive!"
 
 *「回収し頃なのは洗ってない犬の臭いがしてきたらだからね！　いやー、まさかこんなに早く臭くなるなんて、マシロさんは優秀だなぁ！」*
 
-What?　You don't smell that?
+"Huh!? I-I'm not smelly!!"
 
 *「はぁ！？　く、臭くねぇだろ！？」*
 
-I don't know how I smell, you know. You think so too, don't you?
+"Well, you can't really tell your own smell, can you? Right, Dia? You think so too, right?"
 
 *「いやぁ、自分のニオイは自分じゃわからないからねぇ。ね、ディア君もそう思うでしょ？」*
 
 &nbsp;
 
-If Mr. Masilo is such a clean-living person who loves to eat so much in the bath, he can attack this place and ...... will be good-looking!
+If Mashiro, who is so cleanliness-conscious, is this eager about the bath, then I can definitely work with this!
 
 *お風呂にこれほど食いつく綺麗好きのマシロさんなら、ここを攻めれば……イケる！*
 
-I say to Mr. Dear, "Please tell me it is so!" I say, with a wink flying.
+I winked at Dia and said, "Please say that's true!"
 
 *ディア君に「お願いそうだと言って！」とウィンクを飛ばして言う。*
 
 &nbsp;
 
-"...... yes, I know. I don't know if it's a washed dog, but I do know it smells sweaty."
+"…Well, I can't tell if it's a washed dog, but I can tell it's sweaty."
 
 *「……そうですね。洗った犬かどうかはわかりませんが、汗臭いのは分かります」*
 
-I just took a bath three days ago!　I just took a bath three days ago!
+"Seriously…!? I just took a bath three days ago!?"
 
 *「マジか……っ！　三日前に風呂いったばっかだぞ！？」*
 
-But that was three days ago. But that was three days ago. Okay, I'll undress you then. Sit down there, and don't do anything like washing.
+"Oh. Even so, it was three days ago. Alright then, I'll help you take it off. Please sit there, and don't do any washing or anything."
 
 *「あ。それでも三日前なんだ。はーい、それじゃあ脱がしますからねー。そこ座ってねー、洗浄とかしちゃダメだからねー」*
 
 &nbsp;
 
-All right, all right. You've got a good sense of shame.
+Alright, alright. I've managed to stir up her sense of embarrassment nicely.
 
 *よしよし。いい感じに羞恥心を煽れたな。*
 
-And I retrieved the socks from Masilo's feet as he pressed his face in embarrassment.
+So, I collected the socks from Mashiro, who was covering her face shyly.
 
 *と、私は恥ずかしそうに顔を押さえるマシロさんの足から靴下を回収した。*
 
 &nbsp;
 
-By the way, I just collected one of them,
+By the way, after collecting one,
 
 *ちなみに片方回収したところで、*
 
 &nbsp;
 
-'Ah, the savory smell of pawpaws. Makes me want to eat popcorn."
+"Ah, the smell of the paw pads is delightful. I'm starting to crave popcorn."
 
 *「あー、肉球が香ばしいニオイ。ポップコーン食べたくなってきたなー」*
 
-What?　Don't sniff it!　What the hell is popcorn?"
+"What!? Don't smell it! What’s popcorn!?"
 
 *「なっ！？　嗅ぐんじゃねぇよ！　ポップコーンってなんだよ！？」*
 
 &nbsp;
 
-Successfully added to the shame. I'm expecting God's assessment to go up on this one, man.
+I successfully stirred up more embarrassment. This should increase my rating with the gods.
 
 *追加で羞恥心を煽ることに成功。これは神様の査定アップが期待できるぜ。*
 
-And I am willing to make popcorn if I can find corn with explosive seeds.
+And if I had some explosive corn, I would like to make popcorn.
 
 *それとポップコーンは爆裂種のトウモロコシがあったら作りたい所存。*
 
@@ -176,147 +176,146 @@ And I am willing to make popcorn if I can find corn with explosive seeds.
 
 &nbsp;
 
-They undress in the dressing room in front of the bathhouse and are guided to the baths, which are their pride and joy.
+I undressed in the changing room before the bath and guided her to my pride, the bath.
 
 *風呂場手前の脱衣所で脱衣し、自慢のお風呂へ案内する。*
 
-Mashiro-san is also all fluffy, even down to his underwear. I want to cuddle him.
+Mashiro took off everything, including her underwear, and was all fluffy. I want to hug her.
 
 *マシロさんも下着まで全部脱いで全身モフモフだ。抱き着きたい。*
 
 &nbsp;
 
-So this is the bathroom.
+"So, this is the bath."
 
 *「で、ここがお風呂なわけよ」*
 
-"...... deep in the mountains?　I thought this was deep in a dungeon. ...... No, that's not the point anymore. It's absurd."
+"…In the mountains? Wasn't this the back of a dungeon? …Well, I guess that doesn't matter anymore. This is ridiculous."
 
 *「……山奥？　ここはダンジョンの奥だったんじゃ……いやもうそれは関係ねぇか。無茶苦茶だな」*
 
-It's like an open-air bath. It has a certain elegance, doesn't it?"
+"It's like an outdoor hot spring. It has a nice atmosphere, doesn't it?"
 
 *「露天風呂風だよ。風情があるでしょ？」*
 
 &nbsp;
 
-Mashiro taps his toe on the hot water to see how it is.
+Mashiro poked the water with her toes to check the temperature.
 
 *つんつん、と張られた湯を足指でつついて様子見するマシロさん。*
 
 &nbsp;
 
-'There's more anxiety than elegance,' he said. To the extent that you might bathe in the open air and be attacked."
+"I feel more anxious than anything else. We might get attacked while bathing outdoors."
 
 *「風情よりも不安があるな。野外で水浴びして襲撃されるかもしれない程度に」*
 
-You can't see them from the outside, and they're warded, so you can assume they're okay."
+"You can't see from outside, and there's a barrier, so you can relax."
 
 *「外からは見えないし、結界あるから大丈夫だと思ってくれていいよ」*
 
-I'm not sure if it's a good idea. I certainly don't see any sign of it. The water's pretty hot.
+"A barrier… Well, I guess that's fine. I don't sense anything. Oh, the water is quite hot."
 
 *「結界……まぁいいか。確かに気配はしねぇし。おっ、湯が結構熱めだな」*
 
-It feels better when it's so hot that it hurts my skin a little."
+"A little pain on the skin feels better."
 
 *「少し肌が痛いくらい熱い方が気持ちいいのよ」*
 
-I can see that!"
+"I understand that!"
 
 *「それは分かる！」*
 
 &nbsp;
 
-We slowly get into the hot water from the feet up, after applying the magic wash of life to our bodies.
+We cast a cleaning spell on our bodies and slowly stepped into the water from our feet.
 
 *身体に生活魔法の洗浄をかけて、足の方からゆっくりとお湯に入る私達。*
 
-Masilo's hairs are spreading in the hot water. This is the kind of hair that flops around after a bath.
+Mashiro's fur spread out in the water. This is the kind that flattens after getting out of the bath.
 
 *湯の中でマシロさんの毛がぶわぁと広がっている。これ、お風呂上がりにぺたーんってなるヤツだ。*
 
 &nbsp;
 
-I'm like, "Kkahhhh!　That feels so good!"
+"Ahhh! This feels so good!"
 
 *「っかぁあー！　気持ちいいぃーーー！」*
 
-I'm glad you liked it. I worked hard on it."
+"I'm glad you like it. I worked hard to make it."
 
 *「気に入ってもらえたようで何よりだよ。頑張って作ったんだ」*
 
-I'm not sure why, but I'm going to try to ignore it. I don't know what's going on, but ...... it feels good to take a bath, so I'm going to turn a blind eye to everything."
+"Ah. I don't really get it, but… yeah, the bath feels good, so I’ll just overlook various things."
 
 *「ああ。なんつーか、結局訳わかんねぇけど……うん、風呂が気持ちいいから色々と目をつぶることにするわ」*
 
 &nbsp;
 
-All kinds of things were allowed in the bath!
+Is everything forgiven in the bath!?
 
 *風呂であらゆるものが許された！？*
 
-How much do you love baths, Mr. Masilo?
+How much does Mashiro love baths?
 
 *どんだけ風呂好きなんだマシロさん。*
 
 &nbsp;
 
-'Now that you mention it, were you glad to go in?　I mean, the beasties have a lot of hair, so they don't always look too good in the bathhouse, do they?"
+"By the way, is it okay for me to be in here? Beastmen have a lot of fur, so they don't usually get good reactions at bathhouses."
 
 *「今更だけど、入って良かったのか？　獣人は毛が多いから風呂屋でもあんまりいい顔されなかったりすんだよな」*
 
-I'd rather collect the loose hairs and make a mini Mr. Masillo."
+"Rather, I want to collect the fur and make a mini Mashiro."
 
 *「むしろ抜け毛集めてミニマシロさんでも作ってみたいなぁ」*
 
-Don't talk nonsense. It's true that a lot of hair falls out during molt season, but that looks like a cursed doll.
+"Don't say creepy things. Sure, a lot comes off during shedding, but that sounds like a cursed doll."
 
 *「きめぇコト言うんじゃねぇよ。確かに換毛期にはゴッソリ抜けるけどよ、呪いの人形っぽいぞそれ」*
 
 &nbsp;
 
-Cursed dolls, is there such a thing?
+A cursed doll, is that a thing?
 
 *呪いの人形、そういうのもあるのか。*
 
-I looked at Mr. Masirow with this in mind, and saw that he was fully immersed in the hot water, with only his face showing.
+While thinking that, I watched Mashiro, who was submerged in the water with only her face showing.
 
 *そう思いつつマシロさんを眺めていると、顔だけ出してとっぷりと湯に浸かっている。*
 
-It looks very comfortable, but it looks like a dog.
+She looks very comfortable, but she just looks like a dog.
 
 *とても気持ちよさそうだけど、犬にしか見えないなぁ。*
 
 &nbsp;
 
-I'll pay the rent and let you take a bath in my room.　I'll pay you rent, and you can take a bath as you like."
+"Hey, hey, you’ll let me keep my room too, right? I’ll pay rent, so let me enjoy the bath!"
 
 *「なぁなぁ、アタシの部屋も置いてくれるんだろ？　家賃は払うから風呂好きに入らせろよ」*
 
-'Okay! Let's have ...... rent paid with your body!"
+"Sure… How about you pay rent with your body!"
 
 *「いいよー。……家賃は体で払ってもらおうか！」*
 
-An?"　Is that what you want? Then I'll pay you now."
+"Huh? Is that really okay? Then I’ll pay you right now."
 
 *「あん？　そんなんでいいのか。じゃあ今から払ってやるよ」*
 
-Eh."
+"Eh?"
 
 *「えっ」*
 
 &nbsp;
 
-Masilo-san was approaching me as he was rushing me through the hot water.
+Mashiro splashed through the water and approached me.
 
 *ざぶざぶとお湯をかき分け私に迫るマシロさん。*
 
-Oh, wait. ...... Ahhhhh!
+Ah, wait… Ahhh!!!??!!
 
 *あ、ちょ。……あッーーーー！！？？！！*
 
 &nbsp;
 
 &nbsp;
-

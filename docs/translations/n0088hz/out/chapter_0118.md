@@ -1,10 +1,10 @@
-# What's up? (From the viewpoint of A-rank adventurer Masilo)
+# Huh? (A-Rank Adventurer Mashiro's Perspective)
 
 ## は？（Ａランク冒険者マシロ視点）
 
 &nbsp;
 
-(From the viewpoint of A-rank adventurer Masilo)
+(A-Rank Adventurer Mashiro's Perspective)
 
 *（Ａランク冒険者マシロ視点）*
 
@@ -12,107 +12,107 @@
 
 &nbsp;
 
-'What?　Some idiot had Trent's wood!"
+"Huh? There's an idiot who had treant wood!?"
 
 *「は？　トレントの木材を持ってたバカがいる！？」*
 
-I'm not sure if that's true or not, Masilo. He said something about taking advantage of a large logging site that was there.
+"Yeah, that's right, Mashiro. Apparently, they said they took advantage of a large-scale logging site."
 
 *「そうなんだよマシロ。なんでも、大規模伐採跡があったから便乗した、とか言ってたが」*
 
-You weren't planning on it. What the hell?
+"That wasn't part of the plan, what the hell is going on?"
 
 *「んな予定なかっただろ、どういうこった」*
 
 &nbsp;
 
-The door to the boss's room that leads down to the lower level. The doorkeeper there approached me and gave me this information.
+I heard this information from the gatekeeper at the door to the boss room leading down to the lower levels.
 
 *下層へと下りるボス部屋の扉。そこの扉番から声をかけられその情報を聞いた。*
 
 &nbsp;
 
-The lower level of the Carcassa dungeon, which is a forested area.
+The lower levels of the Karkassa Dungeon are a forest area.
 
 *カルカッサダンジョンの下層、そこは森林エリアとなっている。*
 
-Although this forest has many torrents mixed in with the normal trees, the torrents only try to hide the path they have taken and lead you astray, but they do not attack you.
+In this forest, while there are many treants mixed in with ordinary trees, the treants only try to hide and confuse those who pass through; they don't attack.
 
 *この森は普通の木にトレントが多く混じっているものの、トレントは通ってきた道を隠し迷わせようとするだけで襲い掛かってくることはない。*
 
-However, if you try to hunt the torrent, the black devil - Black Mantis - will appear.
+However, if one tries to hunt those treants, the black demon—the Black Mantis—will appear.
 
 *しかし、そのトレントを狩ろうものなら、黒い悪魔――ブラックマンティスが現れる。*
 
 &nbsp;
 
-Black Mantis is a berserker-type monster. It attacks and kills all adventurers and demons it sees, without distinction. The only exception is Trent, who mimics a tree.
+The Black Mantis is a berserker-type monster. It attacks indiscriminately anyone it sees, whether adventurer or monster, killing them all. The only exception is the treants that camouflage themselves as trees.
 
 *ブラックマンティスはバーサーカータイプのモンスターだ。目についた冒険者も魔物も区別なく襲い掛かり皆殺しにする。例外は木に擬態したトレントくらい。*
 
-And once the Black Mantis appears, it will rampage for a week. After exactly one week, the lower level would be sealed off until a body was found collapsed as if its life had run out.
+Once the Black Mantis appears, it rampages for a week. The lower levels will be sealed off until a week later, when a corpse is confirmed to have fallen as if its lifespan had run out.
 
 *そして一度ブラックマンティスが現れたら一週間暴れ回る。きっちり一週間後、寿命が尽きたように倒れた死体が確認されるまで、下層は封鎖されることになる。*
 
 &nbsp;
 
-On the other hand, once a year, we do a large-scale logging operation and intentionally lure Black Mantis to wipe out the demons in the forest area. ......
+Conversely, once a year, they intentionally lure the Black Mantis by conducting large-scale logging to wipe out the monsters in the forest area...
 
 *逆に年に一度、大規模伐採を行いわざとブラックマンティスをおびき寄せて森林エリアの魔物を一掃してもらう、という事もしているわけだが……*
 
 &nbsp;
 
-It's not that time of year yet, is it?　I thought you were a fluker."
+"It's not that time of year yet, right? Isn't this just a bluff?"
 
 *「まだその時期じゃないだろ？　フカシじゃねぇのか？」*
 
-I'm sure they did, but I'm pretty sure they had some freshly cut torrent timber."
+"That's true, but there's no doubt they had freshly cut treant wood."
 
 *「そうなんだが、奴らが伐りたてのトレント材を持ってたことは間違いなくてね」*
 
-So you're saying that Black Mantis could come out at any moment."
+"So it means it's not strange for the Black Mantis to appear at any time."
 
 *「いつブラックマンティスが出てもおかしくない、ってことか」*
 
 &nbsp;
 
-If this happens, we'll wait and see for three days, and if Black Mantis is confirmed, then we'll go into lockdown for a week.
+In this case, we’ll wait for three days, and if the Black Mantis is confirmed, the area will be sealed off for a week.
 
 *こうなると３日は様子見して、もしブラックマンティスが確認されたら１週間封鎖だ。*
 
-Utterly ridiculous.
+Seriously, what a stupid thing to do.
 
 *まったく、バカなことを。*
 
-Don't you know why a door guard is placed in front of the door of this boss room that leads to the lower level, and why he is called out "Don't hunt torrents" every time.
+Do they not know why the gatekeeper is stationed in front of this boss room leading to the lower levels, and why they are always warned not to hunt treants?
 
 *下層へ続くこのボス部屋の扉の前にどうして扉番が配置されてるか、どうして毎度「トレントを狩るな」と声かけされるかを知らないのか。*
 
-Perhaps the idiots will be demoted. They may be charged for damages.
+Those idiots will probably face demotion. They might even be charged for the damages.
 
 *恐らくバカ共は降格処分となるだろう。損害分を請求されるかもしれない。*
 
 &nbsp;
 
-I'm sorry, but could you please hurry up and call out to them. There are four parties in the back now. One of them is the guy who is having the logging site checked. I can't offer much in the way of reward, but I'm going to make an urgent request to White Silver for an appointment.
+"I'm sorry, but could you hurry and call out? There are four parties inside. One of them is checking the logging site. I can't offer much in terms of reward, but it's an emergency request for Silver."
 
 *「申し訳ないが、急いで声掛けしてもらえるかな。今奥にいるパーティーは４組。うち１組は伐採跡を確認させてる奴。報酬はあまり出せないが、白銀への緊急指名依頼ってことで」*
 
-I was supposed to be doing some light spider hunting today.
+"This is troublesome; I was planning on doing some light spider hunting today."
 
 *「まいったな、今日は軽く蜘蛛狩りの予定だったんだが」*
 
-I'm counting on my silvery white nose. Please."
+"Silver's nose is reliable. Please."
 
 *「白銀の鼻が頼りなんだ。頼むよ」*
 
-"Oh well, buy me a drink when I get back."
+"Fine, when I get back, you owe me a drink."
 
 *「しゃーねぇ、帰ったら一杯奢れよ」*
 
 &nbsp;
 
-Abandoning an adventurer from the same town was not a good aftertaste. I decided to accept this request.
+It feels bad to abandon adventurers from the same town. I decided to take this request.
 
 *同じ町の冒険者を見捨てるのも後味が悪い。アタシはこの依頼を受けることにした。*
 
@@ -122,59 +122,59 @@ Abandoning an adventurer from the same town was not a good aftertaste. I decided
 
 &nbsp;
 
-I sought out two groups and called out to them, and then a third group. Unfortunately, Black Mantis was about to attack the third group of guys.
+I found the second party and called out to them, and for the third party. Unfortunately, the Black Mantis was about to attack those unlucky guys in the third party.
 
 *２組を探し当て声をかけ、３組目。運の悪いことに、ブラックマンティスは３組目のそいつらに襲い掛かろうとしていた。*
 
 &nbsp;
 
-Watch out!
+"That was close!"
 
 *「あぶねぇ！」*
 
 &nbsp;
 
-With one swing of his black scythe, Atashi interrupted. If it wasn't for the Dwarven sword, I would have been cut down!
+I intervened in a swing of that black scythe. If it weren't for my dwarven-made sword, I would have been cut down!
 
 *その黒い鎌の一振りに、アタシは割り込んだ。ぐ、ドワーフ製の剣じゃなかったら切り落とされてたぜこれは！*
 
 &nbsp;
 
-While passing it off, he aims at the eye with a dart. But the red compound eye catches its trajectory accurately and avoids it with minimal movement. Damn you, you praying mantis.
+While deflecting, I aimed for its eyes with my darts. However, the red compound eyes accurately tracked the trajectory and dodged with minimal movement. Damn, that mantis bastard.
 
 *受け流しつつ、ダーツで目を狙う。が、赤い複眼は正確にその軌道を捉えて最小限の動きで回避。くそ、カマキリ野郎が。*
 
 &nbsp;
 
-Hiii!　Oh, white silver ......!"
+"Yikes!? Ah, Silver..."
 
 *「ひぃっ！？　あ、白銀……っ」*
 
-"Get the hell out of here, tell the doorkeeper the devil is out and seal the door!"
+"Hurry and run! Tell the gatekeeper that a demon has appeared and seal the area!"
 
 *「さっさと逃げろ、悪魔が出たと扉番に伝えて封鎖！」*
 
-I'm sorry!
+"S-Sorry!"
 
 *「す、すまねぇ！」*
 
 &nbsp;
 
-From the looks of it, they are C-rank adventurers. These guys can't even resist Black Mantis.
+From what I could see, they were C-rank adventurers. They wouldn't even be able to resist the Black Mantis.
 
 *見たところＣランクの冒険者。コイツらではブラックマンティスに抵抗すらできない。*
 
-If left unattended, they would be killed by the assailant and the next one would be the ataman, and the same thing would happen if the ataman intervened to buy time. Rather, the number of survivors will increase, and the appearance of the devil will also be communicated to the doorkeeper.
+If I left them alone, they would be easily killed, and then I would be next. It would be the same if I intervened to buy time. Rather, the number of survivors would increase, and the gatekeeper would be informed of the demon's appearance.
 
 *放置しておけばアッサリ殺されて次はアタシ、となれば、アタシが割り込んで時間を稼ぐのも同じこと。むしろ生存者が増えて、扉番に悪魔の出現も伝えられる。*
 
 &nbsp;
 
-The rest of us just have to survive somehow ......, and that's the most trouble.
+All that's left is to somehow survive... but that's the most troublesome part.
 
 *あとは、なんとか生き延びるだけ……って、それが一番面倒なんだ。*
 
-If we can lure them into a spider colony, we can get rid of them by putting them on the spiders!
+If I could lure it into a spider's nest, I could leave it to the spiders and be done with it, I hope!
 
 *スパイダーの群生地にでも誘い込めれば、蜘蛛になすりつけておさらばできる、ハズ！*
 
@@ -182,43 +182,42 @@ If we can lure them into a spider colony, we can get rid of them by putting them
 
 &nbsp;
 
---I heard a crackling sound, as if I shouldn't have thought of that in the midst of a last-minute battle.
+—In the midst of this desperate battle, I thought that was a bad idea, and I heard a nasty crack.
 
 *――と、ギリギリの戦闘中にそんな事を考えたのがいけなかったのか、パキリと嫌な音がした。*
 
-The sword is in trouble. If I don't do something, it will break!　He quickly rolls over to avoid having his sword broken. But he is forced to pay the price.
+My sword is in trouble. If this continues, it will break! I quickly rolled to avoid having my sword snapped. However, as a result, I found myself cornered.
 
 *剣がヤバイ。このままだと折られる！　とっさに転ぶように転がって、剣が折られるのを回避する。が、その代償に追い込まれてしまう。*
 
 &nbsp;
 
-Damn, here's ......!"
+"Damn it, not here...!"
 
 *「くっ、こんなところで……！」*
 
 &nbsp;
 
-And that was when it happened.
+And then, at that moment.
 
 *と、そんな時だった。*
 
 &nbsp;
 
-Hey, you need help?"
+"Hey, do you need help?"
 
 *「おーい、助け要る？」*
 
-What?
+"Huh!?"
 
 *「えっ！？」*
 
 &nbsp;
 
-A laid-back female voice, not unlike that of the place, was heard.
+A relaxed female voice that was out of place in the situation rang out.
 
 *場に似つかわしくない、のんびりした女の声がした。*
 
 &nbsp;
 
 &nbsp;
-

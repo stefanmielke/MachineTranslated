@@ -1,208 +1,208 @@
-# No, no, no, no, no, no, no, no, no, no, no, no, no, no, no!
+# No, no, that's not good!
 
 ## いかん、いかんぞそれは！
 
 &nbsp;
 
-My two magic guns are ever-changing!　The synergy of the two bullets is unlimited, and they have infinite trajectories!　And they can fire in rapid succession."
+"My dual magic guns are incredibly versatile!! The synergistic effect of the two bullets is boundless, tracing infinite trajectories! And they can fire in rapid succession!"
 
 *「我が二丁魔銃は変幻自在！！　２発の弾の相乗効果は縦横無尽、無限の軌道を描くのよッ！　しかも連発できる」*
 
-Nuh!　How nasty! ...... Moreover, the power to pierce my hair armor, it is the nastiest of all!　And you can fire it repeatedly!
+"Ugh! How troublesome! ...Moreover, the power to pierce through my fur armor is exceedingly bothersome! And they can fire in rapid succession!!"
 
 *「ぬう！　なんと厄介な！……しかも、我が毛の鎧を貫く威力、厄介この上なし！　しかも連発できるのか！！」*
 
 &nbsp;
 
-At any rate, he said something like that and shot more, while smoking it out. He pierced his arm from the side.
+For now, I’ll say something that sounds appropriate while creating smoke and continue shooting. I pierced through his arm from the side.
 
 *とりあえずそれらしい事を言って煙に巻きつつ、さらに撃つ。腕を横から貫いた。*
 
-Moreover, the banging noise is so loud that it would be enduring to a Blutbad with good ears.
+Moreover, the loud popping sounds will surely be tough on the ears of a wolf beastman with good hearing.
 
 *しかもパンパン音がうるさいので、耳のいい狼獣人には堪えるだろう。*
 
 &nbsp;
 
-I never thought dwarven weapons could be so advanced. ......!"
+"I never expected the dwarven weapons to have evolved this much...!"
 
 *「まさかドワーフの武器がこれほど進化していたとはな……ッ！」*
 
-I bought it at the dwarf village!　Please come there to discuss your purchase!"
+"Ku ku ku, I bought it in the dwarven village! For purchasing inquiries, please head there!"
 
 *「クックック、ドワーフの里で買ったのだぁ！　ご購入の相談はそちらへどうぞッ！」*
 
-You're here to advertise weapons, aren't you?
+"Did you come here to promote weapons!?"
 
 *「武器の宣伝をしに来たのかお前はッ！？」*
 
 &nbsp;
 
-At any rate, I hit off 6 rounds each, 12 rounds in each hand. I could have reloaded with spatial magic, but this is a reloading action for the sake of coolness!
+For now, I fired six shots each, a total of twelve shots from both hands. I could reload with spatial magic, but here, I’m focusing on looking cool with the reload action!
 
 *とりあえず６発ずつ、両手１２発を打ち切った。空間魔法でリロードしてもいいが、ここはカッコよさ重視でリロードアクションだ！*
 
-With a click, he deployed both guns and dropped the casings in the revolver - but the casings were also the main body of the gun. I retrieved it properly.
+With a clank, I unfolded both guns, dropping the spent cartridges from the revolver—oh wait, this gun's body was also the cartridges. I properly collected them.
 
 *カシャンと両手の銃を展開、リボルバー内の薬莢を落とし――って、この銃は薬莢の方が本体でもあった。ちゃんと回収。*
 
-He then inserted it into the holster on his back side and loaded 6 x 2 or 12 rounds of ammunition that he took out of his hand with space magic, without looking at his hand!
+Then I inserted them into the holster on my back and, without looking at my hands, loaded six shots × 2, for a total of twelve shots using the bullets I retrieved with spatial magic!
 
 *そして背中側のホルスターに挿し、空間魔法で手に取りだした弾を手元を見ず６発×２、１２発分装填！*
 
-Then, again in hand, reload complete!　The time - 10 seconds!
+And once again, I held them in my hands, reload complete! Time taken—10 seconds!!
 
 *そして再び手に持ってリロード完了！　タイムは――１０秒！！*
 
 &nbsp;
 
-"...... doh!"
+"...How about that?"
 
 *「……どやぁ」*
 
-There's a lot of openings, isn't there?"
+"Aren't you full of openings?"
 
 *「隙だらけじゃねぇか？」*
 
-'Then you should have taken advantage of the gap. Thanks for watching me like a normal person?"
+"If that's the case, you should have taken advantage of those openings. Thanks for just watching?"
 
 *「だったらその隙を突けばよかったのに。普通に見ててくれてありがとう？」*
 
-I have to admit, I was kind of smitten."
+"To be honest, I was a bit mesmerized."
 
 *「正直な話、ちょっと見惚れてたのだ」*
 
 &nbsp;
 
-Wow. You like guns that much? It's cool!　You're a guy who knows what he's talking about.
+Oh. So you really like the gun that much. It is cool! A person who understands.
 
 *ほう。そんなに銃が気に入ったか。カッコいいもんな！　話の分かる奴だ。*
 
 &nbsp;
 
-"...... Hmmm, I've made up my mind!　I will beat you and get it!"
+"...Hmm, I've decided! I will win against you and show that I can obtain it!"
 
 *「……ふむ、決めたぞ！　貴様に勝って、手に入れて見せる！」*
 
-Why don't you just buy a regular one?"
+"Why not just buy it normally?"
 
 *「普通に買えばいいじゃん」*
 
 &nbsp;
 
-Don't try to rob people of their weapons, General.
+Don't try to steal someone else's weapon, General.
 
 *人の武器強奪しようとするなよ将軍。*
 
-The elf's bow I broke earlier was just a weapon destroyed, so no problem. I returned it after the match. It was broken.
+The elf's bow that I broke earlier was just weapon destruction, so that doesn't count. I returned it properly after the match. Though it was in a broken state.
 
 *先ほど私が壊したエルフの弓はただの武器破壊なのでノーカンだ。ちゃんと試合終わった後返したし。折れてる状態でだけど。*
 
 &nbsp;
 
-I said, "Mm?　Can I buy one?"
+"Huh? Can I buy it?"
 
 *「む？　買えるのか？」*
 
-I paid three gold coins. And I have to pay for the bullets.
+"It was three gold coins. If you want two guns, that's six coins. Plus, there's the cost for the bullets."
 
 *「金貨３枚だったよ。２丁なら６枚だ。あと弾代がかかる」*
 
-No, I'm not talking about the weapon, I'm talking about you.
+"No, I meant your story, not the weapon."
 
 *「いや、その武器ではなくお主の話だ」*
 
-!"?　You want to buy me!　...... Ha!　Bring me 100 gold coins!!!!"
+"!? You want to buy me!? ...Ha! Bring me 100 gold coins!!"
 
 *「！？　私を買おうってか！？　……ハッ！　金貨１００枚持ってこいや！！」*
 
-If that's all you want, I'll pay you."
+"If that's all it takes, I can pay that."
 
 *「その程度でいいなら払うが？」*
 
 &nbsp;
 
-Oh no, the 100 gold coins story isn't getting through!　Generals are so worthwhile. ......
+Crap, the 100 gold coin joke doesn't resonate! This general has some guts...
 
 *しまった、金貨１００枚ネタが通じないだと！　将軍ってば甲斐性あるぅ……*
 
 &nbsp;
 
-I'm going to get 820 gold coins if I win. If I win, I'm going to get 820 gold coins, and 100 was too cheap."
+"No, never mind. If I win, I plan to get 820 gold coins. 100 coins is too cheap."
 
 *「いややっぱなし。私が優勝したら金貨８２０枚手に入る予定だし。１００枚じゃ安すぎたわ」*
 
-'Then I'll give you 1,000 gold coins. Be my wife."
+"Then I'll offer 1000 gold coins. Become my wife."
 
 *「ならば金貨１０００枚出そう。嫁になれ」*
 
 &nbsp;
 
-The general says it out loud and proud.
+The general boldly declares.
 
 *将軍は堂々と言い放つ。*
 
-......1000 piece. But I don't want to be this general's wife. I would rather have Mr. Masilo as my wife. I would rather have all the Five Elders or Mr. Dia as my wife.
+...1000 coins. But I really don't want to be this general's wife. If I were to become a bride, I'd prefer Mashiro-san. Rather, I'd rather marry all the Five Elder Lords and Dia-kun.
 
 *……１０００枚。でもこの将軍の嫁になるのは嫌だな。お嫁さんになるならマシロさんの方が良い。むしろ五大老のみんなやディア君を嫁にするのが私だ。*
 
 &nbsp;
 
-......Yeah, I guess I'll have to decline!"
+"...Nope, I'll pass!"
 
 *「……うん、お断りだね！」*
 
-I see. Then, after all, you'll have to woo them with your arms! ...... I've bought myself some time, and I'm back on my feet."
+"I see. Then it seems I have no choice but to propose with my strength!! ...I've bought enough time and have recovered."
 
 *「そうか。であればやはり、腕っぷしで求婚するしかあるまい！！……時間稼ぎも済んで、回復したしな」*
 
 &nbsp;
 
-General Garou rattles his neck. Has the wound from earlier already healed? Or is he just skinny?
+General Garou cracks his neck. Has the wound from earlier already healed? What remarkable recovery! Or is it just stubbornness?
 
 *コキコキと首を鳴らすガロウ将軍。先ほどの傷はもう塞がったのか、恐るべき回復力だ。それともただのやせ我慢か？*
 
 &nbsp;
 
-I mean, why the sudden talk of courtship?"
+"By the way, why did we suddenly start talking about marriage?"
 
 *「っていうか、なんで急に求婚とかいう話になったのさ？」*
 
-Mm?"　That's because I really thought you were desirable. What is the matter with you now after you have made me smell so much of heat? You are a human race, but you are a she-wolf in heat.
+"Huh? That's because I genuinely found you appealing. Besides, with that much of a pheromone scent, what do you expect? Even though you're human, you smell just like a female wolf in heat?"
 
 *「む？　それは本心でお主が好ましいと思ったからな。むしろそれほどの発情臭をさせておいて今更何を。人族だというのに、まるで発情期の雌狼だぞ？」*
 
 &nbsp;
 
-Isn't this what you call a marriage activity?　the general tilted his head lightly.
+Isn't this what they call marriage hunting? The general tilted his head slightly.
 
 *いわゆる婚活というやつではないのか？　と将軍が軽く首を傾げた。*
 
-...... it!　That's the smell of Mr. Masiello!
+...That's it! It's Mashiro-san's scent!!
 
 *……それ！　マシロさんのニオイだわ！！*
 
 &nbsp;
 
-'You misunderstand me, you son of a bitch!　That's the smell of my tootsies!"
+"That's a misunderstanding, you jerk!! That's the scent of my friend!!"
 
 *「誤解だよこの野郎！！　それは私のオトモダチのニオイだ！！」*
 
-What?　You mean, "female-to-female"?　No, no, no, no, no, no, no, no, no, no, no, no, no, no, no!　You can't have children!　A strong man like you has a duty to increase the blood supply!
+"What!? So it's between females!? No, no, that's not good! A child can't be born from that! Someone as strong as you has a duty to increase the bloodline!"
 
 *「何！？　つまり雌同士だと！？　いかん、いかんぞそれは！　子ができぬではないかっ！　お主のような強者は血を増やす義務があるだろう！？」*
 
-"Shut up!　Mind your own business!
+"Shut upーーーー!! That's none of your businessーーーー!!"
 
 *「うっせーーーー！！　大きなお世話じゃあーーーーーっ！！」*
 
 &nbsp;
 
-I fired off 12 bullets in two seconds, blowing all the wind out of General Garowe's body.
+I fired twelve bullets in two seconds, creating numerous wind holes in General Garou's body.
 
 *私は１２発の弾丸を２秒で撃ち尽くし、ガロウ将軍の体に風穴を開けまくった。*
 
-Good thing I had a gun, if I had been bare handed I might have inadvertently gone crazy with my hands.
+I'm glad I had a gun; if it were barehanded, I might have accidentally missed my aim.
 
 *銃があってよかった、素手だったらうっかり手元が狂っていたかもしれん。*
 
@@ -210,13 +210,10 @@ Good thing I had a gun, if I had been bare handed I might have inadvertently gon
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(I'm about to start work on the book, so I'll slow down the pace of updates!)
+(I'm about to start the book publication process, so I'll slow down the update pace!)
 
 *（そろそろ書籍化作業入るので更新ペース落とすわよ！）*
-

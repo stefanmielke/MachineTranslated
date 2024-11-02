@@ -1,4 +1,4 @@
-# It's not fair to post information after the fact.
+# It's cowardly to hold back information.
 
 ## 情報の後出しは卑怯だぞ。
 
@@ -6,89 +6,89 @@
 
 &nbsp;
 
-I cut up wild boar meat into steak sized pieces and grilled it. Aged?　I don't want to do it badly and let it rot. I'll ask the butcher next time.
+I tried cutting wild boar meat into steak-sized pieces and grilling it. Aging? I don't want to mess it up and let it rot, so I'll skip that for now. Maybe I'll ask the butcher next time.
 
 *イノシシ肉をステーキサイズに切り分けて焼いてみた。熟成？　下手にやって腐らせたくないし、やらないでおく。今度肉屋に聞いてみるか。*
 
 &nbsp;
 
-I wonder if he grew up eating the delicacies of the mountains. Wild boars are so delicious.
+"I wonder if it grew up eating the blessings of the mountains. Wild boar is really delicious."
 
 *「山の幸を食べて育ったのかなぁ。イノシシってば美味しいねぇ」*
 
-This is a treat just to salt and bake it, sister Karina."
+"This is a feast just by sprinkling salt and grilling it, isn't it, Sister Karina?"
 
 *「これは塩かけて焼くだけでご馳走ですね、カリーナお姉さん」*
 
 &nbsp;
 
-Thanks to the perfect draining of blood, there was no smell at all, and the umami taste was strong.
+Thanks to the perfect bloodletting, there's no smell at all, and the umami is strong.
 
 *血抜きが完璧なおかげか全然臭みがなく、うま味が強い。*
 
-It's like an evolution of pork. Oh, I'd love to eat rice.
+It feels like an evolved version of pork. Ah, I want to eat rice.
 
 *豚肉の進化系みたいな感じ。あー、お米食べたくなるわぁ。*
 
 &nbsp;
 
-But as expected of Dia-kun, even though he is supposed to be eating the same food as I am, the knife and fork carve the meat and bring it to his mouth without making a sound. It is hard to believe that this is the same tableware that was in the pirate's hideout.
+But as expected of Dia-kun, even though he must be eating the same thing as me, he cuts the meat with a knife and fork without making a sound and brings it to his mouth. The performance of the same tableware we had at the pirate hideout is unbelievable.
 
 *しかしさすがディア君、私と同じものを同じように食べてるはずなのに、ナイフとフォークは音も立てずに肉を切り分け口へと運ぶ。海賊のアジトにあった同じ食器とは思えない性能だ。*
 
 &nbsp;
 
-It is a wild boar steak, but to be precise, it is more of a roast boar than a steak, since it was thrown into a space that was made as hot as an oven.
+It's wild boar steak, but to be precise, I threw it into a space heated like an oven, so it's more like roasted wild boar.
 
 *イノシシステーキだが、正確には、オーブンの如く暑くした空間に放り込んだので、ステーキというよりローストイノシシだ。*
 
 &nbsp;
 
-When we tried to make a sauna after the bath, Dia asked us, "How hot can you make it?" I tried it out and found that the upper limit seemed to be well over 200 degrees Celsius - as expected, it would take a lot of magic power to maintain it - so it turned out to be possible to turn it into an oven.
+When I tried to create a sauna after the bath, Dia-kun asked me, "How hot can you make it?" and when I tried, it seemed like the upper limit easily exceeded 200 degrees—though it looked like maintaining it would consume a lot of magical power—so it was discovered that I could do what an oven does.
 
 *これはお風呂に次いでサウナをつくろうとした際、ディア君に「どのくらい熱くできるんですか？」と尋ねられ、試してみたら上限は２００度を余裕で超えるっぽい――さすがに維持するのには魔力消費がありそうだった――ので、オーブンにできることが判明したのだ。*
 
 &nbsp;
 
-I can make fried food with the fat. Maybe spatial magic is good for cooking. I can even cut it."
+"I can also make fried food with the fat. Space magic might be suited for cooking. I can also cut things."
 
 *「脂身で揚げ物も作れるなこれ。空間魔法って料理に向いてるのかもしれない。切ったりもできるし」*
 
 &nbsp;
 
-If you want, you can also gather firewood and ignite it with the pneumatic ignition phenomenon caused by space compression.
+If anything, there's also the option of gathering firewood and igniting it using the pressure ignition phenomenon from space compression.
 
 *なんなら薪を集めて空間圧縮による圧気発火現象で火をつける手もある。*
 
-Water can be extracted from seawater to make fresh water, or even salt. Or a vacuum can be created by space expansion, since water boils at room temperature in a vacuum.
+I can extract fresh water from seawater, and conversely, I can also make salt. Vacuuming through space expansion would work too, as water boils at room temperature in a vacuum.
 
 *水も海水から真水を抽出できるし、逆に塩だって作れる。空間拡張による真空化でもいい、真空だと水は常温で沸騰するからな。*
 
 &nbsp;
 
-"I think it's an effective use, but I think it's pretty wasteful. ......
+"I think it’s a useful application, but it does seem like quite a waste..."
 
 *「有効利用ではあると思いますが、かなり無駄遣いではあると思いますね……」*
 
-Magic is best when it's useful, Dear. Magic is more useful for daily life than powerful offensive magic that can destroy a country.
+"Magic is best when it can be used conveniently, Dia-kun. Magic that helps in daily life has more opportunities for use than powerful attack magic that can destroy a nation."
 
 *「魔法なんて、便利に使えるのが一番なんだよディア君。国を滅ぼす強大な攻撃魔法より、生活に役立つ魔法の方が使いどころが多いのさ」*
 
 &nbsp;
 
-I wiped my mouth with the back of my hand and cleaned it with purification magic.
+I wiped my mouth with the back of my hand and used purification magic to clean it.
 
 *私は手の甲で口を拭い、浄化魔法をかけて綺麗にした。*
 
 &nbsp;
 
-That's ...... for sure."
+"That’s... certainly true."
 
 *「それは……確かにそうですね」*
 
 &nbsp;
 
-Dia agrees. I wiped my mouth with a handkerchief, where did I get it from? Hmmm, this guy's daughter is a lady after all. ......
+Dia-kun agrees. He wiped his mouth with a handkerchief he pulled out from who knows where. Hmm, this boy is definitely a lady...
 
 *同意するディア君。どこから取り出したのかハンカチで口を拭いた。うーん、この男の娘、やっぱりお嬢様だなぁ……*
 
@@ -96,61 +96,61 @@ Dia agrees. I wiped my mouth with a handkerchief, where did I get it from? Hmmm,
 
 &nbsp;
 
-I'd like to build a proper kitchen. Don't you want to have a new table and sofa in the living room, not the ones we got from the pirates' hideout?
+"I want to make a proper kitchen too. Don’t you want to prepare new tables and sofas instead of the ones we got from the pirate hideout?"
 
 *「キッチンもちゃんと作りたいね。このリビングのテーブルやソファーも、海賊のアジトから手に入れたやつじゃなくて新品とか用意したくない？」*
 
-Yes, the tables and chairs, but the cloths and cushions kind of smell."
+"That's true, the table and chairs aside, the fabric and cushions smell a bit."
 
 *「そうですね、テーブルや椅子はともかく、布やクッションはなんか臭いますし」*
 
-I think it's true," he said. The closet also smells strangely of smoke or something.
+"Yeah, right? The closet has a strange smoky smell too."
 
 *「そうなんだよねぇ。クローゼットなんかも妙に煙臭いというかなんというか」*
 
 &nbsp;
 
-And then there was a thump, and I turned around to see an SP catalog had fallen out.
+Just then, there was a sound of something dropping, and when I turned around, the SP catalog had fallen.
 
 *と、そこにコトンと音がして、振り向くとＳＰカタログが落ちていた。*
 
-How arbitrary, the furniture page is open. Double bed 100SP......
+How convenient that the furniture page was open. Double bed 100 SP...
 
 *なんと恣意的なことに家具のページが開かれている。ダブルベッド１００ＳＰ……*
 
 &nbsp;
 
-God, you're watching, aren't you?"
+"God, are you watching?"
 
 *「神様、さては見てるな？」*
 
 &nbsp;
 
-Since Mr. Cossioli has now moved to my room, the living room and bathroom are God's peeking space. At least, I would like him not to peep into the bathroom or toilet.
+Coshori-kun has currently moved to my room, so the living room and bath have become spaces where the god can peek. I would prefer if they didn’t peek at the bath or toilet at least.
 
 *コッショリ君は現在私の部屋に移動してあるため、リビングやお風呂は神様の覗けるスペースになっているのだ。せめてお風呂やトイレは覗かないでもらいたい所存。*
 
 &nbsp;
 
-'Dear, may I ask you to speak to me when you take a bath?
+"Dia-kun, can you let me know when you're going to take a bath?"
 
 *「ディア君、お風呂に入るときは声かけてもらってもいいかな」*
 
-What?　Na, na, why?"
+"Eh!? W-why?"
 
 *「え！？　な、なな、何でですか？」*
 
-No, I thought I'd lend you a peep-proof item: ......"
+"Well, I was thinking of lending you an item to prevent peeping..."
 
 *「いや、覗き見防止アイテムを貸そうかと……」*
 
-No, I don't need it!　I'm a man and I'm not ashamed to be peeked at!"
+"I-I don't need it! I'm a boy, so I wouldn't be embarrassed even if someone peeked!"
 
 *「い、いりませんっ！　ボクは男なので覗かれても恥ずかしくないです！」*
 
 &nbsp;
 
-Hmmm, okay then. Let God look at you to his heart's content.
+Hmm, then that's fine. Go ahead and be seen by the god to your heart's content.
 
 *ふぅん、じゃあいいか。存分に神様に見られておくれ。*
 
@@ -158,107 +158,106 @@ Hmmm, okay then. Let God look at you to his heart's content.
 
 &nbsp;
 
-The catalog reminded me that I currently have 1000 SP accumulated.
+I remembered while looking at the catalog that I currently have 1000 SP saved up.
 
 *カタログを見て思い出したが、現在ＳＰが１０００溜まっている。*
 
-Furniture can be bought in town without asking the gods, so what should be exchanged are rare items that cannot be found in town. Scrolls for skill acquisition, for example.
+I can buy furniture in town without asking the god, so what I should exchange for are rare items that can't be obtained in town. Skill acquisition scrolls, etc.
 
 *家具なんかは別に神様に頼まなくても町で買えるから、交換すべきは町では手に入らないレアな品。スキル習得のスクロール等だ。*
 
 &nbsp;
 
-I wish I could have used it for you, Dear, but there was an additional note saying that the skill acquisition scroll was for my exclusive use only. Don't add that after the fact, God, it's not fair to give out information after the fact. No, it's better than being told after the exchange.
+It would have been nice if Dia-kun could use them too, but the note saying that skill acquisition scrolls are for my exclusive use had increased. God, don’t add information later, it’s cowardly. Well, it’s better than being told after the exchange.
 
 *ディア君にも使えたらよかったんだけど、スキル習得スクロールは私専用と注意書きが増えていた。後から書き足すな神様、情報の後出しは卑怯だぞ。いや、交換した後に言われるよりはいいんだけど。*
 
 &nbsp;
 
-So, how should these things be exchanged ...... I decided to throw it all to Mr. Dear, whom I have been totally relying on for a while now.
+So, how should I go about exchanging these... I decided to leave it entirely to Dia-kun, who I've been relying on lately.
 
 *で、こういうのはどういう風に交換すべきだろうか……私はこのところすっかり頼りにしているディア君に丸投げすることにした。*
 
 &nbsp;
 
-What do you think? What do you think I should exchange?"
+"Hey, Dia-kun. Actually, I have something like this, and I can power up, but what do you think I should exchange for?"
 
 *「ねぇディア君。実はこういうのがあって、私パワーアップできるんだけどどういうの交換したらいいと思う？」*
 
-"SP catalog ......?　Eh, sister, what are you going to do to become even stronger than you are now?"
+"SP catalog...? Wait, Sister, what are you going to do getting stronger than you already are?"
 
 *「ＳＰカタログ……？　え、お姉さん今以上に強くなってどうするんですか？」*
 
 &nbsp;
 
-Yes, you are right. I am already strong enough. At close range, I am invincible and can kick around without any body art, and at long range, spatial magic is versatile.
+Yeah, that's a valid point. I'm already strong enough. I can scatter enemies in close combat even without martial arts, and in long-range, space magic is versatile.
 
 *うん、ごもっともである。私はすでに十分強い。近距離では体術なんてなくても無敵状態で蹴散らせるし、遠距離でも空間魔法は万能だ。*
 
 &nbsp;
 
-'Though, there are some skills that are hard to get normally. Especially the resistance ones."
+"That said, there are indeed skills that are difficult to obtain normally. Especially resistance skills would be good, don't you think?"
 
 *「とはいえ、普通に手に入れるには難しいスキルもありますね。特に耐性系がいいんじゃないでしょうか」*
 
-'What, is it normal to get a scroll to learn a skill?'
+"Eh, are skill acquisition scrolls something you can normally get?"
 
 *「え、スキル習得スクロールって普通に手に入るもんなの？」*
 
-I heard that you can get them in dungeons and other places. People who get them often use them as they are, but some are sold at auctions."
+"I've heard you can obtain them in dungeons. Usually, the person who gets them uses them right away, but some are put up for auction."
 
 *「ダンジョンとかで手に入るそうです。手に入れた人がそのまま使うことが多いんですが、中にはオークションで売りに出されたりもするとか」*
 
 &nbsp;
 
-Dungeon!　Auction!　That's what it's all about!
+Dungeons! Auctions! So those exist too!!
 
 *ダンジョン！　オークション！　そういうのもあるのか！！*
 
 &nbsp;
 
-I said, "Okay, let's go to the dungeon sometime!　Where is it?"
+"Alright, let's go to a dungeon next time! I wonder where they are?"
 
 *「よっしゃ、今度ダンジョンにいってみよう！　どこにあるのかな？」*
 
-'Sorry, I'm not familiar with the geography of this area ...... so. Would you like me to write to them and ask?"
+"I'm sorry, I'm not familiar with the geography around here... Oh, how about we ask in a letter?"
 
 *「すみません、このあたりの地理には疎くて……そうだ。手紙で聞いてみますか？」*
 
-Surely, if you ask him, he'll tell you at once."
+"That would definitely give us a clear answer."
 
 *「確かに聞けば一発で分かりそうだ」*
 
 &nbsp;
 
-After all, Grandma Maria is the former wife of a former lord. She must have some information about that kind of thing.
+After all, Maria-baa is the former lord's wife. She probably has that kind of information.
 
 *なにせマリア婆は前領主夫人。その手の情報も持ってるだろう。*
 
-But, you know, there is an air of being made to work for good if you make too much debt, old Maria.
+But, well, if I borrow too much, it feels like I might end up being used for her convenience.
 
 *でもなー、あんまり借り作ると良いように働かされそうな空気あるんだよな、マリア婆。*
 
 &nbsp;
 
-"...... No!　Let's gather our own information here!　It's more adventurous!"
+"...No! Let's gather information ourselves! That feels more like an adventurer!"
 
 *「……いや！　ここは自分達で情報収集しよう！　その方が冒険者っぽい！」*
 
-So you are going to work as Karina Shonin first. Understood."
+"So, we will act as Karina Shownin first. Understood."
 
 *「まずはカリーナ・ショーニンとして動くということですね。分かりました」*
 
 &nbsp;
 
-Let's aim to actually go to the dungeon to get the scroll.
+Let's aim to actually go to a dungeon and obtain a scroll.
 
 *実際にダンジョンに行ってスクロールを入手するのを目標としておこう。*
 
-Well, I don't want to be covered, so I'll leave the SP exchange until then.
+Well, I don't want to overlap, so I'll hold off on the SP exchange until then.
 
 *ま、被っても嫌だしそれまでＳＰ交換はお預けだね。*
 
 &nbsp;
 
 &nbsp;
-

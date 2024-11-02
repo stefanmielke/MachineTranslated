@@ -1,4 +1,4 @@
-# Comfortable air travel
+# Comfortable Air Travel
 
 ## 快適な空の旅
 
@@ -6,45 +6,45 @@
 
 &nbsp;
 
-The interior of the container was like a reception room, with a table and sofa, and carpeted flooring. There was also a bed for napping. A pet cat was sleeping curled up on the sofa, and there were four transparent round windows on the floor at the corners.
+The inside of the container is furnished like a reception room, with a table and sofa, and carpeted. There is also a bed for napping. A pet cat is curled up sleeping on the sofa, and there are transparent round windows in the corners of the floor.
 
 *コンテナの内部は応接室のようにテーブルとソファーが置いてあり、カーペットが敷いてある。仮眠用のベッドも置いてあった。それとソファーにはペットの猫が丸くなって寝ていて、床には透明な丸い窓が角の４ヶ所についている。*
 
 &nbsp;
 
-The container was lifted by Arthur and floated softly into the air.
+The container was lifted by Arthur and floated gently into the air.
 
 *コンテナはアーサーに持ち上げられてふわりと空に浮いた。*
 
 &nbsp;
 
-I've been thinking about it for a while now, and I've been thinking about it a lot.　It's really super light!
+『...Huh!? It's really super light!』
 
 *『……あれっ！？　ホントに超軽いっす！』*
 
-No, that's why I said so. Oh, no matter how fast you fly, there won't be any G's inside, so feel free to fly."
+“See, I told you so. No matter how fast we fly, you don’t have to worry about G-forces inside, so feel free to fly.”
 
 *「いやだからそう言ってんじゃん。ああ、どんだけ早く飛んでも中にＧがかかったりしないから安心して飛ばしていいよ」*
 
-What's an "old man?"
+『What’s G?』
 
 *『じいってなんすか？』*
 
-You know, when you move too vigorously, it makes you squirm?　That's it."
+“Like, when you move quickly, it feels like whoosh, right? That.”
 
 *「ほら、勢いよく動くとぐわってすんじゃん？　それ」*
 
-That's it!"
+『Oh, that!』
 
 *『あれかぁー！』*
 
 &nbsp;
 
-The concept of ......G, can you get through with a guffaw?
+...The concept of G can be understood as whoosh.
 
 *……Ｇの概念、ぐわっで通じるのか。*
 
-The conversation was conducted in dragon language with the face of a container on the ceiling.
+By the way, this conversation in Dragon language has been happening with my face sticking out from the ceiling of the container.
 
 *尚、ここまでコンテナの天井から顔をだしてのドラゴン語会話である。*
 
@@ -52,163 +52,162 @@ The conversation was conducted in dragon language with the face of a container o
 
 &nbsp;
 
-He pulls his face from the ceiling and returns to the container.
+I pulled my face back in and returned to the inside of the container.
 
 *天井から顔をひっこめ、コンテナの中に戻る。*
 
 &nbsp;
 
-Let's go for a comfortable flight. Let's check what's going on outside through the window on the floor.
+“Alright, let’s go for a comfortable air travel. We’ll check the outside scenery from the floor windows.”
 
 *「はーい、それじゃあ快適な空の旅へレッツゴー。外の様子は床の窓から確認しようね」*
 
-"...... and the flying ......!　Really!"
+“...We’re flying...! For real!”
 
 *「……と、飛んでる……！　本当に！」*
 
 &nbsp;
 
-The demon girl, Yohki, looks through a window set in the floor and seems impressed by the ground moving away from her. Aisia also said, "I have an idea!　This could be used in a new song to praise the Lord!" She is looking at it as if she is devouring it.
+The demon girl, Youki-chan, peered through the window installed on the floor, seemingly moved by the receding ground. Aisia was also watching intently, saying, “I just had an idea! This might inspire a new song to praise my master!”
 
 *鬼娘、ヨウキちゃんは床に設置した窓を覗き、離れ行く地面に感動しているようだ。アイシアも「ひらめいた！　これはあるじ様を讃える新曲に活かせるかもしれない！」と食い入るように見ている。*
 
 &nbsp;
 
-Dear, don't you need to see this?"
+“Don’t you want to look, Dia-kun?”
 
 *「ディア君は見なくていいの？」*
 
-I used to fly on Arthur.
+“I’ve flown on Arthur before.”
 
 *「ボクはアーサーに乗って飛んだりしましたから」*
 
 &nbsp;
 
-Dia-kun is a little bit proud of himself. He is cute.
+Dia-kun said, a bit smug. So cute.
 
 *と、すこし得意げなディア君。可愛い。*
 
-By the way, I can normally fly by spatial magic, so there is no need to look.
+By the way, I can fly normally using spatial magic, so there’s no need for me to look.
 
 *ちなみに私は普通に空間魔法で飛べるので見る必要は無いのだ。*
 
 &nbsp;
 
-What about Misha?　Don't you need to see it?"
+“What about Misha? Don’t you want to look?”
 
 *「ミーシャは？　見なくていいの？」*
 
-I mean, why am I here?"
+“Why am I even here??”
 
 *「ていうかなんで私ここにいるにゃ？？」*
 
-'Well, I thought it might be nice to have some comfort in a small space.'
+“Well, I thought it would be nice to have some comfort in this small space.”
 
 *「いやぁ、狭い空間には癒しがあった方が良いかなと思って」*
 
 &nbsp;
 
-I called Misha when I casually deployed the container.
+I had casually called Misha when I deployed the container.
 
 *さりげなくコンテナを展開したときにミーシャを呼んでおいたのだ。*
 
-If a follower is OK, then a pet is an OK follower. Healing is important, healing is important.
+If the attendant is okay with it, then it’s fine for the pet to be included too. Comfort is important, you know.
 
 *従者がＯＫってんだからペットも従者ってことでＯＫっしょ。癒しは大事だぞ、癒しは。*
 
 &nbsp;
 
-"Would you rather have your ass pinched and studied by the Five Elders at the base?"
+“Which would you prefer, being poked by the Five Elders at the base for research or this?”
 
 *「拠点で五大老に尻をつつかれて研究されるのとどっちがいい？」*
 
-............ and return your house at night?"
+“...Just make sure to take me home at night, okay?”
 
 *「…………ちゃんと夜にはお家返してにゃー？」*
 
-By the way, we are going to the hidden village of the demon tribe. Would you like to go with me?"
+“By the way, we’re heading to the demon tribe’s hidden village now. Want to come along?”
 
 *「ところでこれから鬼族の隠れ里行くんだよ。一緒に行かない？」*
 
-I'll go out with you! I'll go out with you!"
+“Oh, that sounds interesting. I’ll join you!”
 
 *「お、なにそれ面白そう。付き合ってやるにゃ！」*
 
 &nbsp;
 
-I like that kind of flippant attitude, my best friend.
+I like that lively attitude, my friend.
 
 *そういうノリの良いところ好きだぞ親友。*
 
 &nbsp;
 
-Oh, you know. I'm not going to let you add more people to your group without permission. ......"
+“Um, um. I’m not really okay with having more companions added without permission…”
 
 *「あ、あの。勝手に同行者を増やされるのは……」*
 
-What?"　You're OK with squires, aren't you?　Don't worry, we'll provide our own food!"
+“Eh? The attendant is fine with it, right? Don’t worry, I’ll bring my own food!”
 
 *「え？　従者ＯＫなんでしょ？　大丈夫、餌は自前で用意するから！」*
 
-I'm not going to tell you what to do!　But I'm pretty strong, so I can help you.
+“Don’t say food, Karina! But I’m actually pretty strong, so I can be useful, you know?”
 
 *「餌いうんじゃねぇにゃカリーナ！　でもこう見えて私そこそこ強いからお役立ちにゃよー？」*
 
 &nbsp;
 
-Misha is entangled shoulder to shoulder with Yohki, whom he has just met.
+Misha, who just met Youki, is putting her arm around her.
 
 *会ったばかりのヨウキに対し、肩を組んで絡むミーシャ。*
 
-Misha is a good communicator for what it's worth. The other guy, Yohki, looks annoyed and troubled, though.
+Misha has surprisingly high communication skills. Youki looks troubled and annoyed, though.
 
 *何気にコミュ力高いよねミーシャ。相手のヨウキは迷惑そうに困っているけど。*
 
 &nbsp;
 
-Incidentally, we're dealing with a dragon that demands a sacrifice.
+“By the way, we’re dealing with a dragon that demands sacrifices.”
 
 *「ちなみに生贄を求めるドラゴンが相手なんだけど」*
 
-"Oh, Karina, I'm going home, so open the door."
+“Oh, Karina, I’m definitely going home, so open the door.”
 
 *「おうカリーナ、やっぱお家帰るから扉開けにゃ」*
 
-You said you'd come with me!　Deere, you're willing to do it!"
+“You said you’d come with us! Dia-kun is all fired up!”
 
 *「一緒に来てくれるって言ったじゃん！　ディア君はやる気満々だよ！？」*
 
-Don't drag Dia-chan into this ......, I can't help it. ...... is a little bit long!　What's this, the ground is far below us!　That's amazing!
+“Don’t drag Dia-chan into this... Tch, fine, I’ll go... Wait a minute!? What’s this, the ground is way down there!? Amazing!!”
 
 *「ディアちゃんを巻き込むんじゃねーにゃ……ちっ、しかたねーにゃー……ってちょっとまつにゃ！？　なにこれ地面がはるか下にゃん！？　すげー！！」*
 
 &nbsp;
 
-Misha looked in the window and said happily. I'm glad you enjoyed it.
+Misha exclaimed happily as she peered through the window. I’m glad she’s enjoying it.
 
 *窓を覗き込んでミーシャが楽しそうに言った。楽しんでもらえて何よりだよ。*
 
 &nbsp;
 
-"That's really fast!　Much faster than a horse-drawn carriage!
+“Seriously, it’s super fast! Way faster than a carriage!”
 
 *「つーかスゲェ速いにゃ！　馬車よりずっと早いにゃ！」*
 
-Well, it's Arthur who's carrying it. Thunder Dragon's speed is no joke. Oh, Yohki. Let me know when you get close to the village.
+“Well, Arthur is carrying this, after all. The speed of a Thunder Dragon is no joke. Oh, Youki-chan, let me know when we’re close to the village.”
 
 *「まぁこれ運んでるのアーサーだしね。サンダードラゴンの速度は伊達じゃないってこった。あ、ヨウキちゃん。里近くなったら言ってね」*
 
-Yes.
+“Yes, okay.”
 
 *「は、はい」*
 
 &nbsp;
 
-And Arthur arrived at the village earlier than expected, at midnight that day.
+And Arthur was faster than I expected, arriving at the village that night.
 
 *そして思っていたよりアーサーは早く、その日の夜中に里に着いた。*
 
 &nbsp;
 
 &nbsp;
-

@@ -1,4 +1,4 @@
-# Complicated home environment ......
+# It's a complicated family environment, isn't it...
 
 ## 複雑な家庭環境にゃんね……
 
@@ -6,21 +6,21 @@
 
 &nbsp;
 
-'My goodness,...... even I couldn't peel off the curse all at once. So go to church once a week for a while. Is that okay, Misha?"
+"What a surprise... I couldn't remove the curse all at once, even myself. So, for a while, you should go to the church once a week. Is that okay, Misha-san?"
 
 *「なんということでしょう……私でも一度に呪いをはがし切ることはできませんでした。なのでしばらく週に一度教会に通いなさい。いいですね、ミーシャさん？」*
 
-Yes, yes. ......
+"Y-yes, it is..."
 
 *「は、はいですにゃ……ッ」*
 
 &nbsp;
 
-Misha nods in agreement with the God doll.
+Misha nods obediently to the god doll that speaks so shamelessly.
 
 *いけしゃあしゃあと言う神様人形に、素直にうなずくミーシャ。*
 
-...... That's because there's no curse on them from the start, and no one can remove it!
+...Well, since there was no curse from the start, no one can remove it!
 
 *……そりゃ最初から呪いなんて掛かってないんだから、誰にも剥がせないっすわ！*
 
@@ -34,87 +34,87 @@ Misha nods in agreement with the God doll.
 
 &nbsp;
 
-"...... Carina. You were a real messenger of God. ......"
+"...Karina. You really were a messenger of the gods, huh..."
 
 *「……カリーナ。おめー、マジで神様の使いだったんだにゃ……」*
 
-Well, sort of.
+"Well, sort of."
 
 *「まぁ一応ね」*
 
-And Misha, whose buttocks were bright red, and I were having tea at a cafe on good terms.
+Misha, with her bottom all red, and I were enjoying tea together at a café.
 
 *と、お尻を真っ赤にしたミーシャと私は仲良くカフェでお茶していた。*
 
 &nbsp;
 
-I honestly think Misha and I could be best friends sharing this secret."
+"Honestly, I think I can become best friends with Misha since we share this secret."
 
 *「正直、この秘密を共有しているミーシャとは親友になれると思ってる」*
 
-I'm not sure if I'll be able to do that, but I'd be happy to be your friend if you insist!　Well, well, if you insist, I'll be your friend?
+"...! W-well, if you really want to be friends, I guess I can allow it!"
 
 *「……ッ！　ま、まぁー、おめーがどうしてもって言うなら友達になってやってもいいにゃよ？」*
 
-Oh, well, okay then."
+"Oh, then never mind."
 
 *「あ、じゃあいいや」*
 
-Why?　That's the part where you insist!
+"Why not!? That's the part where you should insist!"
 
 *「なんでにゃ！？　そこはどうしてもっていうトコにゃん！？」*
 
 &nbsp;
 
-I love that kind of teasing!
+I love that teasing side of her!
 
 *そういうからかい甲斐のあるとこ大好きだね！*
 
 &nbsp;
 
-Come and visit us. We'll treat you to a Dwarven brew."
+"Well, since we're at it, come over to my place. I'll treat you to some dwarf's ale."
 
 *「まぁ折角だしウチに遊びにおいでよ。ドワーフの酒御馳走するし」*
 
-I'm going to call you! ...... and maybe some ointment or something?　My ass is tingling. ......"
+"Oh, oh, well, I’ll accept your invitation! ...Also, do you have any ointment? My butt is really sore..."
 
 *「おーおー、まぁお呼ばれしてやるにゃ！……あと、軟膏とかねーかにゃ？　尻ヒリヒリするにゃん……」*
 
 &nbsp;
 
-Yeah, you were also freaking out when you sat in the chair at the café.
+Ah, she was flinching when sitting on the café chair too.
 
 *ああ、カフェの椅子に座るときもビクッてしてたもんな。*
 
 &nbsp;
 
-My wife has a girl who is very good at mixing medications.
+"I have a child who’s good at mixing medicine, so I'll ask her for you."
 
 *「私の奥さんにお薬調合するのが上手な子がいるから、頼んどくよ」*
 
-I heard you said you had five wives. Is that for real?
+"By the way, you said you have five wives. Is that true?"
 
 *「そーいや５人も奥さんがいるとか言ってたにゃ。あれマジにゃ？」*
 
-Yeah, I'm a Dwarf. I'm a Dwarf."
+"Yeah. They're dwarves."
 
 *「うん。ドワーフでね」*
 
-I'm going to go to a blacksmith. Can you introduce me to a good blacksmith?
+"Wow. Can you introduce me to a good blacksmith?"
 
 *「へー。腕のいい鍛冶屋紹介してもらえねーかにゃー」*
 
-I don't mind if you do, Misha. But you have to pay me."
+"Sure, if it's for Misha. But make sure to pay properly."
 
 *「別にいいよミーシャなら。でもお金はちゃんと払ってね」*
 
-I'm sure he'll be able to help us out!　There's a prize for being the runner-up in the Urameshiki Tournament, and if it weren't for those Five Elders, I'm sure I could get them to do it for me!"
+"Of course! I have the prize money from being the runner-up in the Underworld Tournament, so I should be able to ask, unless it's against one of the Five Great Elders!"
 
 *「おうにゃ！　裏表の大会準優勝の賞金もあるし、相手があの五大老でもなきゃ頼めるはずにゃ！」*
 
 &nbsp;
 
-Oh, then maybe it's not enough.
+Ah, then maybe it won't be enough.
 
 *あ、じゃあ足らねぇかもな。*
 
@@ -122,215 +122,215 @@ Oh, then maybe it's not enough.
 
 &nbsp;
 
-And after a leisurely cup of tea at a café, when Misha's bottom had settled down, I invited her to my base.
+After leisurely enjoying tea at the café, I invited Misha to my base when her bottom had calmed down.
 
 *と、カフェでのんびりお茶をして、ミーシャの尻が落ち着いたころあいで私はミーシャを拠点に招待した。*
 
-Isiah greeted me.
+Aisia welcomed us.
 
 *アイシアが出迎えてくれた。*
 
-I'm home. Is Lou here?　I need some ointment for my swollen buttocks."
+"I'm home! Is Lou-chan here? I need some ointment for my sore bottom."
 
 *「ただいまー。ルーちゃんいる？　お尻の腫れに効く軟膏が欲しいんだけど」*
 
-Welcome back, my dear. If it's Mr. Lou, he's in the workshop. ...... is that Misha?"
+"Welcome back, my lord. Lou-sama is in the workshop. ...Is that Misha-san?"
 
 *「おかえりなさいませあるじ様。ルー様なら工房ですよ。……そちらは、ミーシャ選手？」*
 
-I'm looking forward to working with you. Nice to meet you!　I'm famous now, too. You can give me your autograph.
+"Yep! Nice to meet you! I’ve become famous, you know. I can give you an autograph if you want."
 
 *「んにゃ。よろしくにゃ！　私も有名になったもんにゃ。サインあげてもいいにゃよ」*
 
-Oh, no, thank you.
+"Oh, that's fine."
 
 *「あ、結構です」*
 
 &nbsp;
 
-Misha lowered his eyebrows when Isiah refused to sign his name.
+Misha's face fell when Aisia declined her request for an autograph.
 
 *と、アイシアにサインを断られてミーシャはしょぼんと眉を下げた。*
 
 &nbsp;
 
-'But you don't seem surprised, Misha. About this space."
+"Still, Misha, you're not surprised at all about this space."
 
 *「にしても、驚かないんだねミーシャは。この空間について」*
 
-I was surprised enough at God's place earlier. Is it similar?"
+"I was surprised enough at the god earlier. This is similar, right?"
 
 *「さっきの神様のところで十分驚いたからにゃ。似たようなもんにゃ？」*
 
 &nbsp;
 
-What a flexible idea. You're a good friend.
+What a flexible way of thinking. You're doing great, best friend.
 
 *なんという柔軟な発想。やりおるわ親友。*
 
 &nbsp;
 
-That half-dwarf is my wife's dwarf?"
+"Is that half-dwarf married to a dwarf?"
 
 *「あの半分ドワーフが嫁のドワーフにゃ？」*
 
-'No, he's one of my wife's grandchildren and my slave.
+"No, that child is one of my wife's grandchildren and my slave."
 
 *「いや、あの子は嫁の孫の一人で私の奴隷だよ」*
 
-?　Complicated family environment, isn't it? ......"
+"??? It's a complicated family environment, isn't it..."
 
 *「？？？　複雑な家庭環境にゃんね……」*
 
 &nbsp;
 
-Yeah, I thought so too when you said it.
+Yeah, I thought so too as I said it.
 
 *うん、言ってて私もそう思ったよ。*
 
-And I came with Misha to the Five Elder Workshop.
+Then, I took Misha to the workshop of the Five Great Elders.
 
 *と、私はミーシャを連れて五大老工房へとやってきた。*
 
 &nbsp;
 
-I'm just wondering if you have any ointment to put on a swollen child who's been spanked? Do you have any ointment to put on a swollen buttock?"
+"Lou-chan! Do you have any ointment for a child whose bottom got slapped and swollen?"
 
 *「ルーちゃーん。お尻叩かれて腫れた子につける軟膏とかあるー？」*
 
 &nbsp;
 
-When I entered the workshop, all the Five Elders were there, in the middle of maintenance of Dear's gothic lolita dress.
+When we entered the workshop, all five Great Elders were gathered, working on maintenance for Dia-kun's Gothic Lolita dress.
 
 *工房に入ると、ディア君のゴスロリドレスのメンテナンス中で、五大老全員が揃っていた。*
 
-This equipment, which is the culmination of too much of the Five Elders' technology, must be maintained.
+This equipment, which gathers the pinnacle of the Five Great Elders' skills, requires regular maintenance.
 
 *五大老の技術の粋を集め過ぎたこの装備は、メンテナンスが必須なのである。*
 
-The inside, Deere-kun, seems to be in the bath right now.
+It seems Dia-kun is currently taking a bath.
 
 *中身のディア君は今お風呂に入っているらしい。*
 
 &nbsp;
 
-Oh. Kari, welcome. Lou, they said ointment."
+"Oh. Karichan, welcome. Lou-chan has the ointment."
 
 *「あ。カリちゃんいらっしゃい。ルーちゃん、軟膏だって」*
 
-"Did he smack you on the buttocks?　Did he hit you so hard that it swelled up?"
+"Did you say your bottom got slapped? Did you get slapped hard enough to swell up?"
 
 *「おしり叩かれたって？　そんな腫れるほど叩かれたの？」*
 
-I remember when my mom used to beat me up.
+"I remember getting slapped by my mom back in the day..."
 
 *「わっちも昔おかーさんに叩かれたことあったなー」*
 
-Aa-chan's mother was very strict with her. ......
+"Your mom was strict, huh..."
 
 *「アーちゃんのお母さん厳しかったもんねぇ……」*
 
-Here you go. It's a good ointment for bruises and internal bleeding, Kari."
+"Here you go. This ointment works well for bruises and contusions, Karichan."
 
 *「はいどーぞ。打ち身や内出血によく効く軟膏だよカリちゃん」*
 
 &nbsp;
 
-And, as usual, while messing around, Roo-chan gave me some ointment.
+As usual, amidst the commotion, Lou-chan handed over the ointment.
 
 *と、例によってわちゃわちゃしつつ、ルーちゃんが軟膏をくれた。*
 
 &nbsp;
 
-"Hi, Misha. Here you go, Misha."
+"Here. Please, Misha."
 
 *「ほい。どうぞミーシャ」*
 
-Thank you very much!　Are these Karina's daughters-in-law?　None of them look old enough to have grandchildren.
+"Oh, thank you! Are these girls your wives, Karina? None of them look old enough to have grandchildren, though."
 
 *「お、ありがとにゃ！　この子たちがカリーナのお嫁さん達なのかにゃ？　誰も孫がいるような年齢にはみえないけどにゃ」*
 
 &nbsp;
 
-Misha looks at the five of them with a carefree "meow".
+Misha looks at the five of them cheerfully.
 
 *にゃーん、とのんきに５人を見るミーシャ。*
 
-Conversely, the eyes of the five people glinted sharply for a moment.
+In contrast, the five of them suddenly glared sharply for a moment.
 
 *逆に５人の目が一瞬ギンッと鋭く光った。*
 
 &nbsp;
 
-You fight only with your physical abilities."
+"You're fighting purely based on physical ability."
 
 *「身体能力だけで戦ってるね」*
 
-I have a lot of talent, but I don't have enough of it. I'm not trained enough."
+"Talent is decent, but it's being wasted. Lack of training."
 
 *「才能はそこそこあるけど持て余してる。修練不足」*
 
-Hmmm, well, he doesn't seem like a bad kid."
+"Hmm, well, she doesn't seem like a bad kid."
 
 *「うーん、まぁ悪い子ではなさそう」*
 
-"From my hips, I feel the presence of the Holy ......?"
+"I sense a holy presence from her bottom...?"
 
 *「お尻から、聖なる気配を感じる……？」*
 
-"It's going to be good material--I'd say the overall rating is 'average'?"
+"She seems like she could be good material—overall evaluation is 'average,' I guess?"
 
 *「いい素材になりそう――総評は『並』かな？」*
 
 &nbsp;
 
-Oh, oh?"　Is it as good as it looks? ...... Uny!　What's this ointment, it works soooo good!　What? The pain in my buttocks is gone!　The swelling is gone too!
+"O-oh? Average, huh...? What is this ointment? It's working wonders!? Huh, the pain in my butt is gone!? The swelling is going down too!"
 
 *「お、おう？　並みかぁ……うにゃ！？　なにこの軟膏、すげー効く！？　え、尻の痛みが消えたんだけど！？　腫れも治まってるにゃ！？」*
 
 &nbsp;
 
-Misha, who had been slathering himself with ointment, spins around to look at his own buttocks in surprise.
+Misha, who was applying the ointment herself, spun around in surprise to check her bottom.
 
 *自分で軟膏をヌリヌリしていたミーシャが驚いて自分の尻をみようとくるくる回る。*
 
 &nbsp;
 
-Oh, I did it. The experiment was a success. It's a new one."
+"Oh, yay! Experiment successful. That's a new product."
 
 *「お、やった。実験成功。それ新作なの」*
 
-Wow, you made it? Did you make this?　You must be a famous medicine man. Thank you!　I want to know your name!
+"That's amazing! Did you make it? You must be quite a renowned apothecary. Thank you! Can you tell me your name?"
 
 *「すげーにゃ。アンタがつくたのかにゃ？　さぞ高名な薬師にゃんね。ありがとうにゃ！　名前を教えて欲しいにゃ！」*
 
-Hmm?"　Um, Barzebul Seanin ...... Kya, I said it!"
+"Huh? Um, it's Baaruzeburu Shounin... eek, I said it!"
 
 *「ん？　えっと、バールゼブル・ショーニン……きゃっ、言っちゃった！」*
 
 &nbsp;
 
-And Roo-chan was embarrassed to introduce herself with my last name. So cute!
+Lou-chan, embarrassed by introducing herself with my last name. So cute!
 
 *と、私の苗字を付けての自己紹介に照れるルーちゃん。かーわーいーいー！*
 
 &nbsp;
 
-I think it's the same name as the Five Elders of Tessin!　With his skill, I'm sure he can surpass the Five Elders!
+"Baaruzeburu... that's the same name as Tesshin of the Five Great Elders! With those skills, you could surely surpass the Five Great Elders!"
 
 *「ばーるぜぶる……たしかテッシン五大老と同じ名前にゃ！　この腕前ならきっと五大老を越えられるにゃよ！」*
 
-Oh, it's him. Shaunin' is my trade name, isn't it?"
+"Oh, I'm the real deal. Shounin is my shop name."
 
 *「あ、本人だよ。ショーニンは私の屋号だね」*
 
-"...... nyaa?"
+"......Meow?"
 
 *「……にゃあ？」*
 
 &nbsp;
 
-Misha's eyes darted at my spoiler.
+Misha's eyes went wide at my spoiler.
 
 *私のネタバレに、ミーシャの目が点になった。*
 
@@ -339,4 +339,3 @@ Misha's eyes darted at my spoiler.
 &nbsp;
 
 &nbsp;
-

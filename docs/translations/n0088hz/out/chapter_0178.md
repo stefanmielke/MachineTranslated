@@ -1,4 +1,4 @@
-# Me. You're a leaning beauty.
+# I. I'm a beauty that could topple a nation.
 
 ## 私。傾国の美女じゃん。
 
@@ -10,129 +10,129 @@ And the next day.
 
 &nbsp;
 
-Aside from the stolen fake "Breaking Wall Hammer" ......
+Setting aside the stolen fake "Castle Breaking Hammer"...
 
 *盗まれた偽『破城壁槌』はさておき……*
 
-I told Mee about my situation, and negotiations began to see if I could somehow acquire the "Breaking Wall Hammer".
+I began negotiations with Mii-chan to see if I could somehow acquire the "Castle Breaking Hammer" by explaining my situation.
 
 *ミーちゃんに私の事情を話して、『破城壁槌』をどうにか譲り受けることはできないか、という交渉が始まった。*
 
 &nbsp;
 
-It's not a rushed trip, and if you want, you're putting a door that leads to a base, so there's nothing wrong with negotiating patiently over a long period of time.
+It's not a rushed journey, and since we're placing a door that connects to our base, there's no problem taking our time with the negotiations.
 
 *急ぐ旅でもないし、なんなら拠点に繋がるドアを置くんだから長期間かけて気長に交渉しても何の問題もない。*
 
 &nbsp;
 
-Since we were paid by others, we gathered in the reception room alone and explained the situation to Mee-chan, with Dia-kun adding a little something extra.
+Having cleared the area of others, we gathered in the reception room, with Dear-kun occasionally adding supplementary information as I explained to Mii-chan.
 
 *人払いしてもらったので、私達だけで応接室に集まり、ディア君にちょいちょい補足を入れてもらいつつ、ミーちゃんに説明していく。*
 
-Mee-chan took it seriously. Her cute face was crisp and she was still cute.
+Mii-chan listened seriously. Her cute face looked sharp, and she was still adorable.
 
 *ミーちゃんは真剣にそれを聞いてくれた。可愛らしい顔がキリッとしててやっぱり可愛いかった。*
 
 &nbsp;
 
-Then I finished explaining the whole thing.
+And I finished explaining everything.
 
 *そして、一通り説明し終わった。*
 
 &nbsp;
 
-"...... and that's why, mee-chan. I wonder if ...... is no good?"
+"…So, that's the situation, Mii-chan. …Is it no good?"
 
 *「……と、いうわけなんだよミーちゃん。……ダメかなぁ？」*
 
-"Okay, I'll give it back. I won't use it anyway."
+"That's fine! I'll return it. I won't use it anyway."
 
 *「いいよぉー、返納しちゃお。どうせ使わないし」*
 
 &nbsp;
 
-What a surprise. Negotiations that were expected to be difficult ended in an instant.
+What a surprise. The negotiations, which were expected to be difficult, ended in an instant.
 
 *なんという事でしょう。難航すると思われた交渉が、一瞬で終わりましたとさ。*
 
 &nbsp;
 
-Light!　Eh, that's okay, Mee-chan!"
+"That was easy! Wait, is that really okay, Mii-chan!?"
 
 *「軽っ！　え、それでいいのミーちゃん！？」*
 
-I'm sure you'll be able to help me out. I know what's going on, and Kari is asking us to do this. And we are dwarves, you know?　It would be more like a symbol of dwarves if we put something we made ourselves, wouldn't it?
+"Yeah. I understand the situation, and it's a request from Kari-chan. Besides, we're dwarves, right? It makes more sense for us to keep the things we made ourselves; it's more symbolic of dwarves!"
 
 *「うん。事情も分かったし、カリちゃんの頼みだし。それにウチ達はドワーフだよ？　自分たちで作った物を置く方が、むしろドワーフの象徴らしくていいじゃん？」*
 
 &nbsp;
 
-What a surprise. The negotiations, which were expected to be difficult, were over in an instant. (This is the second time because it is important.)
+What a surprise. The negotiations, which were expected to be difficult, ended in an instant. (It's important, so I'll say it again)
 
 *なんという事でしょう。難航すると思われた交渉が、一瞬で終わりましたとさ。（大事なことなので2回目）*
 
 &nbsp;
 
-'Um, don't you need to talk to your superiors or the king or something?'
+"Um, don't you need to consult with the higher-ups or the king?"
 
 *「あの、上の人とか王様とかに相談しなくていいの？」*
 
-What was that?　Didn't I tell you?　I'm the king here. My queen!"
+"Huh? Didn't I mention it? We're the kings here. The queen!"
 
 *「あれ？　言ってなかったっけ？　ウチここの王様なの。女王様！」*
 
-I said, "Seriously, Mee-chan. What, wear a bondage?"
+"Seriously, Mii-chan? Wait, do you wear bondage?"
 
 *「マジかよミーちゃん。え、ボンデージ着る？」*
 
-I'm not your queen!　I don't mind if I wear it, though, do you?"
+"Not that kind of queen! I could wear it, though?"
 
 *「そっちの女王様じゃないよ！　着てもいいけどね？」*
 
 &nbsp;
 
-Well, you said you were ruling this town. And this town was the capital.
+Speaking of which, she did say she governed this town. And this town was the capital.
 
 *そういやこの町治めてるとか言ってたね。んでこの町は首都だったわ。*
 
 &nbsp;
 
-'Mee-chan was royalty?'
+"Mii-chan is royalty?"
 
 *「ミーちゃんって王族だったんだ？」*
 
-Oh, it's not like that," he said. The king of Tessin is the one who is the best at making things. We are all craftsmen!
+"Oh, it's not like that. The king of Tesshin is determined by who is the best at making things. We're all craftsmen!"
 
 *「あ、そういうんじゃないよ。テッシンの王様は一番物作りが上手い人がなる決まりなの。ウチらはみんな職人だからね！」*
 
 &nbsp;
 
-And the top five are called the Five Elders. Seriously, they are heavyweights.
+And the top five are called the Five Elders. No way, that's some serious authority.
 
 *そしてトップ５人が五大老と呼ばれている。マジかよ重鎮じゃん。*
 
-He said that national matters are decided by a council of five people, but no one would refuse my request (I assured him).
+The important matters of the country are decided by the consensus of the five, but if it's a request from me, no one would refuse (I can say that for sure).
 
 *国の大事は５人の合議で決まるが、私の頼みなら誰も断らない（断言）とのこと。*
 
 &nbsp;
 
-...... Oh my God, I've been a country wrecker. I'm a beautiful woman of the country.
+…Oh no, I was undermining the country. I'm a beauty that could topple a nation.
 
 *……やっべ、国堕としてたわ私。傾国の美女じゃん。*
 
-In other countries, does that mean that all the heirs to this throne are my wives?
+Does that mean that all the holders of the throne in other countries are my wives?
 
 *他の国で言うとこの王位継承権所有者が全員私の妻ってコト？*
 
-Hey, hey, hey!　Someone tell me what's going on!
+Hey! Someone tell me!!
 
 *ちょっとぉー！　誰か言ってよぉー！！*
 
 &nbsp;
 
-That's why it's a very expensive order that Mr. Masilo, an A-rated guy, can't just ask for it. ......
+No wonder Ms. Mashiro, an A-rank, can't easily take on high-cost orders...
 
 *そりゃＡランクのマシロさんがホイホイ頼めない高額発注になるわけだよねぇ……*
 
@@ -140,127 +140,124 @@ That's why it's a very expensive order that Mr. Masilo, an A-rated guy, can't ju
 
 &nbsp;
 
-What, all the Five Elders are women, but men can't be kings?
+What? All five elders are women, and men can't become kings?
 
 *え、五大老全員女だけど、男は王様になれないのかって？*
 
-In the past, there was a man who became king because of his overwhelming skill, but he said, "Men can't have children. That's why they are at a disadvantage.
+It seems there were men who became kings in the past due to their overwhelming skills, but they said, "Men can't have children. That's a disadvantage."
 
 *過去には圧倒的腕前で王になった男もいたらしいが、曰く「男は子供作れないじゃん。その分不利なのよ」だそうだ。*
 
 &nbsp;
 
-If it's materials and workshop, workshop is better.
+"The workshop is better than the materials, right?"
 
 *「材料と工房なら工房の方が上でしょ」*
 
-Oh, seeds are treated as materials. I see."
+"Oh, seeds are treated as materials. I see."
 
 *「あ、種は材料扱い。なるほど」*
 
 &nbsp;
 
-And just as the reputation of the workshop rises when the work produced at the workshop is good, the skill of the children is partly returned to the parents' reputation.
+And just as the quality of the works born in the workshop raises the workshop's reputation, the skills of the children are partially reflected in the parents' evaluations.
 
 *そして工房で生まれた作品の出来がいいと工房の評価も上がるように、子供の腕前も親の評価に一部還元されるのだとか。*
 
-The ...... species is largely uncertain, so mainly to the mother. The rest is to the head of the village if it is a village unit.
+…Seeds are generally uncertain, so mainly the mother. And if it's at the village level, then the village chief.
 
 *……種は大体不確かなので、主に母親に。あとは里単位なら里長に。*
 
 &nbsp;
 
-Hmm?"　Then that means you have a child, Mee!　I'd be a daddy!"
+"Huh? So does that mean Mii-chan has kids!? I just became a dad!"
 
 *「ん？　じゃあミーちゃん子持ちってこと！？　私、パパになっちゃってた！」*
 
-I've got lots of grandchildren. ...... are you going to hate us?"
+"Hehe, I have lots of grandchildren, you know? …Are you going to dislike us?"
 
 *「えへへ、孫もたくさんいるよぅ？……ウチたちのコト、嫌いになっちゃう？」*
 
-I don't think so!　If anything, it's more attractive!"
+"I won't! If anything, it makes you even more charming!"
 
 *「ならないよっ！　むしろ魅力が増えたよ！」*
 
 &nbsp;
 
-I hugged Mee-chan, who was on the verge of tears.
+I hugged Mii-chan, who was about to tear up.
 
 *ぎゅーっと涙目になりかけてたミーちゃんを抱きしめる私。*
 
-Her tiny body fits snugly in my arms. I'm getting excited. ...... Oh man, this loli transvestite.
+Her small body fit perfectly in my arms. …Oh no, this loli mother is getting me excited.
 
 *小さな体が私の腕にすっぽり収まる。……やっべ、このロリ経産婦かよ興奮してきた。*
 
 &nbsp;
 
-I love Kari-chan because I can tell that she really means it.
+"Hehe, I can tell you're saying that from the bottom of your heart, so I like you, Kari-chan."
 
 *「えへへ、めっちゃ本心でそう言ってくれてるの理解るからカリちゃん好き」*
 
-I love you too!
+"I love you and Mii-chan too!"
 
 *「私もミーちゃん達の事大好きだよっ！」*
 
 &nbsp;
 
-I'm very good with dwarves. But only for girls.
+I really get along well with dwarves. But only the girls.
 
 *私、ドワーフと相性めっちゃいいな。ただし女の子限定。*
 
 &nbsp;
 
-"......Kohonkkk."
+"…Ahem."
 
 *「……こほんっ」*
 
-I digress. So, about the "Breaking Wall Hammer"..."
+"Oh, we got sidetracked. So about the 'Castle Breaking Hammer'..."
 
 *「おっと話が脱線したね。それで『破城壁槌』なんだけど」*
 
 &nbsp;
 
-Deere's coughing brings me back to the main point of the conversation.
+With Dear-kun's cough, we returned to the main topic.
 
 *ディア君の咳払いで話を本筋に戻る。*
 
 &nbsp;
 
-The original was called a 'wall-breaking hammer,' and the imitation is a replica of a sacred artifact under that official name," he said.　It's not a perfect reproduction of its performance, though."
+"It was originally called the 'Castle Breaking Hammer,' so it's fine to say that the fake is a replica of the divine artifact with that name, right? We can't perfectly replicate its performance, though."
 
 *「元々『破壁槌』とか言ってたし、模造品はそっちが正式名称の神器レプリカってことでいいんじゃない？　性能の再現はしきれないけど」*
 
-Are you sure?　So."
+"Is that okay?"
 
 *「いいの？　それで」*
 
-It's okay, it's okay. So, let's have a divine return ceremony, Kari-chan!"
+"Of course, it's fine. So, shall we hold a ceremony for the return of the divine artifact, Kari-chan?"
 
 *「いいよいいよ。というわけで、神器返納式典をやろっか、カリちゃん！」*
 
 &nbsp;
 
-Mee-chan smiled like the sun.
+Mii-chan beamed with a sun-like smile.
 
 *ミーちゃんは、にぱーっと太陽のような笑顔を浮かべた。*
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(Notice below)
+(Announcement below)
 
 *（以下お知らせ）*
 
-We're currently voting on our official X account for who will be the character for the bonus SS for the electronic version of the book. (until 10/31)
+We're currently voting on who the character for the digital edition bonus SS will be on the official X account. (Until 10/31)
 
 *公式Xアカウントで、電子版の特典SSのキャラを誰にするかの投票中ですわよ。（10/31まで）*
 
-*The deadline after that is mach. I may be able to write in advance if there is an overwhelmingly large margin, so vote a lot ......!
+*The subsequent deadline will be fast, so if there's a significant difference, I might be able to write it in advance, so please vote a lot... please!!
 
 *※その後の締め切りはマッハなのである。圧倒的大差がついていればあらかじめ書けるかもですので、いっぱい投票してね……してね！！*
-

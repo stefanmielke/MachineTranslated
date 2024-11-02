@@ -1,104 +1,104 @@
-# To be honest, that idea is scary.
+# To be honest, that idea is scary
 
 ## ぶっちゃけその発想はこえーにゃ
 
 &nbsp;
 
-I suddenly thought of a way to pass the time.
+I suddenly thought of a way to kill time.
 
 *ふと暇つぶしを思いついた。*
 
 &nbsp;
 
-Well, you know those bandits, right?"
+"By the way, there are thieves, right?"
 
 *「そういや盗賊っているじゃん？」*
 
-You're here.
+"Yeah, there are."
 
 *「いるにゃね」*
 
-That's the kind of thing you can kill, right?"
+"Aren't they the kind you can kill?"
 
 *「あれって殺していいやつじゃん？」*
 
-Yes, she is.
+"That's right."
 
 *「そうにゃね」*
 
-'So if we catch him, doesn't that mean he's an experimental subject that we can use for whatever we want?
+"So if I catch one, wouldn't that mean I can use them as an experimental subject for anything?"
 
 *「じゃあ捕まえたとしたら、何に使ってもいい実験体ってことにならないかな？」*
 
-...... I think it's fine because what you're saying isn't wrong and no one is going to get in trouble, but frankly, the idea is scary."
+"…What you're saying isn't wrong, and no one would be troubled by it, so I guess it's fine, but to be honest, that idea is scary."
 
 *「……言ってることは間違ってないし誰も困らないからいいんじゃねとは思うけど、ぶっちゃけその発想はこえーにゃ」*
 
 &nbsp;
 
-Good, if Misha says so, then there is no doubt about it.
+Alright, if Misha says so, it must be true.
 
 *よっしゃ、ミーシャがそう言うなら間違いないだろう。*
 
-So I decided to look for a bandit to get a 'person who can do anything' more than a slave.
+So, I decided to search for thieves to obtain a "human that can do anything" beyond just a slave.
 
 *というわけで奴隷以上に『何してもいい人間』を手に入れるべく盗賊を探すことにした。*
 
 &nbsp;
 
-I'm going to do something that even Isiah can't do.
+"I'm going to do things even Aisia can't do, hehehe."
 
 *「アイシアにもできない事をしちゃうぞぐへへ」*
 
-"Oh my God, he's acting like he doesn't know which one of us is the bandit."
+"This guy is dangerous; I can't tell which one is the thief with that kind of behavior."
 
 *「やべぇよコイツ、どっちが盗賊か分かんねぇ言動してんにゃ」*
 
 &nbsp;
 
-Well, what we do is experiment with magic and so on.
+Well, what I'm going to do is use them as a magical experimental subject.
 
 *まぁやるのは魔法の実験台とかなんだけど。*
 
-But if possible, I wonder if there are any beautiful girl bandits or something. And I will search the streets from the sky.
+But I wonder if there are any beautiful girl thieves around. As I explore the highway from the sky.
 
 *でもできれば美少女盗賊とか居ねぇかなー。と私は街道を空から探索していく。*
 
-And, while in the room of the base, you just make a window and look through it. I thought it would be easy to find bandits.
+By the way, I'm just making a window while staying in the base room and peeking out. It should be easy to find thieves.
 
 *尚、拠点の部屋に居ながら窓を作って覗くだけ。盗賊なんて簡単に見つかるだろーって。*
 
 &nbsp;
 
-I'm not surprised ....... Someone who looks like that.
+…Surprisingly, there aren't many that fit the bill.
 
 *……意外と居ねぇな。それっぽい奴。*
 
 &nbsp;
 
-Hey, Misha, I don't see anyone who looks like a bandit.
+"Hey Misha, I don't see any thieves around."
 
 *「ねぇミーシャ、盗賊っぽい奴いないんだけど」*
 
-The most important thing to remember is that you can't be a thief in the village without being attacked by demons, and thieves usually work as villagers. There are a lot of stories about thieves taking over entire villages, and they do it as a side job when they don't have to work in the field, you know?"
+"Well, even if they were around, they'd just get attacked by monsters, and thieves usually act like villagers. There are many stories about thieves being part of a village, and they tend to do that as a side job when there's no farming to do, you know?"
 
 *「まー、そこらへんにいても魔物に襲われるだけだろうし、盗賊も普段は村人したりしてるからにゃ。村ごと盗賊って話も多くて、そういうのは野良仕事のない時に副業でやるってカンジにゃよ？」*
 
-I'm not sure if he's a bandit or not if he's just a regular villager. I don't know if he's a bandit or not if he's just a regular villager."
+"Seriously? If they're acting like villagers, I can't tell if they're thieves or not."
 
 *「まじかよ。普通に村人されてたら盗賊かどうか分からんのだけども」*
 
-To tell the truth, you can't say you're a bandit until you've been attacked, and that's the trouble with bandits.
+"To be honest, you can't really say they're thieves until they attack you, which is the troublesome part about thieves."
 
 *「ぶっちゃけ襲われるまで盗賊とは言い切れないのが盗賊の厄介なトコにゃー」*
 
 &nbsp;
 
-It seems that there are a few guys who are running rampant in the so-called bandit-like fashion at .......
+…It seems that there are few who are causing a ruckus like a typical band of thieves.
 
 *……いわゆる盗賊団的に暴れまわってるような奴は少数らしい。*
 
-And when those guys aren't banditry, they're also working for mercenaries or something like that. ......
+Moreover, those kinds of people also work as mercenaries when they're not stealing…
 
 *しかも、そういう奴らも盗賊をしていない時は傭兵とかで働いたりしているとか……*
 
@@ -106,21 +106,21 @@ And when those guys aren't banditry, they're also working for mercenaries or som
 
 &nbsp;
 
-Oh. I'm not sure if it's a good idea to have a new one.　We were drugged."
+"Oh. By the way, in a sense, the demon tribe's folks are also thieves, right? We were drugged by them."
 
 *「あ。そいやある意味鬼族の里の連中も盗賊にゃん？　私ら薬盛られたしにゃ」*
 
-Hmmm. I guess you could say that. ......"
+"Well, now that you mention it, that's true…"
 
 *「うーん。言われてみればそうだな……」*
 
 &nbsp;
 
-But I am not inclined to use the people of the demon village as experimental subjects of any kind.
+That said, I can't bring myself to turn the demon tribe's folks into experimental subjects now.
 
 *かといって今更鬼族の里の連中をなんかしらの実験体にしようとかいう気にはなれない。*
 
-That thing is already in my storage. ......
+They're already in my storage…
 
 *アレはもう私の収納に入ってるしなぁ……*
 
@@ -128,75 +128,75 @@ That thing is already in my storage. ......
 
 &nbsp;
 
-It would be a quicker story if we could somehow get the bandit ...... current, if he was around somewhere.
+I need to somehow find a thief… It would be quick if there was one caught in the act somewhere.
 
 *どうにかして盗賊を……現行犯のヤツ、どっかにいれば話が早いんだけどなぁ。*
 
 &nbsp;
 
-I guess I'll just have to keep trying to find a street. ......?"
+"I guess I have no choice but to search the highway…?"
 
 *「がんばって街道を探してみるしかないか……？」*
 
-"Oh, oh, oh. I hope you'll help us maintain public order."
+"Go ahead and contribute to maintaining public order."
 
 *「おーおー。治安維持に貢献するがいいにゃー」*
 
 &nbsp;
 
-It is also desirable to witness the moment of the attack by chance.
+Ideally, I would witness the moment they launch an attack.
 
 *それも、攻撃を仕掛けた瞬間を偶々目撃するのが望ましい。*
 
-It is a wonderful world where no one (except the bandits) loses anything if the attack is prevented and only the experimental subjects are obtained before the victim is aware of anything.
+If I can prevent that attack in advance and get the experimental subject without the victim noticing (as long as they're not a thief), it would be a wonderful world where no one gets hurt.
 
 *その攻撃を未然に防ぎ、被害者が何も気づかないウチに実験体だけゲットすれば（盗賊以外は）誰も損しない素敵な世界さ。*
 
 &nbsp;
 
-I mean, Karina. I thought you didn't like men.　I thought you said no men?
+"By the way, Karina. Didn't you say you don't like men? Most thieves are men, you know?"
 
 *「ってかカリーナ。おめー、男ダメなんじゃなかったっけ？　盗賊って大体男にゃよ？」*
 
-You see, there's magic and stuff there, and you can have a female bandit, right ......?"
+"Well, there's magic and all, so there can be female thieves too… right?"
 
 *「そこはほら、魔法とかあるし女盗賊もいけるでしょ……いるよね？」*
 
-Even if there is, there will never be a beautiful girl like you. If you like a girl with a nice face, she's either a whore or a swindler in town.
+"Even if there are, there's no way you'd find a beautiful girl to your taste. Those good-looking ones are either working as prostitutes or con artists in town."
 
 *「いてもオメー好みの美少女とかは絶対いねーにゃ。そんな顔が良い奴は町で娼婦か詐欺師してるにゃよ」*
 
 &nbsp;
 
-Indeed!
+That's true!?
 
 *確かに！？*
 
 &nbsp;
 
-...... rapidly demotivated me."
+"…My motivation just plummeted."
 
 *「……急激にやる気がそがれたわ」*
 
-Ah, but there it is. "Ah, but you know what? There might be beautiful girls who are the daughters of bandits or slaves of bandits.
+"Ah, but you know. There might be beautiful girls among the daughters of thieves or the slaves of thieves."
 
 *「あー、でもホラ。あれにゃ。盗賊の娘とか、盗賊の奴隷とかに美少女いるかもにゃ」*
 
-"Well, in detail."
+"Oh, tell me more."
 
 *「ほう、詳しく」*
 
-For example, a bandit attacks a nobleman's carriage.　If a beautiful young lady is caught, she will definitely be traced and cannot be sold. If they were to sell her, they would surely be traced back to her, so they would take her back to their hideout and turn her into an illegal slave ...... and eventually have a child ...... who is a beautiful girl like her mother....... What do you mean?"
+"For example, if a thief attacks a noble's carriage? Let's say they capture a beautiful young lady. Even if they try to sell her, they definitely can't do it without getting caught, so they would take her back to their hideout and make her an illegal slave… and eventually, a child would be born… and it would be a beautiful girl resembling her mother… right?"
 
 *「例えば盗賊が貴族の馬車襲うにゃ？　美少女なお嬢様を捕まえたとするにゃ。売るにしても間違いなく足がついて売れないから、アジトに連れ帰って非合法な奴隷に……そしてそのうち子供も生まれ……母親似の美少女で……ってにゃ？」*
 
-I'm motivated now, Misha!　Let's do our part to improve public safety!"
+"Okay, I'm feeling motivated now, Misha! Let's contribute to improving public safety a bit!"
 
 *「オッケーやる気出てきたよミーシャ！　ちょっと治安向上に一役買うとしますかぁ！」*
 
 &nbsp;
 
-Thus began my hunt for bandits.
+Thus, my thief hunting began.
 
 *かくして、私の盗賊狩りが始まった。*
 
@@ -204,15 +204,13 @@ Thus began my hunt for bandits.
 
 &nbsp;
 
-...... Oh, don't tell Deere and the others!
+…Ah, but this is a secret from Dia and the others!
 
 *……あっ、ディア君達には内緒だかんね！*
 
 &nbsp;
 
 &nbsp;
-
-
 
 &nbsp;
 
@@ -222,15 +220,14 @@ Thus began my hunt for bandits.
 
 *（以下お知らせ）*
 
-Voting is now open for the April 2024 edition of the Laneway News Online Awards!
+The survey voting for the Light Novel News Online Award April 2024 edition has started!!
 
 *ラノベニュースオンラインアワード2024年4月刊のアンケート投票開始！！*
 
-And you're eligible for the second volume of Ato Goji, too!　Please take a moment and vote in support!
+Also, Volume 2 of Goji is included! Sorry for the trouble, but please vote to support usーーーー！！
 
 *あとごじ２巻も対象ですわよ！　お手数ですが、どうか応援に投票してくださいましーーーー！！*
 
 https://ln-news.com/articles/119561
 
 *https://ln-news.com/articles/119561*
-

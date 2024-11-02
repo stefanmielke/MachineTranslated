@@ -1,15 +1,14 @@
-# Attacked?　Double payback!
+# Attack? Double the return!
 
 ## 襲撃？　倍返しだ！
 
-(I made a mistake and posted yesterday's post the day before yesterday. Sorry for disturbing your pace.
+(I made a mistake with the scheduled post and ended up posting the one from yesterday the day before. Sorry for messing up the pace.
 
 *（予約投稿ミスって昨日分を一昨日投稿してしまったのである。ペース乱しちゃってすまんな。*
 
-(I'm sorry to say that I've added illustrations to the post of the 28th instead.)
+As a substitute, I added an illustration to the post for the 28th, so please forgive me.)
 
 *かわりといっちゃなんだけど28日投稿分に挿絵を追加しておいたので許して）*
-
 
 ----------------
 
@@ -19,21 +18,21 @@
 
 &nbsp;
 
-I'm Karina. It seems I'm being targeted!
+I'm Karina-chan. It seems like I'm being targeted!
 
 *私カリーナちゃん。どうやら私、狙われてるみたいなの！*
 
-I'm scared!　I'm so scared, I'm going to have to go the other way and get in there and beat the crap out of him!
+I'm scared! Since I'm scared, I have no choice but to charge in and blow them away!
 
 *怖いわ！　怖いから逆に私から乗り込んでぶっ飛ばすしかないわね！*
 
 &nbsp;
 
-I thought about starting my work after delivering the socks to God, but since I want to soak in the memories of Sati-tan for a while longer, I will deliver the socks tomorrow.
+I thought about starting things after delivering the socks to the god, but I want to bask in my memories with Sati-tan a little longer, so I'll deliver them tomorrow.
 
 *コトを始めるのは靴下を神様に納品してからにしようかとも思ったけど、もうしばらくサティたんとの思い出に浸りたいので、納品は明日にする。*
 
-In addition, I want to make a donation to the church, so for today, I'm going to hunt bad guys and make a donation. Wow, more and more puff, puff, puff.
+By the way, I also want to make a donation to the church, so for today, I plan to hunt down some villains and earn some donation money. Yay, let's go wild!
 
 *ついでに教会への寄付もしたいから、今日のところは悪人を狩って寄付金を稼ごうと思いまーす。わーどんどんぱふぱふー。*
 
@@ -41,99 +40,99 @@ In addition, I want to make a donation to the church, so for today, I'm going to
 
 &nbsp;
 
-So, before noon, I was a woodcutter to increase its value as bait.
+So, I chopped wood in the morning to increase my value as bait.
 
 *というわけで、昼前はエサとしての価値を高めるために木こりをしました。*
 
-With the help of Braid's seniors, we earned another 40 silver coins.
+With the help of the Blade seniors, I managed to earn another 40 silver coins.
 
 *ブレイド先輩達のお手伝いもあってまた銀貨４０枚を稼いじゃったわけですよ。*
 
 &nbsp;
 
-What?　Didn't I say I was tired of lumberjacks?
+Huh? Didn't I say I was tired of chopping wood?
 
 *え？　木こりは飽きたって言ってなかったかって？*
 
-That's okay, because this is preparation for the main dish!
+This is just preparation for the main dish, so it's fine!
 
 *これはメインディッシュに向けての準備だからいいのさ！*
 
 &nbsp;
 
-What?　You're a newcomer with 40 silver coins?　What a bastard!　This is the last time I'm going to see you!"
+"What?! You, a newbie, managed to bring in 40 silver coins?! What a jerk! This is the last time I'll deal with you!"
 
 *「なにー！　新入りのクセに銀貨４０枚ももってくだってぇ？！　なんてヤローだ！　おめーとは今回限りだよ！」*
 
-I'm going to be a merchant now!　We're going to be merchants now, receptionist, so let's withdraw all 25 silver coins, or rather, 40 silver coins, and we'll go to Shun Lai Pavilion and have a grand old time!　Let's go to Shun Lai Pavilion and have a grand old time!"
+"Heh, it's your fault for getting fooled! I'm going to become a merchant from now on, receptionist lady, give me 25 silver coins, no, let's withdraw all 40 coins! Let's celebrate with a lavish feast at the Shunrai Inn!"
 
 *「ヘッ、だまされるほうがわるいんだよー、だ！　こちとらこれから商人になるんだ、受付嬢さん、銀貨２５枚、いや、ここはパーッと４０枚全部引き出しで！　景気付けにシュンライ亭で豪遊だぁ！」*
 
-Damn it!　Remember me!"
+"Damn it! Remember this!"
 
 *「くっそー！　おぼえてろよー！」*
 
-Your baby's a bitch!"
+"Your mom's a belly button!"
 
 *「おまえのかーちゃんでーべそー！」*
 
 &nbsp;
 
-I will present the trifecta I discussed while woodcuttering at the Adventurer's Guild. This should let my targets know what I have and what I plan to do.
+While chopping wood, I showcased the three-penny play we rehearsed at the Adventurers' Guild. This should convey my funds and plans to the targets.
 
 *木こりをしつつ打ち合わせた三文芝居を冒険者ギルドでお披露目。これでターゲット達にも私の所持金と予定が伝わるはず。*
 
-Pretending to have broken up a fight with Blade-senpai, the senpai went ahead to Harumikazuchi-sister's place. They plan to serve me water while saying sake.
+I pretended to have a falling out with the Blade seniors, and they went ahead to the place of Sister Harumikazuchi. They plan to serve me water instead of alcohol.
 
 *ブレイド先輩と喧嘩別れした風を装い、先輩達はハルミカヅチお姉さまの所へ先回り。私にはお酒と言いつつお水を出してくれる予定。*
 
 &nbsp;
 
-I strolled around town, proudly showing off my figure, shopped at the market, refused to buy liquor, and leisurely made my way to the Shung Lai Pavilion with a bottle of liquor that I had replaced with water.
+I strolled through the town, proudly showing off my appearance, shopped at the market, was refused when trying to sell alcohol, and leisurely headed to the Shunrai Inn while chugging a bottle of wine that I had swapped for water.
 
 *私は堂々と自分の姿見せびらかすように町を散歩し、市場で買い物し、お酒の買取りを断られ、水に入れ替えた酒瓶をあおってのんびりシュンライ亭へ向かった。*
 
 &nbsp;
 
-"Welcome. I heard you made another fortune, didn't you?"
+"Welcome. I've heard the news, you made some money again, huh?"
 
 *「いらっしゃい。話は聞いてるよ、またひと稼ぎしたんだってねぇ？」*
 
-Harumikazuchi-sama!　Please come here! This sake was bought by a senior merchant!
+"Sister Harumikazuchi! Please listen! I was forced to buy this alcohol from a senior merchant!"
 
 *「ハルミカヅチお姉さまー！　きーてくださいよぉ。このお酒、先輩商人に買わされちゃって！」*
 
-I don't blame you at all. If it's free, it's not a deal, so you can leave it with me."
+"Well, that's just how it is. If it's free, it won't count as a transaction, so you can leave it here."
 
 *「まったく仕方ないねぇ。無料なら取引にならないから置いてってくれてもいいよ」*
 
-'Hmmm, I'll give you about five then!　I love you, sister!"
+"Hmm, then I'll gift you about five bottles! I love you, sister!"
 
 *「んー、じゃあ５本くらいプレゼントしちゃう！　お姉さま大好き！」*
 
 &nbsp;
 
-Oh, here is the alcohol for the cooperation fee. Please pay it.
+Ah, this is the alcohol for the cooperation fee. Please accept it.
 
 *あ、こちら協力料のお酒です。お納めください。*
 
-It is a drink that is sold in this town, so it doesn't seem to be anything strange.
+It seems to be alcohol sold in this town, so it shouldn't be anything strange.
 
 *この町でも売ってるお酒なので変な物ではない様子。*
 
 &nbsp;
 
-I was surprised that they bought me such a good bottle of sake. I'll have to serve you today. Have a drink.
+"Oh, surprisingly, you bought some good alcohol. I guess I have to give you some service today. Well, drink up."
 
 *「おや、案外いい酒を買わされたもんだね。こりゃ今日はサービスしてあげないとねぇ。ま、飲みな」*
 
-Yay."
+"Yay!"
 
 *「わーい」*
 
 &nbsp;
 
-And I drink the water that Sister Harumikazuchi poured for me. Yes, the story is going well. Even plain water is nectar when it's poured for me by my sister. Hehehe.
+I drank the water that Sister Harumikazuchi poured for me. Yup, the plan is going perfectly. Just plain water, but when poured by my sister, it tastes like nectar. Hehe.
 
 *と、ハルミカヅチお姉様に注いでもらったお水を飲む。うん、話はバッチリ通ってるね。ただのお水もお姉様に注いでもらえば甘露甘露。ふへへ。*
 
@@ -141,63 +140,63 @@ And I drink the water that Sister Harumikazuchi poured for me. Yes, the story is
 
 &nbsp;
 
-So, we indulged in a glass of water and are now in the alleyway at night.
+So, I indulged in drinking the water, and now I'm in the back alleys at night.
 
 *というわけでぐだぐだお水を飲みふけり、夜の路地裏です。*
 
-I am almost empty-handed except for a backpack with a bottle of sake.
+Aside from the backpack with the wine bottle, I'm almost empty-handed.
 
 *酒瓶の入ったリュック以外はほぼ手ぶらな私。*
 
 &nbsp;
 
-This is where I got tangled up the other day when I was walking around aimlessly. I was too tipsy to notice. Now, let's see if I can catch it.
+This is where I was approached the other day while wandering around. I didn't notice because I was slightly tipsy. Now, will I catch something?
 
 *ここで先日私がフラフラ歩いてたら絡まれたんだよねぇ。ほろ酔いで気付いてなかったけど。さーて、釣れるかなぁー？*
 
 &nbsp;
 
-And then, after some steps into the alleyway, a man appeared.
+As I stepped further into the alley, a man appeared.
 
 *と、路地裏にある程度踏み入ったところで男が現れました。*
 
 &nbsp;
 
-This place is closed to traffic.
+"This is a no-passage zone."
 
 *「ここは通行止めだぜ」*
 
-Well, well, well."
+"Oh my, oh my."
 
 *「おやおやおや」*
 
 &nbsp;
 
-A wallet popped out!　I can't help but smile.
+A wallet popped out! I couldn't help but smile.
 
 *お財布が飛び出してきた！　おもわずにまりと笑みがこぼれます。*
 
-Kukuku, I'm sober today, I won't let you go, okay?
+Hehehe, I'm sober today, so I won't let you escape!
 
 *ククク、今日はシラフだから逃がさないぜ？*
 
 &nbsp;
 
-What the hell?　What a grinch. ...... Hey, block up the back. If you look closely, you'll see the top ball, don't let it get away."
+"Huh? What's with that grin... Hey, block the back. Now that I look closely, she's a real catch, don't let her escape."
 
 *「あん？　なんだニマニマしやがって……おい、後ろ塞げ。よく見たら上玉だぞ、逃がすな」*
 
-I'll take care of it, big brother.
+"Leave it to me, bro."
 
 *「まかせとけアニキ」*
 
 &nbsp;
 
-Footsteps behind me. Oh my god, I'm stuck between wallets!　Which money should I pick up from, I'm so confused!
+Footsteps behind me. Oh no, I'm caught between wallets! Which money should I pick up first? It's a dilemma!!!
 
 *後ろに足音。ああ困った、お財布に挟まれてしまったわ！　どっちのお金から拾おうかしら、悩ましいわ！！*
 
-Just ......2 people?　Hmmm, well, let's just stick with these guys for now.
+...Just the two of them? Hmm, well, I guess these guys will do for now.
 
 *……２人だけかな？　うーん、まぁとりあえずはコイツらでいいか。*
 
@@ -205,177 +204,176 @@ Just ......2 people?　Hmmm, well, let's just stick with these guys for now.
 
 &nbsp;
 
-What is it, guys? Robbery?　Do I feel like I'm being robbed?"
+"What do you want, you guys? A robbery? Do I feel like I'm being attacked?"
 
 *「なんだい君たちぃ。強盗？　私、襲われてる感じ？」*
 
-If you know what you're doing, just give it to me. And all the clothes you're wearing."
+"Heh, if you understand, hurry up and hand it over. Everything you're wearing too."
 
 *「へへ、分かってんならさっさと寄越しな。着てる服も全部な」*
 
-'Of course, we'll make the contents of your clothes into toys for us to play with and then sell them to the slavers.
+"Of course, we'll make your clothes our toys and sell you to a slave trader."
 
 *「もちろん、服の中身も俺らのオモチャにしたうえで奴隷商人に売ってやるよ」*
 
-"Hey, what is it, a slaver?　But what kind of slaver buys a good, ordinary person with no crime and no debt?
+"W-What?! A slave trader?! But, isn't there any slave trader who would buy a good, law-abiding citizen with no crimes or debts?"
 
 *「な、なにぃー、奴隷商だってー？　でも、犯罪も借金もない善良な一般人を買う奴隷商なんているもんかー」*
 
 &nbsp;
 
-So that means that guy is my safe!　I'm sure of it!
+So that means he's my vault! No doubt about it!
 
 *つまりそいつは私の金庫ということだな！　間違いない！*
 
-I'm so happy that my lines have become barbs. Dehehe.
+I got so excited that my lines turned into a monotone. Hehe.
 
 *嬉しさのあまりセリフが棒読みになってしまったぞ。でへへ。*
 
 &nbsp;
 
-I don't have any money to give you!　Get out of my way!
+"I don't have any money to give you! Get lost!"
 
 *「おまえらにやる金なんてないね！　どきな！」*
 
 &nbsp;
 
-No, don't retreat, just attack me. Come on, come on, it's a dare. As I struck a fighting pose in my mind, the purse in front of me drew its sword.
+No, don't back down, attack me. Come on, hurry up, it's your job. As I mentally took a fighting stance, the wallet in front of me drew a sword.
 
 *いや退かないで、襲ってきて。ほら早く、やくめでしょ。と、心の中でファイティングポーズを取っていると、目の前のお財布は剣を抜いた。*
 
-It's clear intent to harm. I've heard that self-defense is possible at this point, but I'd like a little more so I don't become over-defensive.
+Clear intent to harm. At this point, self-defense seems to be established, but I want a little more before I go overboard.
 
 *明確な害意だ。この時点で正当防衛は成立するらしいが、私が過剰防衛にならないようもう少し欲しい所。*
 
 &nbsp;
 
-"Hey, little girl, you don't want to get your pretty face scratched, do you?　You don't want to get your pretty face scratched, do you?
+"Hey, miss, you don't want to get a scratch on that pretty face, do you? Just do as I say."
 
 *「なぁ嬢ちゃん、綺麗な顔に傷付けられたくないだろ？　大人しく言う事を聞けよ」*
 
-You are an idiot. If you hurt your body, not just your face, you'll lose value. No blades, right?"
+"Are you an idiot? If you scratch my face or body, my value will drop. Isn't a blade a bad idea?"
 
 *「バカかおめぇは。顔どころか身体に傷付けたら価値が落ちるぞ。刃物はダメじゃね？」*
 
-Hmm?" ...... if you ask me?"
+"Huh? ...Now that you mention it, that's true?"
 
 *「ん？……言われてみればそうだな？」*
 
 &nbsp;
 
-No, no, no, don't convince me. Go ahead and attack. We're invincible with space magic and waiting to attack.
+No, no, don't agree with that. Come at me. I'm in an invincible state using spatial magic, waiting for an attack.
 
 *いやいや納得してんじゃねぇよ。襲って来いよ。こちとら空間魔法使って無敵状態で攻撃待ちなんだぞ。*
 
 &nbsp;
 
-Who's the idiot, Goraru!
+"Who are you calling an idiot, you bastard!!"
 
 *「って誰がバカだごるぁ！！」*
 
-Time difference?
+"Time lag!?"
 
 *「時間差ぁ！？」*
 
 &nbsp;
 
-Here it comes!　Gatun!　He is struck by the flat part of the sword. Even if the blade is not up, the sword is still a piece of metal, a normal blunt weapon.
+Alright, here it comes! Bam! I get hit with the flat side of the sword. Even without the blade facing me, a sword is a chunk of metal, it's a blunt weapon.
 
 *よっしゃきた！　ガツン！　剣の平たい部分で殴られる。刃を立てていなくとも剣は金属の塊、普通に鈍器だ。*
 
-Well, I'm not moving even a millimeter with no damage. This is a perfect case of self-defense!
+Well, I don't take any damage and don't move an inch. This completely establishes self-defense!
 
 *ま、私はノーダメージで１ミリすら動かないけど。これで正当防衛完全成立！*
 
 &nbsp;
 
-"Don't--"
+"What the—"
 
 *「なッ――」*
 
-"Ei."
+"Take this!"
 
 *「えい」*
 
 &nbsp;
 
-With a shun, purse A is put away in the storage space.
+With a swoosh, I stored Wallet A in my storage space.
 
 *しゅん、とお財布Ａを収納空間におかたづけ。*
 
-Inside, time stands still, so there is no need to worry about being roughed up.
+Time stops inside, so there's no worry about them causing a ruckus.
 
 *中では時間が止まっているので、暴れられる心配もない。*
 
 &nbsp;
 
-Hey, hey, hey!　Where'd you take my brother?
+"W-Where did you take my bro!?"
 
 *「な、お、おい！　アニキをどこへやった！？」*
 
-Now, where is it? It's gone, aren't you scared?　Vero Vero Bar."
+"Now, where could he be? He seems to have disappeared, are you scared? Belly belly bar."
 
 *「さて、どこだろうねー。消えちゃったねー、怖いでちゅかー？　ベロベロバー」*
 
-Hiccup...... ohhhh!"
+"Eeek... Waaaaahhh!!"
 
 *「ひっ……うわああああああ！！」*
 
 &nbsp;
 
-Whoa, wallet B attacked me instead of running away. Good, let's get hit once. ...... Yeah, it doesn't hurt anything, but it's a little startling to get a fist smash in the face. It's like a face smack VR?　It's not V though.
+Oh, Wallet B didn't run away and charged at me. Good, I'll let him hit me once... Yeah, it doesn't hurt at all, but getting punched in the face is a bit surprising. Feels like face smash VR? Not that it's VR.
 
 *おっ、お財布Ｂが逃げずに襲い掛かってきた。グッド、一発殴られてやろう……うん、何の痛みも無いけど顔面に拳ぶつけられるのはちょっとびっくりすんだぞ。顔面強打ＶＲって感じ？　Ｖじゃないけど。*
 
 &nbsp;
 
-Hard!　What the hell are you!
+"Hard?! W-What are you?!"
 
 *「硬ッ！？　な、何なんだお前！」*
 
-Huh?"　I'm a good adventurer. It's terrible that you hit me unilaterally, you know.
+"Huh? I'm just a good, law-abiding adventurer. It's terrible of you to hit me without warning."
 
 *「え？　善良な一般冒険者だよ。一方的に殴ってくるだなんて酷いな君ぃ」*
 
 &nbsp;
 
-With a snap of the fingers, the lower half of wallet B is fully secured. We won't let you go, will we?
+With a snap, I fixed Wallet B's lower body completely. No escaping for you!
 
 *パチン、と指を鳴らしてお財布Ｂの下半身を完全固定。逃がしませんことよ？*
 
 &nbsp;
 
-"Oh, my legs can't move!　What?
+"Ah, my legs won't move?! W-What, what the—"
 
 *「あ、足が動かねぇ！？　ひ、な、ななっ」*
 
-"You're the ones who tried to kill me first. ...... huff ...... oops, don't give me that pathetic screech. People will come, won't they?"
+"You guys were the ones trying to kill me first... Hehehe... Oh, please don't let out any pathetic screams. People will come, you know?"
 
 *「先に殺そうとしてきたのは君たちだからね……フフフ……おっと、情けない悲鳴は上げないでくれたまえよ。人が来ちゃうだろぉ？」*
 
 &nbsp;
 
-Blocking voices.
+I cut off their voice.
 
 *声を遮断。*
 
-Wallet B, which is flapping its mouth like a goldfish on an acid trip.
+Wallet B flails its mouth like a goldfish gasping for air.
 
 *ぱくぱくと口を酸欠の金魚のように動かすお財布Ｂ。*
 
 &nbsp;
 
-...... Even the self-proclaimed God of Chaos can't escape, so how can a mere wallet escape?
+...If even a self-proclaimed chaos god can't escape, there's no way a mere wallet can escape, right?
 
 *……自称混沌神でも逃げられないんだから、ただのお財布が逃げられるわけないんだよなぁ？*
 
 &nbsp;
 
-Well, let's hear all about it then!　Let's start with the safe!
+Now then, let's hear all sorts of things! First, about the vault!
 
 *さーて、それじゃあ色々と聞かせてもらおうかな！　まずは金庫の事から！*
 
 &nbsp;
 
 &nbsp;
-

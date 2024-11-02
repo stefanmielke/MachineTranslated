@@ -1,14 +1,14 @@
-# I've never worn them!
+# I've never worn something like that
 
 ## 履いたことねぇよンなもん
 
 &nbsp;
 
-I'm Karina!　Masilo, the beastie adventurer I saved, cool and cool, it was my fault she got into a pinch, I'm sorry!
+I'm Karina! The beastman adventurer Mashiro, whom I saved, got into a pinch because of me, sorry!
 
 *私カリーナちゃん！　助けた獣人冒険者マシロちゃん、クールでカッコいい彼女がピンチに陥ったのは私のせいでした、ごめーんね！*
 
-So I compensated the damage. I did my best. Hehehe, if it's up to the great wizard Karina-chan, this is no big deal, right?
+So I compensated for the damages. With all my might. Hehe, for a great magician like me, this is a piece of cake, right?
 
 *というわけで損害を補償したの。全力で。えへへ、大魔法使いカリーナちゃんにかかればこの程度造作もないよぉー？*
 
@@ -16,245 +16,244 @@ So I compensated the damage. I did my best. Hehehe, if it's up to the great wiza
 
 &nbsp;
 
-Yes, I did. I got on too bad, I'm sorry, okay?
+Yes. I got carried away, sorry?
 
 *はい。悪乗りしすぎた、ごめんねー？*
 
 &nbsp;
 
-Masirosan made a fuss, "I don't know what's going on! I watched him for a while, but he got tired of the noise and lay down on the ground, gasping for air.
+Mashiro was making a fuss saying, "I don't get it at all!" and was so cute that I watched for a while, but maybe she got tired of the commotion and lay down on the ground, panting.
 
 *マシロさんは「ワケわかんねえよーーー！」と騒いで可愛かったので暫く見ていたのだが、騒ぎ疲れたのかぜーはーと息を切らして地面に寝転がった。*
 
-Monsters were attracted by the commotion, but they ran away when they saw the carcass of Black Mantis. This looks like a good insect repellent.
+By the way, monsters were drawn to the commotion, but they ran away upon seeing the corpse of the Black Mantis. This seems like a good insect repellent.
 
 *尚、騒ぎにつられてモンスターが寄ってきたが、ブラックマンティスの死骸を見て逃げて行った。良い虫よけになりそうだねコレ。*
 
 &nbsp;
 
-"...... and. Tell me what you're after."
+"…So. What's your aim? Tell me."
 
 *「……そんで。何が狙いだ、言ってみろ」*
 
 &nbsp;
 
-Hmm?　Did you just say anything? You didn't say ....... Oh well.
+Huh? What did you just say? …You didn't say anything. Well, whatever.
 
 *ん？　今なんでもって言った？……言ってないな。まぁいいか。*
 
 &nbsp;
 
-Then do me a favor.
+"Then I have one request."
 
 *「じゃあひとつお願いがあるんだけど」*
 
-I said, "Damn it, damn it!　I knew it! What the hell do you want?
+"What the hell! I knew it, what's your aim!?"
 
 *「ンだよ畜生！　やっぱりそうだ、何が狙いなんだ！？」*
 
-I need a pair of Mr. Masillo's socks. ......
+"I want Mashiro's socks…"
 
 *「マシロさんの靴下が欲しいんだけど……」*
 
-Socks? I've never worn ...... socks."
+"Socks? …I've never worn something like that."
 
 *「靴下ぁ？……履いたことねぇよンなもん」*
 
-I know. I'm not wearing them, am I?"
+"Right? You haven't worn them."
 
 *「だよねぇ。履いてないよなぁ」*
 
 &nbsp;
 
-The fluffy silver wolf girl is a chemist's delight, but she has a strong field spirit, and her shoes were also sandals. Her thick body hair serves as socks, so she probably doesn't even need to wear them.
+She's a fluffy silver wolf girl that makes kemono fans rejoice, but that also means she's quite wild, and her footwear was sandals. Her thick body fur probably serves the purpose of socks, so there’s no need to wear any.
 
 *ケモナー歓喜なモフモフ銀狼娘だが、その分野性味は強いというか、靴もサンダルだった。濃い体毛がそのまま靴下の役割を果たすため、履く必要もないのだろう。*
 
 &nbsp;
 
-...... hmm?　No, wait. Let's reverse the idea.
+…Huh? No, wait. Let's reverse the idea.
 
 *……ん？　いや待て。発想を逆転させよう。*
 
 &nbsp;
 
-I wonder if the fact that it's the beastie's first sock doesn't make it more valuable in reverse?"
+"How about the value increases if it's the beastman's first socks?"
 
 *「獣人ちゃんの初めて靴下、ってことで逆に価値が上がらないかな？」*
 
-What's it worth?　I don't know what you're talking about."
+"What value!? I have no idea what you're talking about!"
 
 *「なんの価値だ！？　何の話してんだかサッパリなんだが」*
 
-Yeah, I don't really know either."
+"Yeah, I don't really get it either."
 
 *「そうだね、私もよくわかんない」*
 
 &nbsp;
 
-Whatever it is, it's the sock-loving God's fault.
+It's all the fault of the sock-loving god.
 
 *なんもかんも、靴下好きの神様が悪いんや。*
 
 &nbsp;
 
-So, what else?"
+"So, what else?"
 
 *「で、他には？」*
 
-Huh?"
+"Huh?"
 
 *「え？」*
 
-Since there's no socks, there must be something else, you demand!
+"Since you don't have socks, there must be something else you want!"
 
 *「靴下がねぇんだから、他に何かあんだろ要求がよ！」*
 
 &nbsp;
 
-They say it half-heartedly. But what is it? Like they're scared of me defeating Black Mantis?　I feel that kind of air. I hate to say it, but he's kind of cute, like a puppy.
+She said that half-annoyed. But what is it? It feels like she's scared of me after defeating the Black Mantis? I sense that kind of atmosphere. I don't mean to say it, but it's kind of cute like a puppy.
 
 *半ギレで言われる。でもなんだろう。ブラックマンティスを倒した私に怯えてるみたいな？　そんな空気を感じる。言っちゃなんだが、なんか子犬みたいで可愛い。*
 
 &nbsp;
 
-'Ummm ...... maybe shave your legs and have them made into socks?'
+"Hmm… how about shaving my foot fur and making socks out of it?"
 
 *「うーん……足の毛を剃って靴下にしてもらうとか？」*
 
-'What's that, gross!　Why are you so obsessed with socks!"
+"What the hell is that, gross!? Why are you so fixated on socks?!"
 
 *「なんだそれ、キモいな！？　なんでそんな靴下にこだわるんだよ！」*
 
-I know, I don't get it either. My boss likes socks.
+"Yeah, right? I don't get it either. My boss loves socks."
 
 *「そうだよね、私もわけわかんない。ウチの上司が靴下好きなんだよぅ」*
 
-I'm not sure if you're a courtesan or not. ...... ah, yes, I know, I don't understand how nobles think."
+"Are you in service? …Ah, yeah, I guess the thoughts of nobles are incomprehensible."
 
 *「お前、宮仕えなのか？……あー、そうだな、お貴族の考える事ってワケわかんないもんな」*
 
 &nbsp;
 
-Hmmm, is it also a palace service to serve God? ...... palace originally means temple, so it's not a mistake.
+Hmm, is serving the god also considered service? …The term "palace" originally means a temple, so it's not wrong.
 
 *うーん、神様に仕えるのも宮仕えなんだろうか？……宮って元々神殿って意味もあるし、間違いじゃないな。*
 
-Anyway, Masilo's attitude suddenly softened. I wonder if this is also thanks to God.
+Anyway, Mashiro's attitude suddenly softened. I wonder if this is thanks to the god.
 
 *ともあれ、マシロさんの態度が急に軟化した。これも神様のおかげってことなのだろうか。*
 
 &nbsp;
 
-So was the hunt for Trent at the behest of the brass or something else?"
+"So, was hunting the treant also an order from some important person?"
 
 *「そんじゃ、トレントを狩ったのもお偉いさんの指示か何かだったのか？」*
 
-What?　No, I just didn't know. I'm sorry for bothering you. Do you want me to make you a spare sword?"
+"Huh? No, I just didn't know. Sorry for causing trouble. Oh, should I make a spare sword?"
 
 *「え？　いや、フツーに知らなかっただけだって。ごめんね、迷惑かけちゃって。あ、剣の予備作ろうか？」*
 
-No, no, no, no, no, no, no, no, no, no, no, no, no, no, no!　That's enough!"
+"That's fine, that's fine! Just stop already!"
 
 *「いい、いいって！　もういいから！」*
 
 &nbsp;
 
-What a humble wolf. Cute, huh?
+What a humble wolf. So cute.
 
 *なんだ謙虚な狼さんだな。可愛いかよ。*
 
 &nbsp;
 
-I don't have a choice. I'll call on someone I know who wears socks and collect them. How about that?
+"Geez, what a pain. Then I'll ask someone I know who wears socks and collect them for you. How about that?"
 
 *「ったく、仕方ねぇな。じゃあアタシの知り合いで靴下履いてるやつに声かけて回収してやるよ。それでどうだ？」*
 
-I'll give you a new pair of socks. Can you give me the hairs on the soles of Mr. Masiello's feet, too, as long as I can pull them out without difficulty, and I want the parts that don't smell too bad.
+"Oh, I'll give you new socks. Can I also get some of the fur from the soles of Mashiro's feet, in a way that can be pulled out without too much effort, and preferably from the smelly parts?"
 
 *「あ、新品の靴下は渡すよ。マシロさんの足裏の毛も貰えるかな、無理なく抜ける範囲で、かつニオイのきつそうな部分がいいんだけど」*
 
-I don't get it. ...... is fine and dandy, but what's the use?"
+"I don't get it at all… but whatever, what are you going to use it for?"
 
 *「ワケわかんねぇな……別にいいけど、何に使うんだ？」*
 
-I'll deliver it anyway. Maybe they'll make tea."
+"For now, I'll just try to deliver it. Probably for some tea or something."
 
 *「とりあえず納品してみるよ。多分、お茶にでもするんじゃないかな」*
 
-"Wow, you creeped me out. ...... I'll give it to you, but only this time!"
+"Ugh, that gave me the creeps… I'll give it to you, but only this time!"
 
 *「うわ、ぞわっとしたわ……くれてやるけどよ、今回限りだからな！」*
 
 &nbsp;
 
-With that said, Masilo took off his sandals and brushed his feet and plucked out some of the hairs that had fallen out, as well as some hairs in the spaces between his paw pads.
+Saying that, Mashiro took off her sandals and plucked a few hairs from her feet and between her paw pads.
 
 *と言いつつ、マシロさんはサンダルを脱いで、足にブラシをかけて抜けた毛と、肉球の隙間の毛をぷちぷちと何本か抜いてくれた。*
 
 &nbsp;
 
-"Meatballs: ......!　Echidachi......"
+"Paw pads…! So lewd…"
 
 *「肉球……！　えっちだ……」*
 
-What about?　What, the meatballs?"
+"Huh? What, the paw pads?"
 
 *「は？　え、肉球が？」*
 
 &nbsp;
 
-Oops, my voice leaked out unintentionally. No, because it's a big, very well-shaped paw paw paw!　It's a rare paw paw paw, so rare that in a previous life it could have been a bear, a tiger, or a lion!
+Oops, I accidentally let that slip. I mean, they’re such nicely shaped, big paw pads!? In my previous life, they’d be considered rare, like those of a bear, tiger, or lion!
 
 *おっと、思わず声が漏れてしまった。いやだって、すごく形のいい大きな肉球だよ！？　前世ではクマかトラかライオンかというくらいのレア肉球だよ！*
 
 &nbsp;
 
-"Not only is your boss different, but you're different too. ......
+"Not just your boss, but you're weird too…"
 
 *「上司だけじゃなくて、お前も変わってんのな……」*
 
 &nbsp;
 
-Oh, I feel like I've been pulled a little bit.
+Ah, I feel like I might have been a bit put off.
 
 *あ、ちょっと引かれちゃった感。*
 
-That's absurd. Isn't it one of the basic human desires to fluff up an animal or to squeeze its paw pads?　You see, out of the three basic desires, all but the desire for sleep are, so to speak, carnal desires. This is the meat of the meatballs. In other words--
+That’s ridiculous. Wanting to pet animals or squish their paw pads is one of human's basic desires, right? You know, aside from the desire for sleep, the other two of the three basic desires are basically desires for flesh. This is the flesh of the paw pads. So—
 
 *そんなばかな。動物をモフモフしたいとか肉球をぷにぷにはむはむしたいというのは人の基本的欲求の一つではないのか？　ほら、三大欲求のうち睡眠欲以外はいわば肉欲じゃん。これは肉球の肉なんだよ。つまり――*
 
 &nbsp;
 
-No, I'm sorry. I'm kidding. You know?
+No, sorry, I’m just kidding. Really.
 
 *いやごめんうそ。冗談だってば。ね？*
 
 &nbsp;
 
-And here are some new socks. We have a few different sizes, but if we run out, we'll make up for it later. You should wear them, too, Mashiro. And the next time we meet, let me collect them, okay?"
+"Also, here are the new socks. I have several sizes prepared, but if they’re not enough, I’ll supplement later. And Mashiro, make sure to wear them. Then let me collect them next time we meet, okay?"
 
 *「あとこれ新品の靴下ね。サイズいくつか取り揃えてあるけど、足りなかったらあとで補填するよ。それとマシロさんも履いといて。そんで次会う時回収させてね？」*
 
-"...... Oh, wow. You even have a replacement? You're too serious."
+"…O-okay. You even prepared replacements. You're too serious about this."
 
 *「……お、おう。替えまで用意してんのかよ。本気すぎんだろ」*
 
-I'm not joking, I'm serious. I can't help it."
+"I'm not joking, it's for real. It can't be helped."
 
 *「冗談じゃなくてガチだからね。仕方ないね」*
 
 &nbsp;
 
-And by the way, I got the foot hairs, but I'll have Mr. Masilo keep his socks on until the next time I see him.
+I got the foot fur, but I also want Mashiro to wear socks until we meet again.
 
 *ついでに足毛はもらったけど、マシロさんにも次会う時まで靴下を履いててもらおう。*
 
-What, the hairs stand up against each other and it's disgusting?　...... Sorry, I don't know how to wear socks for beast people or something.
+Huh, the fur standing up makes it feel weird? …Sorry, I don’t know how to wear socks for beastmen.
 
 *え、毛が逆立って気持ち悪い？　……ゴメン、獣人の人向けの靴下の履き方とか知らないの私。*
 
 &nbsp;
 
 &nbsp;
-

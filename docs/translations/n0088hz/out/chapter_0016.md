@@ -1,4 +1,4 @@
-# Lumberjacks again.
+# The Woodsman Again.
 
 ## 木こり再び。
 
@@ -6,41 +6,41 @@
 
 &nbsp;
 
-I, Karina-chan. I feel like I'm having my first breakfast in this world?
+I’m Karina-chan. It feels like this is the first time I’ve had breakfast in this world, doesn’t it?
 
 *私、カリーナちゃん。なんかこの世界で初めて朝ごはん食べた気がするわ？*
 
-So here we are at the start of the 3rd day of living in another world. (Excluding tutorials)
+So, the third day of my otherworldly life starts now. (Excluding the tutorial)
 
 *というわけで異世界生活３日目スタートです。（チュートリアル除く）*
 
-...... It's only day 3. (except for the tutorials)
+...It’s still only the third day, huh. (Excluding the tutorial)
 
 *……まだ３日目なんだよなぁ。（チュートリアル除く）*
 
 &nbsp;
 
-Although the breakfast was not as good as I can say, it was practically a treat because I was very happy with the kindness of the sisters.
+Although I can’t say breakfast was delicious enough to declare it so, I was really happy with Sister’s kindness, so it was practically a feast.
 
 *朝ごはんは美味しいと言い切れるほど美味しくはなかったものの、シスターさんの優しさがとっても嬉しかったので実質御馳走でした。*
 
 &nbsp;
 
-Oh, by the way, what's your name, Sister?"
+"By the way, what’s Sister’s name?"
 
 *「そういえばシスターさんの名前ってなんです？」*
 
-Hmm?"　I'm Siesta, sir. It's a common name."
+"Hm? It’s Siesta. It’s a pretty common name."
 
 *「ん？　シエスタですが。よくある名前ですよ」*
 
 &nbsp;
 
-I see, siesta, sister. Very similar, easy to remember.
+I see, Siesta, Sister. They sound quite similar and are easy to remember.
 
 *なるほど、シエスタ、シスター。よく似てるな、覚えやすい。*
 
-To repay Mr. Siesta's kindness, let's do our best to be lumberjacks today!
+To respond to Siesta-san’s kindness, I’ll do my best as a woodsman today too!
 
 *シエスタさんの厚意に応えるためにも、今日も木こりを頑張ろう！*
 
@@ -50,37 +50,37 @@ To repay Mr. Siesta's kindness, let's do our best to be lumberjacks today!
 
 &nbsp;
 
-With such enthusiasm, I came to the Adventurers' Guild today.
+With that determination, I headed to the Adventurers' Guild today as well.
 
 *そんな意気込みを持って今日も冒険者ギルドへやってきた。*
 
 &nbsp;
 
-"Hey, Karina. I heard you tried to be a lumberjack all by yourself.
+"Hey, Karina. I heard you tried to do the woodsman work all by yourself?"
 
 *「おい、カリーナ。お前ひとりで木こりしようとしたんだって？」*
 
-Oh, Braid senior. Yes, so what?"
+"Oh, Blade-senpai. Yeah, what about it?"
 
 *「あ、ブレイド先輩。そっすよ、それがなにか？」*
 
-No, we were just thinking of doing some lumberjack work. "No, we were just thinking about becoming lumberjacks too. It's too hard to do it alone, right?"
+"Well, we were just thinking of doing some woodsman work too. Let us help you out. It must be tough alone, right?"
 
 *「いや、俺たちも丁度木こりをしようと思ってな。手伝ってやろう。一人じゃ大変だろ？」*
 
 &nbsp;
 
-Braid-senpai smiles with a toothy grin. Shildon and Sekko are also there.
+Blade-senpai grinned widely, showing his teeth. Shieldon and Sekko were also there.
 
 *ニカッと歯を見せて笑うブレイド先輩。シルドンとセッコーも居る。*
 
-...... one wrong step and it's a parasitic statement to hang on to me, but I wonder if Braid senior doesn't know that I cleared it up with ease. I guess he doesn't know.
+...If I misstep, this could sound like they’re trying to leech off me, but I guess Blade-senpai doesn’t know that I cleared it easily. He probably doesn’t know.
 
 *……一歩間違えれば私にたかる寄生目当てな発言だが、ブレイド先輩は私が楽々クリアしたことを知らないんだろうか。知らないんだろうな。*
 
 &nbsp;
 
-And since I'm not drunk today, I must simply be in a caring mode.
+Today, he’s not drunk, so he must just be in a caring mode.
 
 *今日は酔っぱらってないから単に面倒見いいモードに違いないし。*
 
@@ -88,7 +88,7 @@ And since I'm not drunk today, I must simply be in a caring mode.
 
 &nbsp;
 
-Sorry though, this request is for one person. (Only for me)
+But sorry, this request is for one person only. (For me, at least)
 
 *けど悪いな、この依頼は一人用なんだ。（私に限る）*
 
@@ -96,141 +96,141 @@ Sorry though, this request is for one person. (Only for me)
 
 &nbsp;
 
-Oh, no, senpai. I am alone--"
+"Ah, no, senpai. I’m going to do it alone—"
 
 *「あー、いやぁ先輩。私は一人で――」*
 
 &nbsp;
 
-As I was about to refuse, it occurred to me that if these three people helped me, I could carry that many logs at a time.
+As I was about to refuse, I suddenly realized that if these three helped me, I could carry a lot more logs at once.
 
 *断ろうとしてふと、この３人が手伝ってくれればその分一度に多くの丸太を運べるんじゃないかと思い至る。*
 
-So I decided to change my plans and solicit them.
+So, I decided to change my plans and invite them.
 
 *というわけで予定を変更して勧誘してみることにした。*
 
 &nbsp;
 
-If I'm 7 and the seniors are 3, that's fine!"
+"If I take seven, and you guys take three, that works for me!"
 
 *「私が７、先輩達が３なら良いっすよ！」*
 
-He said, "Hey, hey, hey, hey, hey, hey. As a senior, I'm going to teach you a lot of tricks. If you do it right, being a lumberjack can be a very lucrative job.
+"Hey, hey, at least let it be the other way around. As your senpai, I’ll teach you various tips. If you do it right, being a woodsman can be a lucrative job."
 
 *「おいおい、そこはせめて逆だろ。先輩として色々コツを教えてやるって。うまくやれば、木こりも実入りの良い仕事なんだぜ」*
 
-Yes, I earned two silver coins yesterday after that."
+"That’s true, I earned two silver coins after that yesterday."
 
 *「そっすね、昨日はあの後で銀貨２枚稼げましたし」*
 
-"............ hmm?　Wait a minute. Huh?　Did you succeed?　Solo?　And two ......2 books!"
+"........Huh? Wait a minute. What? You succeeded? Solo? And two coins... that means two logs!?"
 
 *「…………ん？　ちょっとまて。え？　成功したの？　ソロで？　しかも２枚って……２本！？」*
 
-I was like, "Yeah, I've got a log. I brought it back with logs on either side of me. Hey, receptionist."
+"Yeah. I carried the logs hugging them on both sides and brought them back. Right, receptionist-san?"
 
 *「ええ。こう、丸太を左右に抱えて持って帰ってきましたよ。ね、受付嬢さん」*
 
 &nbsp;
 
-When I spoke to her, the receptionist nodded cockily behind the counter.
+When I turned to her, the receptionist nodded vigorously from behind the counter.
 
 *私が話を振ると、カウンターの向こうでコクコクと頷く受付嬢さん。*
 
-The three are surprised.
+The three were astonished.
 
 *驚く３人。*
 
 &nbsp;
 
-You should have said, "Tell me!　That would be a huge embarrassment to us!"
+"Why didn’t you tell us? That’s so embarrassing for us!!"
 
 *「言ってくれよ！　そんなの俺ら大恥じゃん！！」*
 
-"The success or failure of a request is private information, and as a guild we can't blow the whistle on it, can we?"
+"The success or failure of requests is personal information, so the guild can’t spread that around, you know?"
 
 *「依頼の成否とかは個人情報ですし、ギルドとしては吹聴できませんからね？」*
 
-"Uh, mmm, it's private information, ....... I don't blame you for this one, Blade."
+"Ah, I see, it is personal information... I guess that can’t be helped, Blade."
 
 *「あー、うむ、個人情報だものな……。これは仕方ないなブレイド」*
 
-I'm amazed at the smug look on your face.
+"You were really smug about it, huh? That’s hilarious."
 
 *「すごいドヤ顔決めてたなー、ウケる」*
 
-"Shildon ...... seccoh ...... no, but hey ......"
+"Shieldon... Sekko... no, but still..."
 
 *「シルドン……セッコー……いや、だけどさぁ……」*
 
 &nbsp;
 
-Apparently, the seniors, after I delivered the slime nucleus, only got the information that 'there is a newcomer who accepted the woodcutter's request. At the time of delivery, I took it directly to the lumber yard, not to the Adventurers' Guild, so there were no witnesses.
+It seems that the seniors only received the information that "a newbie accepted a woodsman request" after I delivered the slime core. Since I went directly to the lumberyard instead of the Adventurers' Guild, there were no witnesses.
 
 *どうやら先輩たち、私がスライム核の納品をした後、『木こりの依頼を受理した新人が居る』という情報だけ得たらしい。納品の時は冒険者ギルドじゃなくて木材置き場へ直接運んだから、目撃者いなかったんだよなぁ。*
 
 &nbsp;
 
-I'm sure that would be a different story then. It means you don't need our help, and ...... Hey, seriously, how did you do that?　Can I ask?"
+"But still, that changes things. It means we don’t need to help you... So, how did you do it? Can I ask?"
 
 *「しっかし、そうなると、確かに話が変わってくるな。俺達の手助けが要らないってことだし……なぁ、マジでどうやったの？　聞いていい？」*
 
-Simply put, a little bit of magic."
+"Simply put, I used magic to do it quickly."
 
 *「簡単に言えば、魔法でちょいちょいっと」*
 
-"Oh, that. Magic is awesome!"
+"Ah, that thing. Magic is amazing, huh?"
 
 *「あぁ、アレかぁ。魔法ってすげぇんだなー」*
 
 &nbsp;
 
-That makes sense to me. Blade senior is too pure, isn't he?
+So they’re convinced just like that. Isn’t Blade-senpai too pure?
 
 *それで納得しちゃうんだ。ブレイド先輩純粋すぎじゃね？*
 
 &nbsp;
 
-So, I can easily handle it on my own, but if the seniors help me, it's more like 7:3.
+"So, since I can easily handle it alone, if you guys are going to help, I thought it’d be around 70:30."
 
 *「というわけで、私一人でも簡単にこなせるんで、先輩達が手伝ってくれるなら７：３くらいかなって」*
 
-"No. Do you want us?"
+"No, do we really need to?"
 
 *「いや、俺ら要る？」*
 
-"Now you can say, 'Hey guys!　You got the log? I'm going to need it."
+"I can say, 'Everyone! Did you carry the logs!?' so I’ll say we do."
 
 *「これで『みんな！　丸太は持ったか！？』って言えるんで要るってことにしときます」*
 
-What's that? Well, that's okay, I've cleared my schedule to help you today."
+"What’s that? Well, fine, I had cleared my schedule to help you today anyway."
 
 *「なにそれ。まぁいいよ、今日はお前を手伝うつもりで予定空けてたしな」*
 
 &nbsp;
 
-Seriously. Your senpai is so nice.
+Seriously? Senpai is such a nice person.
 
 *マジかよ。先輩めっちゃいい人だな。*
 
 &nbsp;
 
-"You're lying. The lady at Shunrai-tei is just demanding payment.
+"Don’t lie. You’re just being pressured for payment by the innkeeper at Shunrai-tei."
 
 *「嘘つけ。シュンライ亭のおかみさんに支払い催促されてるだけだろ」*
 
-When she gets angry, she's scary. Her tail goes wagging."
+"She gets scary when she’s angry. Her tail goes all poofy."
 
 *「姐さん怒ると怖いからなぁ。尻尾がぶわーってなって」*
 
-Don't say it. It's not tight, is it?
+"Don’t say that! It’s embarrassing!"
 
 *「い、言うなよ。締まらねぇだろ！？」*
 
 &nbsp;
 
-Ah, Mr. Harumikazuchi. Well then, it can't be helped.
+Ah, it’s Harumikazuchi-san. Well, that can’t be helped.
 
 *あぁ、ハルミカヅチさんかぁ。じゃあ仕方ないね。*
 
@@ -240,117 +240,117 @@ Ah, Mr. Harumikazuchi. Well then, it can't be helped.
 
 &nbsp;
 
-The seniors ended up helping me with my woodcutting.
+In the end, the seniors decided to help me with my woodsman work.
 
 *先輩たちは結局私の木こりを手伝ってくれることになった。*
 
-The split is 7:3 as I suggested.
+The share was as I proposed, 70:30.
 
 *取り分は私の提案通り７：３である。*
 
 &nbsp;
 
-He tries to head for the forest as soon as possible.
+We promptly headed towards the forest.
 
 *早速森に向かおうとする。*
 
 &nbsp;
 
-Hey, don't you use a cart?"
+"Hey, aren’t we using a cart?"
 
 *「あれ、荷車は使わねぇのか？」*
 
-I don't have a cart, remember?"
+"I don’t have a cart, you know?"
 
 *「荷車なんて持ってませんよ？」*
 
-"You're an idiot, you can just rent it..." I said, "Well, it's an F. You can't rent it without a referral. We can rent it.
+"Are you stupid? Just borrow one—oh, right. Since we’re F rank, we can’t borrow one without an introduction. We can borrow one, though."
 
 *「バカか、借りりゃいい――って、そうか。Ｆだし誰の紹介も無しじゃ借りれねぇか。俺らなら借りれるぜ」*
 
 &nbsp;
 
-Oh, thank goodness for that. Two bottles, one held in each arm, that's eight bottles for four people, right?
+Oh, that’s helpful. If we each carry one log in both arms, that’s two, so four people can carry eight logs.
 
 *おお、それはありがたい。両腕に１本ずつ抱えて２本、じゃ４人で８本だもんな。*
 
 &nbsp;
 
-If we had a cart, we could carry six of them!"
+"If we have a cart, we can carry six logs!"
 
 *「荷車がありゃ６本は運べるからな！」*
 
-Don't you want to do it?"
+"Don’t you think we don’t need it?"
 
 *「やっぱいらなくないですか？」*
 
-Yeah, right?"
+"Eh, is that so?"
 
 *「え、そうか？」*
 
-No, wait. If each of us can carry six bottles, we'd better have some. ......"
+"Wait a minute. If each of us can carry six logs, then it would be better to have one..."
 
 *「いやまて。一人それぞれ６本運べるならあった方が良いな……」*
 
-"Nn!　Wait a minute, how many trees are you going to cut down!"
+"Huh!? Wait a minute, how many are you planning to cut!?"
 
 *「んん！？　ちょっとまて、何本伐る気だ！？」*
 
 &nbsp;
 
-Well, well, just to be logged?
+Well, as many as I can cut?
 
 *そりゃまぁ、伐れるだけ？*
 
 &nbsp;
 
-It costs one large copper coin a day to rent one cart. It's not impossible to rent a cart from ......, but will you get your money back?"
+"It costs one large copper coin to borrow one cart for a day... It’s not impossible to borrow, but can we make a profit?"
 
 *「荷車１つ借りるのに１日大銅貨１枚だ。……借りれなくはないが、元取れんのか？」*
 
-I can afford it!"
+"We can easily do it!"
 
 *「余裕っすよ！」*
 
-I thought to myself, "Really? Magic is amazing."
+"Seriously? Magic is amazing."
 
 *「マジかよ。すげーな魔法って」*
 
-No, no, no, Blade. You're right, we can't just swallow that whole and believe it."
+"No, no, Blade. You can’t just swallow that whole and believe it."
 
 *「いやいやブレイド。さすがにそれを丸呑みで信じるわけにはいかないぞ」*
 
-Or rather, isn't Braid's trust in little Carina too thick?"　What's wrong?"
+"Speaking of which, isn’t Blade’s trust in Karina-chan too high? Did something happen?"
 
 *「というか、ブレイドのカリーナちゃんへの信頼が厚すぎない？　何かあったの？」*
 
-Oh, yeah, I met Karina at the Shunlai Pavilion for a bit!　I met Karina at the Shunlai Pavilion for a bit!　I'll never forget that night on stage. ......"
+"Ah! I had a little chat with Karina at Shunrai-tei! I can’t forget that night’s stage..."
 
 *「ああ！　カリーナとはシュンライ亭で少しな！　あの夜の舞台は忘れられねぇぜ……」*
 
 &nbsp;
 
-Hey, you've been watching. I myself only know what I heard from Mr. Harumikazuchi about the totally embarrassing act ......!
+Hey, you were watching? I only know what Harumikazuchi-san told me, and it’s super embarrassing!
 
 *おい見てたのか。私本人はハルミカヅチさんから聞いた分しか知らないすげぇ恥ずかしい行為を……！*
 
 &nbsp;
 
-This is a woman you can trust!　I guarantee it!"
+"This girl is trustworthy! I guarantee it!"
 
 *「こいつは信用できる女だ！　俺が保証する！」*
 
-I'm sure you're thinking, "...... Hey, really, what did you do?　Did you become Blade's mistress?"
+"......Hey, really, what did you do? Did you become Blade’s lover or something?"
 
 *「……ねぇホント、なにしたの？　ブレイドの愛人にでもなった？」*
 
-Mr. Sekou. That will never happen, but it's a secret."
+"Sekko-san. That’s definitely not the case, but it’s a secret."
 
 *「セッコーさん。それは絶対ないっすけど秘密っす」*
 
 &nbsp;
 
-It's an embarrassing past that I'd like to remember, too, but I don't. ......
+It’s an embarrassing past that I want to remember but also don’t want to remember...!
 
 *私も思い出したいような思い出したくないような恥ずかしい過去だからな……！*
 
@@ -358,101 +358,101 @@ It's an embarrassing past that I'd like to remember, too, but I don't. ......
 
 &nbsp;
 
-With the introduction of Braid senior, we rented four carts and we came to the forest.
+With Blade-senpai’s introduction, we borrowed four carts, and we arrived at the forest.
 
 *ブレイド先輩の紹介で荷車を４台借りて、私たちは森までやってきた。*
 
 &nbsp;
 
-Okay, I'll cut it off.
+"Okay, I’ll cut the trees."
 
 *「じゃ、私が切りますんで」*
 
-I'll take care of the perimeter!　I'll take care of the perimeter!"
+"Alright! I’ll keep watch around us!"
 
 *「おう！　周囲の警戒は任せろ！」*
 
-I'm coming for you!
+"I’m going to fall!"
 
 *「たーおれーるぞー」*
 
-How fast?
+"That’s too fast!?"
 
 *「って早ぇよ！？」*
 
 &nbsp;
 
-Because it's just a moment with spatial magic.
+Because it’s instant with spatial magic.
 
 *だって空間魔法で一瞬なんだもん。*
 
-Then, just before it falls to the ground, the space is fixed. Stop it completely with a snug fit, and then lower it gently.
+And just before the tree hits the ground, I fixed the space. I stopped it completely and gently lowered it.
 
 *そして地面に倒れる寸前に空間を固定。ピタッと完全に止めて、静かに降ろす。*
 
 &nbsp;
 
-"didn't even see the moment of activation: ......!"
+"I couldn’t even see the moment you activated it...!"
 
 *「は、発動の瞬間も見えなかった……！」*
 
-A little application of wind magic, Mr. Sekko."
+"It’s just a slight application of wind magic, Sekko-san."
 
 *「風魔法のちょっとした応用ですよ、セッコーさん」*
 
-"Is this what wind magic is like ......?"
+"Is wind magic like this...?"
 
 *「風魔法ってこんなだっけ……？」*
 
-You know what?　Karina is awesome, right?"
+"See? Karina is amazing, right?"
 
 *「な？　カリーナすげーだろ」*
 
-What's Braid bragging about...... No, I'm just glad the cargo bed doesn't look like it's going to waste."
+"Why is Blade so proud? Well, at least it seems like the cart won’t go to waste."
 
 *「ブレイドは何で自慢げなんだ……いや、荷台が無駄にならなそうで何よりかな」*
 
 &nbsp;
 
-Well, it's 6 trees per person, and we'll cut down 23 more quickly!
+Well, since each person can carry six logs, I’ll chop down 23 more quickly.
 
 *まぁ一人６本だし、あと２３本サクサク伐っちゃいますねー。*
 
 &nbsp;
 
-Then at least leave the branching to me..."
+"Then at least let me handle the branch cutting—"
 
 *「ならせめて枝打ちは任せ――」*
 
-Oh. I forgot. Yes!
+"Oh. I forgot. Here I go!"
 
 *「あ。忘れてました。えいっ！」*
 
-For a moment?　That's outrageous, Karina-chan!　Well, I'll be the one to load it..."
+"That was instant!? Karina-chan, that’s incredible! So, for loading—"
 
 *「一瞬かよぉ！？　とんでもねぇなカリーナちゃん！　じゃあ積み込みこそは――」*
 
-I'll lighten it with magic. I'll use magic to lighten the load."
+"Oh. I’ll lighten it with magic."
 
 *「あ。魔法で軽くしときますねー」*
 
-Lie-o-n ......"
+"No way..."
 
 *「嘘ぉん……」*
 
 &nbsp;
 
-Not only logging, but branching is also an instantaneous process with spatial magic!
+Not only cutting, but also branch cutting is done in an instant with spatial magic!
 
 *伐るだけじゃなく枝打ちも空間魔法で一瞬！*
 
 &nbsp;
 
-The contents are hollowed out and left in the storage space to save a burly amount of weight!
+By hollowing out the insides and placing them in the storage space, it becomes significantly lighter!
 
 *中身をくりぬいて収納空間に置いておくことでごっそり軽量化！*
 
-(I'll put it back in so you won't find out later!)
+(I’ll put it back later so it doesn’t get found out!)
 
 *（あとでバレないように戻しとくからね！）*
 
@@ -460,7 +460,7 @@ The contents are hollowed out and left in the storage space to save a burly amou
 
 &nbsp;
 
-Hahahahaha, this is the essence of spatial magic!
+Hahaha, this is the essence of spatial magic!
 
 *フハハハハ、これぞ空間魔法の神髄よ！*
 
@@ -468,29 +468,29 @@ Hahahahaha, this is the essence of spatial magic!
 
 &nbsp;
 
-'Holy crap, surely one Karina-chan is enough ...... do you need us?'
+"Wow, it’s true that Karina-chan can handle it alone... Do we even need to be here?"
 
 *「こりゃ、確かにカリーナちゃん一人で十分だわ……俺ら要る？」*
 
-It's more than procedural.
+"Procedurally, yes, we do."
 
 *「手続き上よりは要ります」*
 
-What the hell is that?
+"What’s that supposed to mean?"
 
 *「なんだそりゃ」*
 
-"Carry the load!　You got the logs?
+"Help with carrying! Did you carry the logs!?"
 
 *「荷運びよろ！　丸太は持ったか！？」*
 
-Hey, one more for the road!　What the hell?"
+"Hey, another person!? That’s too fast!?"
 
 *「おいもう１人分！？　はえーよ！？」*
 
 &nbsp;
 
-And since we were able to make two round trips, we managed to deliver 48 logs in one day.
+Moreover, since we could make two trips, we successfully delivered 48 logs in one day.
 
 *しかもこれ、２往復できたので１日で私たちは丸太４８本を納品することに成功した。*
 
@@ -501,4 +501,3 @@ And since we were able to make two round trips, we managed to deliver 48 logs in
 &nbsp;
 
 &nbsp;
-

@@ -1,130 +1,130 @@
-# Yes, it suits Dear! (Isiah's point of view)
+# Yes, it suits you, Dia-sama! (Aisia's perspective)
 
 ## うん、ディア様にお似合いです！（アイシア視点）
 
 &nbsp;
 
-I'm going to continue the dungeon crawl. I'll probably be back at night, but if I don't come back, you can go ahead and have dinner or something.
+"Well then, I'm off to continue the dungeon exploration. I should be back by tonight, but if I'm not back, feel free to have dinner without me!"
 
 *「じゃぁ、私ダンジョン攻略の続き行ってくるよー。多分夜には帰るけど、帰ってこなかったら晩御飯とか食べちゃってていいからねー」*
 
-"Yes, go ahead, sister."
+"Yes, have a good time, big sister!"
 
 *「はい、行ってらっしゃいお姉さん」*
 
-"Good day to you, my dear!"
+"Safe travels, my master!"
 
 *「行ってらっしゃいませあるじ様！」*
 
 &nbsp;
 
-We saw Aruji-sama off to the dungeon alone. As I waved my hand and entered the hole in space, Dia-sama called out to me.
+We waved goodbye to our master as he headed towards the dungeon. Just as he entered the spatial hole, Dia-sama called out to me.
 
 *一人ダンジョンに向かうあるじ様を見送る私達。手を振って空間の穴に入っていったところで、ディア様が私に向かって声をかけてきました。*
 
 &nbsp;
 
-Ms. Aithea. I remember that your sister used to sleep in your room, didn't she?　And before that, you slept with your sister."
+"Aisia-san. By the way, your big sister was sleeping in your room, right? And before that, she was sleeping with your little sister too."
 
 *「アイシアさん。そういえばお姉さん、アイシアさんの部屋で寝てましたよね？　その前も、妹さんと一緒に寝てたり」*
 
-Yes, sir. You let me sleep with you."
+"Yes. She did sleep with us."
 
 *「はい。一緒に寝かせていただきましたね」*
 
-"...... Well, how well do you and your sister know each other?　Your sister said she was your girlfriend or something."
+"Um... how close are you with your big sister? Your little sister mentioned something about her being a lover."
 
 *「……その、お姉さんとは、ど、どのくらいの仲なのでしょうか？　妹さんは恋人とか言っていましたが」*
 
-How much, you say?"
+"What do you mean by 'how close'?"
 
 *「どのくらいのこと、と言いますと？」*
 
-Well, you know. Um, ......."
+"Um, well..."
 
 *「その。えーっと……」*
 
 &nbsp;
 
-I was struck by Dear, who was reddening the tips of her ears and fidgeting and asking me questions without making eye contact. I knew he was asking about my favor.
+Noticing Dia-sama's ears turning red and her shy demeanor as she avoided eye contact, I realized she was asking about our master's affection.
 
 *何やら耳の先を赤くし、目を合わせずにもじもじと質問してくるディア様に、私はピンと来ました。これはご寵愛のことを聞かれてるな、と。*
 
-Well, well, well... Dear seems to be interested in such things, doesn't she? I understand, don't I?　You are trying to hide your love for the boss, but you are not hiding it at all!
+Oh my, it seems Dia-sama is curious about such things. Hehe, I understand! Dia-sama is trying to hide her feelings for our master, but it's not hidden at all!
 
 *おやおや、ディア様ってばそういうの気になるようですね。うふふふ、分かりますよ？　あるじ様への恋心、ディア様は隠そうとしていますが、全く隠れてませんからね！*
 
 &nbsp;
 
-Dear Dear. ......The Lord is a man hater."
+"Dia-sama... our master dislikes men."
 
 *「ディア様。……あるじ様は男嫌いです」*
 
-......I knew it?"
+"Is that so?"
 
 *「……やっぱり、そうですか？」*
 
-I think Dia-sama has a pulse. It's clear when the man-hating Aruji-sama keeps him by his side, isn't it?"
+"However, I believe you have a chance. The fact that our master keeps you close is a clear indication of that."
 
 *「ですが、ディア様は脈があると思います。男嫌いのあるじ様がそばに置いている時点でそれは明確ですよ？」*
 
-I don't know if that's true.　Oh, but, you know, your sister is dating your sister."
+"Really? But, um, your big sister is dating your little sister..."
 
 *「そうでしょうか？　あ、でもその、お姉さんは妹さんと付き合ってると」*
 
-I'm fine. We are women, so there is no problem, and Sati is only half joking. You are practically free.
+"That's fine. Since they're both girls, it doesn't count, and Sati was only joking. Our master is essentially free."
 
 *「大丈夫です。女同士なのでノーカンですし、サティも冗談半分で言ってます。あるじ様は実質フリーです」*
 
 &nbsp;
 
-Well, it sounds half-serious, but it is what it is.
+Well, part of that seems to be serious, but that's that.
 
 *まぁ半分は本気っぽいけれど、それはそれです。*
 
 &nbsp;
 
-Dear Dia-sama. I thought I should be prettier to win your favor, ......!"
+"Dia-sama, to receive our master's affection, you should become cuter...!"
 
 *「ディア様。あるじ様のご寵愛を賜るには、もっと可愛くなるべきかと……！」*
 
-"Your Grace, you know."
+"Affection? What do you mean by that?"
 
 *「ご、ご寵愛って、その」*
 
-'You're clearly more spoiled when you're dressed as a girl!　That's what I mean!　If you become more of a girl, then Aruji-sama will touch you!"
+"When you're dressed as a girl, you're clearly being pampered, right!? That means what I'm saying is true! If you become more feminine, our master will surely make a move!"
 
 *「女の子の格好してる時の方が、明確に甘やかされてますよね！？　つまりそういう事です！　もっと女の子になれば、あるじ様も手を出してくださいますよ！」*
 
-'Oh, I see?　Oh, no, that's not what I want, though, is it?"
+"I-I see? But, um, it's not like I'm wishing for that or anything..."
 
 *「な、なるほど？　あ、いや、そういうのを望んでいるわけではないんです、けどね？」*
 
 &nbsp;
 
-Oh my god, I'm so frustrated!
+Oh, how frustrating!
 
 *ああもうじれったいなぁ！*
 
 &nbsp;
 
-If we keep up with the elves' seclusion, the rest of the race will die of longevity!　Are you sure you're okay with that, Master Dia!
+"If you keep indulging in the elf's shyness, other races will die of old age! Is that okay with you, Dia-sama?!"
 
 *「エルフの奥手っぷりに付き合ってたら、他の種族は寿命で死んじゃいますよ！　それでもいいんですかディア様！？」*
 
-No, it's not good.
+"N-No, it's not okay!"
 
 *「よ、よくないですっ」*
 
-'Well then, let's get the girls all dressed up for Aruji-sama!　There are places here in Carcassa that sell accessories and stuff!"
+"Then let's dress you up as a girl for our master's sake! There are places in Calcutta that sell accessories!"
 
 *「じゃああるじ様のために、女の子のおしゃれをしましょう！　このカルカッサにもアクセサリーを売ってるところとかはありますからね！」*
 
-I'm not very familiar with ....... Can you help me?"
+"Um, I'm not very knowledgeable about such things. Will you help me?"
 
 *「……ボク、あまりそういうの詳しくないんですが。手伝ってくれますか？」*
 
-Yes, with pleasure!"
+"Yes, I'd be happy to!!"
 
 *「はい、喜んで！！」*
 
@@ -132,123 +132,123 @@ Yes, with pleasure!"
 
 &nbsp;
 
-Thus, we began a strategy of "dress up prettily, seduce them, and get them to lay their hands on us while the Master is in the dungeon.
+Thus, we began our strategy of "dressing up cutely and enticing our master while he's in the dungeon."
 
 *かくして私たちは『あるじ様がダンジョンに行っている間に可愛らしく着飾り誘惑し、手を出してもらおう』作戦を開始したのです。*
 
-Well, I was taken care of the other day, so I'm going to accompany Mr. Dear in a graceful mood. Heh heh.
+Well, since I had already made a move the other day, I was in a graceful mood to accompany Dia-sama. Hehe.
 
 *まぁ私は先日お手付きしていただいたので優雅な気分でディア様にお付き合いするわけですが。えへへ。*
 
 &nbsp;
 
-Incidentally, there are two types of accessories in Carcassa: the flamboyant ones that are gifts for prostitutes, and the less flashy and cute ones for female adventurers. This time, I went to the latter for Lady Dia.
+By the way, the accessories in Calcutta are either extravagant gifts for courtesans or cute items for female adventurers that aren't too flashy. This time, we headed to the latter type of store for Dia-sama.
 
 *ちなみに、カルカッサにあるアクセサリーは、娼婦への贈り物となる華美なモノか、女性冒険者のためのあまり派手ではなく可愛いものの二極です。今回はディア様のために後者の方のお店へと向かいました。*
 
 &nbsp;
 
-'Hmmm. Which one is your sister's favorite, ...... How about this one, Isiah?" Oh, it's so cute!　I think Dia-sama has good taste, after all. The first thing you need to do is to make sure that you have a good idea of what you want to do. I think it would be a good idea to wrap it around your body and say, "I am your present.
+"Hmm. I wonder which one would suit your big sister... Aisia-san, how about this one?" "Oh, it's cute! I think Dia-sama has great taste. Our master likes simple things like that. Would it be okay to wrap it around your body and say, 'This is my present'?"
 
 *「うーん。どれがお姉さんの好みかな……アイシアさん、これなんてどうでしょうか？」「お、可愛いですね！　やはりディア様はセンスがあると思いますよ。あるじ様、そういうシンプルなのとか好きですし。それを体に巻いて『ボクがプレゼントです』って言うのもアリでしょうか」*
 
-I see. So there's a fashionable way to wrap ribbons around your body."
+"I see. So there's a fashion of wrapping ribbons around the body."
 
 *「なるほど。身体にリボンを巻くというオシャレもあるんですね」*
 
 &nbsp;
 
-Oh, you don't understand that this is a ribbon on a naked body. Oh well.
+Ah, she doesn't realize that this means being naked with a ribbon. Well, that's fine.
 
 *あ、これ裸にリボンって分かってないな。まぁいいです。*
 
 &nbsp;
 
-(Such ignorance and innocence also suits you.) Yes, it suits you, Deere-sama!
+"Yes, it definitely suits you, Dia-sama!"
 
 *「（そういった無知で無垢なとこもまた）うん、ディア様にお似合いです！」*
 
-I see." "Really?　Hmm, then, well, I guess I'll buy one. Let me know if there is any manner of winding or meaning to it."
+"Is that so? Hmm, then, um, should I buy it?"
 
 *「そうですか？　んー、なら、その、買ってみますかね。巻き方に作法や意味があるなら教えてください」*
 
-Of course. I'll give you the gist of it on the way home so that you don't get caught by the boss. And this time, let me buy it!"
+"Of course. I'll explain the basics on the way back so our master won't find out. And this time, let me buy it!"
 
 *「もちろんです。あるじ様にバレないよう帰り道で概要は教えておきますね。そして今回は私に買わせてください！」*
 
 &nbsp;
 
-and I will buy a ribbon from Master Deere.
+So, I purchased Dia-sama's ribbon.
 
 *と、私はディア様のリボンを購入します。*
 
-What?　Why am I paying for this?　Hmph. It's so that Mr. Dear won't complain!　If I had bought it with my own money, he might complain later!
+Huh? Why am I paying for it? Hehe. It's to prevent Dia-sama from complaining! If she bought it with her own money, she might complain later!
 
 *え？　なんで私がお金払ってるかって？　フフフ。ディア様に文句を言わせないためですよ！　自分のお金で買ってたら後で文句言われるかもしれないですからね！*
 
 &nbsp;
 
-And, in case it works out, it will be a fact that "Dear Sir is a present from me to you"!　Let's see, what's the price: ......?　...... per meter?
+And if it goes well, it will create the fact that "Dia-sama is giving a present from me to our master"! Um, the price is... huh? Per meter...?
 
 *そして、万一うまく行った場合は『ディア様が私からあるじ様へのプレゼント』という事実が生まれますし！　えっとお値段は……うん？　１メートル当たり……？*
 
-I understand. This is a difficult one.
+I see. This is a tricky one.
 
 *わかった。これは難しいやつです。*
 
 &nbsp;
 
-I see you're selling by measure. Can I get ...... right?"
+"Oh, it's sold by weight. Can you buy it properly?"
 
 *「あ、計り売りなんですね。……ちゃんと買えます？」*
 
-Don't underestimate me!
+"Don't underestimate me!"
 
 *「み、みくびらないでください！」*
 
 &nbsp;
 
-As I was about to show my wallet to the clerk to have him take the fee as usual, I remembered that I had been studying "Sanzu".
+As I usually tried to show my wallet to the clerk to get the right amount, I suddenly remembered that I had been studying "arithmetic."
 
 *と、いつも通りお財布を店員さんに見せて料金分取ってもらおうとして、そういえば『さんすう』の勉強をしていたことを思い出しました。*
 
-Now is the time for "Sansu" as taught by Aruji-sama!　Let's see, let's see.
+Now is the time for the "arithmetic" that our master taught me! Um, um...
 
 *今こそあるじ様に教わった『さんすう』の出番！　えーっと、えーっと。*
 
 &nbsp;
 
-Yes, I received one silver coin and four large bronze coins.
+"Yes, I would like one silver coin and four large copper coins."
 
 *「はい、銀貨１枚と大銅貨４枚頂きました」*
 
 &nbsp;
 
-I was able to buy it!　I was able to shop properly, Aruji-sama!
+I bought it! I managed to shop properly, master!!
 
 *買えた！　ちゃんとお買い物できましたよあるじ様ー！！*
 
 &nbsp;
 
-How do you like it, Mr. Dear? I can shop too."
+"How about it, Dia-sama? I can shop too!"
 
 *「どうですかディア様。私だってお買い物できるんですよ」*
 
-Yes, well done."
+"That's right, you did well."
 
 *「そうですね、よくできましたね」*
 
-Don't treat me like a child, "Ehehe ......!　I'm an adult lady!
+"Hehe... but please don't treat me like a child! I'm an adult lady, you know!?"
 
 *「えへへ……って子ども扱いしないでくださいよっ！　私はオトナのレディですよ！？」*
 
-I'm sorry. I'm sorry, I just thought of something else to buy.
+"I'm sorry, it just slipped out. Oh, shall we buy something else too?"
 
 *「すみませんつい。あ、他にも買ってみましょうか」*
 
 &nbsp;
 
-Totally. Oops, I'll have to explain how to use the ribbon on the way home.
+Goodness. Oh, I need to explain how to use the ribbon on the way back.
 
 *まったく。おっと、帰り道にでもリボンの使い方を説明しないとですね。*
 
@@ -258,37 +258,37 @@ Totally. Oops, I'll have to explain how to use the ribbon on the way home.
 
 &nbsp;
 
-It is proper etiquette to decorate the naked figure with ribbons, as if to say, "I'm not wearing a stitch of clothing.
+"—So, the correct way is to intentionally adorn oneself with a ribbon while being completely unclothed."
 
 *「――という感じで、一糸まとわぬ姿をあえてリボンで飾り付けるようにするのが正しい作法でして」*
 
-What?　Is that not underwear then?
+"Wh-what!? That means it's underwear!"
 
 *「ッ！？　そ、それじゃあ下着じゃないですかっ」*
 
-That. Is that where you get shy?"
+"Oh? Is that where you're embarrassed?"
 
 *「あれ。恥ずかしがるところそこなんですか？」*
 
-Please give it back, I'll carry it myself."
+"Give it back! I'll hold it myself!"
 
 *「返してくださいっ、ボクが自分で持ちますからっ」*
 
-I'm a slave, but I didn't make Dia-sama carry my luggage. I'll carry your baggage, Dia-sama.
+"Eh, but I can't let a slave like me make Dia-sama carry things. It's underwear after all!"
 
 *「えー、でも奴隷の私がディア様に荷物持ちさせたなんてそんなそんな。ね、ディア様、荷物は私が持ちますよっ」*
 
-I'm fine, I can carry this much. I can't let you carry it, it's my underwear.
+"It's fine, I can carry something like this myself. I can't let you carry it, Aisia-san… it is underwear, after all!"
 
 *「大丈夫です、これくらいボクが持ちます。アイシアさんに持たせるわけにもいきません、下着ですしっ」*
 
 &nbsp;
 
-Oh, it's so cute. I see why the master would keep it by his side.
+Oh my, how cute. I see why our master keeps her close.
 
 *やーん、可愛い。なるほどこれはあるじ様がそばに置くわけですよ。*
 
-But I'm wearing girls' underwear by an old man, so it's a little late for that, isn't it?
+But our master has made her wear girls' underwear, so it feels a bit late to be concerned about that.
 
 *でもあるじ様に女の子の下着履かされてますし今更感ありますよね。*
 
@@ -296,73 +296,73 @@ But I'm wearing girls' underwear by an old man, so it's a little late for that, 
 
 &nbsp;
 
-Then, when I returned home after shopping, I found my grandfather collapsed in the living room area.
+And when we returned from shopping, we found our master collapsed in the living area.
 
 *そして、買い物を終えて帰ってくると、リビングエリアであるじ様が倒れていました。*
 
-More precisely, he is lying limp on the couch.
+To be precise, he was lying on the couch, looking utterly exhausted.
 
 *正確には長椅子に横たわりぐったりしている状態です。*
 
 &nbsp;
 
-"The Oracle!"
+"Master!?"
 
 *「あるじ様！？」*
 
-Sister!　Are you okay!"
+"Big sister! Are you okay!?"
 
 *「お姉さん！　大丈夫ですか！？」*
 
-"Uh......oh, welcome back, you two. Yeah, it's okay. ...... I'm going to go back to the dungeon after I get some rest. ...... ugh."
+"Ugh... ah, welcome back, you two. Yeah, I'm fine... I just need to rest a bit before heading back to the dungeon... ugh."
 
 *「うう……ああ、おかえり二人とも。うん、だ、大丈夫だよ……少し休んだらまたダンジョンいってくるし……うぅ」*
 
 &nbsp;
 
-And, Aruji-sama, who clearly does not seem to be okay with it.
+Clearly, our master did not look fine at all.
 
 *と、明らかに大丈夫ではなさそうなあるじ様。*
 
-The place we accompanied her to, deep in the dungeon, there is something that could make such a strong Anji-sama become like this. ......　The dungeon is a place to be afraid of!
+The fact that something in the depths of the dungeon could leave even our strong master in such a state...! How terrifying, the dungeon!
 
 *私たちが同行した先、ダンジョンの奥には、あんなに強いあるじ様がこんなになるほどの何かがある、という事……！　恐るべし、ダンジョン！*
 
 &nbsp;
 
-I am sorry to be so presumptuous, but I think it would be better if you took the rest of the day off. I suggest you take the rest of the day off. ......"
+"Excuse me, master. You should really rest for today..."
 
 *「僭越ながら、あるじ様。今日はもうお休みなられた方が……」*
 
-No, well, I'm just a little brain-damaged, so I'm fine. ......
+"No, um, I just had a little brain overload, so I'm fine..."
 
 *「いや、その、ちょっと脳をやられただけだから平気……」*
 
-Isn't it hard work?　The contents of your head will kill you if you spill it!　Please rest well!　Dear, I'll carry you to your room, please help me!"
+"That's serious! If your brain spills out, you'll die! Please rest properly! Dia-sama, let's carry our master to his room, help me!"
 
 *「大変じゃないですか！　頭の中身は、こぼれたら死ぬんですからね！？　しっかり休んでください！　ディア様、あるじ様をお部屋まで運びます、手伝ってください！」*
 
-Oh, yes. Yes. Can you stand up, ...... sister?"
+"Ah, um, okay. Yes... Big sister, can you stand?"
 
 *「あ、うん。はい。……お姉さん、立てますか？」*
 
-Woo. ......."
+"Ugh..."
 
 *「うー……」*
 
 &nbsp;
 
-Then, Aruji-sama and Dia-sama supported me on both shoulders and we went to the futon in Aruji-sama's room.
+And our master was supported by both me and Dia-sama, making our way to his bed.
 
 *そしてあるじ様は私とディア様に両肩を支えられ、あるじ様のお部屋のお布団へ。*
 
-kunkun......The smell of Aruji-sama is very thick in this room. It's a boiling.
+Sniff sniff... the scent of our master is strong in this room. It's intoxicating.
 
 *くんくん……あるじ様のニオイが濃厚ですねこの部屋。滾る。*
 
 &nbsp;
 
-No, no, no. Aruji-sama, please get well soon. ......
+No, no, no. Master, please get better soon...!
 
 *って、ちがうちがう。あるじ様、早く良くなってくださいね……！*
 
@@ -370,17 +370,14 @@ No, no, no. Aruji-sama, please get well soon. ......
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(For now, I will update once every two days starting in April. (For now, I will update once every two days starting in April, alternating with Kakuyom.
+(For now, I will update every other day starting in April. I plan to alternate posting with Kakuyomu.
 
 *（とりあえず４月からは２日に１更新ペースとします。カクヨムと交互に投下してく感じで。*
 
-I guess Kakuyom will be like a day and a half earlier...)
+Kakuyomu might be about a day and a half ahead...)
 
 *カクヨムの方が１日半早い感じになるかな…）*
-

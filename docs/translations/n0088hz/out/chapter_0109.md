@@ -1,92 +1,92 @@
-# The more you expect, the higher the hurdle.
+# The higher the expectations, the higher the hurdles
 
 ## 期待される分、ハードルが上がる
 
 &nbsp;
 
-Look, Master, the instrument is ready!"
+"Look, my lord, the instrument is ready!"
 
 *「見てくださいあるじ様、楽器が出来ました！」*
 
-I said, "Oooh, you got it. ...... is some kind of bee moving on its own!"
+"Oh, it's done. ...Wait, the mallets are moving on their own!?"
 
 *「おー、できたか。……って、なんかバチが勝手に動いてるぅ！？」*
 
 &nbsp;
 
-When Aisia called me over to look at the tetsuzin, I saw a bee floating in the air and striking the tetsuzin with a ping-pong pang-pong sound.
+When I looked at the xylophone called by Aisia, the mallets were floating in the air, striking the xylophone with a ping-pong sound.
 
 *アイシアに呼ばれて鉄琴を見ると、バチが空中に浮いてピンポンパンポンと鉄琴を叩いていた。*
 
-No, this is not on its own. It's ringing just as Isiah was tapping just before!
+No, this isn't on its own. It's playing exactly as Aisia had just struck it!
 
 *いやこれ、勝手にじゃない。直前にアイシアが叩いてた通りに鳴らしてる！*
 
 &nbsp;
 
-'Well, no way, you can play automatically. Bardic skills?"
+"Could it be that it can perform automatically? The bard skill?"
 
 *「ま、まさか、自動演奏ができるのか。吟遊詩人スキルって」*
 
-Huh?"　Yes. If you can't do this, singing alone won't do the job."
+"Yes? If you can't do this, singing alone won't be enough for work."
 
 *「え？　はい。これができないと、歌だけじゃ仕事になりませんよ」*
 
 &nbsp;
 
-Wow, what are the laws of physics? ...... was a world with magic. I don't know if that's true.
+Whaaat, what about the laws of physics in this world... oh right, it's a world with magic. I guess that doesn't apply.
 
 *えぇー、物理法則どうなってんのこれぇ……って魔法のある世界だったわ。んなもんアテにならんか。*
 
 &nbsp;
 
-...... like, don't you play or something?"
+"…So, you don't do things like singing while playing?"
 
 *「……こう、弾き語りとかはしないの？」*
 
-You play?　Oh. That's automatic playing. I just put my hand on it because it looks good, but in reality, I just put my hand on it because it moves on its own with my skill, and there is no need to put my hand on it. It's not impossible to play along, but.... Wouldn't the song be better if I concentrated on singing?"
+"Singing while playing? Ah, that's automatic performance. The hands are just there for show, and they actually move on their own with the skill, so there's no need to have them there. I mean, I can do singing while playing, but wouldn't it be better to focus on the singing for a better performance?"
 
 *「弾き語り？　ああ。あれは自動演奏ですよ。手は見栄えがいいから添えてるだけで、実際にはスキルで勝手に動くのに添えてるだけで添える必要もないですし。そりゃ弾き語りもできなくはないですけど。歌に集中した方がいい歌になりませんか？」*
 
 &nbsp;
 
-Bards in this world, unless the scene is very unexpected, it seems that instruments are played in advance. ...... music box, it may not be in demand in this world, even if you make it!
+It seems that bards in this world typically perform their instruments in advance unless it's a very spontaneous situation. ...An organ might not have any demand in this world!
 
 *この世界の吟遊詩人、よほど突発的な場面でなければ、楽器は事前に演奏しておくものらしい。……オルゴール、この世界じゃ作っても需要ないかもしれんな！*
 
 &nbsp;
 
-Ah. Wait, wait, wait, wait.
+Ah. Wait a minute?
 
 *あ。まてよ？*
 
-You know, Isiah once said, "I can't sing while playing the flute, wonder!" I see that ....... I wonder if the flute can play automatically as well. Perhaps it can be played automatically while floating in the air, just like this zither.
+Speaking of which, Aisia once said, "It's strange that I can't sing while playing the flute!" ...I see. The flute probably can also perform automatically in the same way. Surely, it would float in the air and perform automatically just like this xylophone.
 
 *そういえば以前、アイシアが「笛を吹きつつ歌えない、不思議！」とか言ってたけど……なるほど。さては笛も同様に自動演奏できるのだろう。きっと恐らく、この鉄琴と同じように空中に浮いての自動演奏で。*
 
 &nbsp;
 
-Surely that makes it a little strange that you can't sing in combination with an automatic flute, on the other hand, doesn't it? I know it's a little late for me to say this, but Isiah's attitude and statement at that time made sense to me.
+If that's the case, it does seem a bit strange that you can't sing along with an automatically performing flute. It's a bit late, but I finally understand Aisia's attitude and remarks back then.
 
 *確かにそうなると自動演奏の笛と組み合わせて歌えないのは、逆に少し不思議に思えてくるよなぁ。今更だけど、あの時のアイシアの態度と発言が納得いったわ。*
 
 &nbsp;
 
-I was like, "Hm?　So, when you have the zither playing, can't both hands do anything?"
+"Hm? So, when you're making the xylophone play, you can't do anything with both hands?"
 
 *「ん？　となると、これ鉄琴を演奏させてるときに両手は何もできなかったり？」*
 
-I can do things that don't involve my bardic skills, but I'm not very good at ...... playing a musical instrument. I can't play an instrument."
+"Well, I can do things that don't involve the bard skill, but... I can't do it very skillfully. Playing an instrument is impossible."
 
 *「いちおう、吟遊詩人スキルが関わらないことならできなくもないですけど……あんまり器用にはできないですね。楽器の演奏は無理です」*
 
 &nbsp;
 
-It seems that Isiah's dexterity is bard skill compliant. In other words, both arms' worth of bardic skills are "in use". So a one-person band is not possible.
+It seems that Aisia's dexterity is based on the bard skill. In other words, both arms' bard skills are 'in use.' With that, a one-person band is impossible.
 
 *アイシアの器用さは吟遊詩人スキル準拠らしい。要は、両腕分の吟遊詩人スキルは『使用中』になるってことだ。こうなると一人楽団は無理か。*
 
-......Then there is still a way to make use of the music box, I guess?
+...If that's the case, then there might still be a chance for the organ, right?
 
 *……それならまだオルゴールに活路はある、かな？*
 
@@ -94,37 +94,37 @@ It seems that Isiah's dexterity is bard skill compliant. In other words, both ar
 
 &nbsp;
 
-I had a lot of fun!　Thanks, I learned a lot!　But if you want to take it back, you'll have to pay for it. Just pay me for the ingots you used, five silver coins."
+"Wow, that was quite fun! Thanks, I learned a lot! But if you're taking that home, I do need to charge you a fee. Just the cost of the ingots used, so five silver coins."
 
 *「いやぁ、中々楽しかったわ！　あんがとよ、勉強になった！　あ、でもそれ持って帰るなら一応代金は貰うぞ。使った分のインゴット代だけでいい、銀貨５枚だ」*
 
-I'll pay you that much. I'll pay you that much. Thank you.
+"I'll pay that much. Yeah. Thank you too."
 
 *「それくらいは払うよ。うん。こっちこそありがとうね」*
 
 &nbsp;
 
-Unexpectedly, Aysia got a musical instrument. Yay, Isiah, you're making progress with your playing.
+Unexpectedly, Aisia got her hands on an instrument. Good job, Aisia, your performances will improve.
 
 *期せずしてアイシアが楽器を手に入れた。やったねアイシア、演奏が捗るよ。*
 
 &nbsp;
 
-So this harp is a gift for Isiah.
+"So this xylophone is a gift for Aisia."
 
 *「というわけでこの鉄琴はアイシアにプレゼントだ」*
 
-I'm glad you like it!　Thank you, I will add some color to your life!"
+"Is it really okay? Thank you, I'll add some color to my life!"
 
 *「いいんですか！　ありがとうございます、生活に彩を添えさせていただきます！」*
 
-Oh, no, you don't have to be so uptight.
+"Oh, no need to be that enthusiastic."
 
 *「あ、いや、それほど張り切らなくていいからね」*
 
 &nbsp;
 
-I'm more the type of person who is more comfortable with quiet. Yeah, I'm the type of person who is more at ease in quiet.
+Actually, I prefer a quieter atmosphere. Yeah.
 
 *むしろ私は静かな方が落ち着くタイプなんだ。うん。*
 
@@ -132,95 +132,94 @@ I'm more the type of person who is more comfortable with quiet. Yeah, I'm the ty
 
 &nbsp;
 
-"Oh, well, don't you need a knife or something?"
+"Oh, by the way, do you need a kitchen knife or anything?"
 
 *「っと、そういや包丁とかはいらねぇのか？」*
 
-I'd like to have a knife. I'd like to have one, but are they expensive?"
+"A kitchen knife, huh? I want one, but is it expensive?"
 
 *「包丁かぁ。ちょっとほしいけど、お高かったりはする？」*
 
-Not so much for iron. My father's iron made by him can easily cost 50 silver coins, but I'm still just an apprentice, and with mine it's only about 10 silver coins.
+"If it's iron, not that much. If it's made by my dad, even iron ones are usually fifty silver coins, but I'm still just a novice, so mine would be about ten silver coins."
 
 *「鉄ならそれほどでも。オヤジが作ったのだと鉄でも銀貨５０枚はザラだけど、俺ぁまだ見習いに毛が生えたようなもんだし、俺のなら銀貨１０枚くらいだぞ」*
 
 &nbsp;
 
-This dwarf is only allowed to sell knives.
+It seems this dwarf is only allowed to sell kitchen knives.
 
 *尚このドワーフ君、刃物は包丁しか売るのを許可されていないらしい。*
 
 &nbsp;
 
-If you want a knife, how about a knife?"
+"If you want a kitchen knife, how about a knife?"
 
 *「包丁がいいなら、ナイフは？」*
 
-Oh no, no, no. A knife is a weapon, right?　My dad still forbids me to use weapons. Of course he has to, because there are a lot of situations where people's lives are on the line.
+"Oh no, no. A knife can be a weapon, right? Weapons are still prohibited by my dad. He says there are many situations where you have to entrust your life, so it's only natural."
 
 *「ああダメダメ。ナイフは武器になるだろ？　武器はまだオヤジに禁止されてんだ。命を預けるような場面も多いからってんだから、当然だけどよ」*
 
 &nbsp;
 
-I see. If it's a knife, it's not something you'd use in an emergency situation very often.
+I see, a kitchen knife isn't something you'd use in an emergency.
 
 *なるほど、包丁ならあまり緊急事態で使うようなもんじゃないからね。*
 
-I heard that it is necessary to say so when selling.
+It seems necessary to clearly state that when selling.
 
 *売るときもその辺しっかりいう必要があるらしい。*
 
 &nbsp;
 
-A knife made by the Dwarves' Workshop can cut through a knife like that with ease.
+"If it's a kitchen knife made in a dwarf workshop, it can easily cut through regular knives."
 
 *「ドワーフ工房製の包丁なら、そこらのナイフくらい余裕で斬れますけどね」*
 
-That's it. My father won't give me permission to use his workshop's products because they are used in such a way. ......
+"That's it. The products from our workshop are used that way, so my dad won't give permission for that..."
 
 *「それだよ。ウチの工房の品ってそういう使い方されっから、尚更オヤジから許可出ねぇんだよなぁ……」*
 
 &nbsp;
 
-The higher the expectations, the higher the bar. As one would expect from a dwarven workshop, quality is demanded. The dwarf on the receiving end sighs.
+The higher the expectations, the higher the hurdles. It seems that a quality worthy of being called a dwarf workshop is required. The dwarf, who is on the receiving end of those expectations, let out a sigh.
 
 *期待される分、ハードルが上がるってことか。さすがドワーフ工房って言えるに相応しい品質が求められる。求められる側のドワーフ君は、はぁー、とため息をついた。*
 
 &nbsp;
 
-By the way, what kind of performance do you expect from a Dwarf knife?
+"By the way, what kind of performance is expected from a dwarf's knife?"
 
 *「ちなみにドワーフのナイフはどんな性能が求められんの？」*
 
-I'll just use any sword I can get my hands on."
+"Well, if it's the same material, it should cut through regular swords cleanly."
 
 *「そら、同じ素材ならそこらの剣をスッパリって感じよ」*
 
-I don't know if I'll ever have to make one of those. ...... That's a lot of work, Mr. Dwarf."
+"I have to make something like that... It sounds tough, huh, dwarf?"
 
 *「そんなの作らなきゃならないのか……大変だねぇドワーフ君」*
 
-Yeah, it's tough. It's hard work. I'm glad you understand ......, so I'd appreciate it if you'd buy me a knife for my training."
+"Yeah. It's tough. I'm glad you understand... So, it would be great if you could buy a kitchen knife for the sake of my training."
 
 *「ああ。大変なのさ。分かってくれて嬉しいぜ……というわけだから、修行のためにも包丁を一本買ってってくれるとありがてぇな」*
 
 &nbsp;
 
-He said, "If I sell enough, I can make enough to cover the cost. Oh, well, he's a good businessman. Well, why don't you buy it?
+If it sells, I can make that much more. What a savvy businessman. Well, I guess I'll buy one.
 
 *売れたらその分作れるから、と。あら商売上手。まぁ買ったろうじゃん。*
 
-We are not afraid to invest in the growth of hardworking young people.
+Investing in the growth of a hardworking young person isn't something I mind.
 
 *努力する若者の成長のために投資するのは、やぶさかじゃないのさ。*
 
 &nbsp;
 
-...... However, I shall not be using the funds as a shonin. As a merchant, I'm totally comfortable with it and I'm a new young man!
+...However, I will not use the funds as a merchant. After all, I'm still a complete novice in that regard!
 
 *……ただしショーニンとしての資金の方は使わないものとする。商人としては私も全然余裕で新人の若者だからね！*
 
 &nbsp;
 
 &nbsp;
-

@@ -1,4 +1,4 @@
-# I'll follow your lead, Dia-kun-chan!
+# If it's what Dear-kun-chan says, I'll obey!
 
 ## ディア君ちゃんさんの言うことなら従いますわ！
 
@@ -6,201 +6,201 @@
 
 &nbsp;
 
-So, Mr. Kirigon, this is Misha. Please be good friends with her."
+"Well then, Kirigon-san, this is Misha. Please get along with her."
 
 *「というわけでキリゴンさん、こちらがミーシャです。仲良くしてあげてくださいね」*
 
-'Ususu!　If it's what Dia-kun-chan says, I'll obey her! ......Dia-kun-chan said, so I have no choice but to be friendly with you, thank you, Cat-Beast!
+"Ussu! If it's what Dear-kun-chan says, I'll obey! ...Since Dear-kun-chan said so, I guess I have no choice but to get along with you, so be grateful, cat beastman!"
 
 *『うす！　ディア君ちゃんさんの言うことなら従いますわ！……ディア君ちゃんさんが言うから仕方なく仲良くしてやらぁ、感謝せぇよ猫獣人！』*
 
-Well, I guess that means you'll be my friend, right?　I'm very happy to meet you!　As expected of Dia, she is very different from Kalina!
+"Um, so does this mean you'll get along with me? Nice to meet you! Wow, as expected of Dear-chan, you're completely different from Karina!"
 
 *「えーっと、これ仲良くしてくれるってことでいいのかニャ？　よろしくにゃ！　いやぁさすがディアちゃんにゃ、カリーナとは大違い！」*
 
 &nbsp;
 
-Misha shook his hand in the form of a claw held out by Kirigon.
+Misha shook hands with Kirigon, gripping the claw he offered.
 
 *ミーシャはキリゴンが差し出した爪を握る形で握手した。*
 
-Also, what do you mean you're so different from me? I told you to get along with Kirigon, too. I'm going to stroke your ass.
+What do you mean I'm completely different? I told you to get along with Kirigon too, didn't I? I'll pat your butt, you know.
 
 *あと私と大違いってどういうことだよ。私だってキリゴンと仲良くしろって言ったじゃん。尻撫でんぞコラ。*
 
 &nbsp;
 
-So, what's the situation?
+"So, what's the situation?"
 
 *「で、どーゆー状況にゃ？」*
 
-Ah, yes. It seems like the merchant is the mastermind behind the threat to the village head?　So I was wondering what I should do. What do you think we should do, Misha?
+"Ah, yeah. It seems like there's a mastermind behind the merchant threatening the village chief? So I'm wondering what to do about it. What do you think we should do, Misha?"
 
 *「あー、うん。なんか商人が里長脅してた黒幕っぽい？　というわけだから、どうしようかなって。どうしたらいいともうミーシャ？」*
 
-'First of all, I think you should stop patting my ass, Nya. ...... indeed, not in public."
+"I think you should first stop patting my butt. ...It's a bit much in front of others."
 
 *「まずは私の尻を撫でるのをやめたらいいと思うニャ。……さすがに人前ではちょっと」*
 
 &nbsp;
 
-That's true, but I refuse. And I continue to stroke Misha's butt.
+That's true, but I refuse. I continue to pat Misha's butt.
 
 *それもそうだね、だが断る。とミーシャの尻を撫で続ける私。*
 
 &nbsp;
 
-Why don't you go to ...... and kill all those merchants, nya?"
+"...How about we just kill that merchant?"
 
 *「……その商人を皆殺しにでもしてきたらどうニャ？」*
 
-Misha, do you think I'm a murderer or something?"
+"Misha, do you think I'm some kind of murderer?"
 
 *「ミーシャ、私の事を殺人鬼か何かだと思ってらっしゃる？」*
 
-If we want to protect our village, we have to stop these merchants from talking, right?　"If you want to protect your village, you need to silence those merchants.　Or do we sell out the entire demon tribe to the merchants?"
+"Well, if we're going to protect the village, we need to silence those merchants, right? Silencing means that kind of thing, right? Or should we sell all the demon tribe to the merchants?"
 
 *「だって、里を守るならその商人どもの口を封じる必要があるにゃん？　口封じっつったら、そういうことにゃ？　それとも鬼族を全員商人に売りつけるかにゃ？」*
 
-I see, that's certainly what you mean when you talk about keeping your mouth shut, ...... though there's a God-knows-what course for all of us."
+"I see, that does make sense when you put it that way... Although there's also the option of making them all disappear."
 
 *「なるほど、確かに口封じといえばそういうことになるか……全員神隠しコースもあるけど」*
 
 &nbsp;
 
-...... hmm?　But wait?
+...Huh? But wait a minute?
 
 *……ん？　でもまてよ？*
 
 &nbsp;
 
-"Ah," he said, "we don't have any obligation to protect the demon village. Thinking about it, we had no obligation to protect the village of the demon tribe.
+"Oh. Now that I think about it, we don't actually have any obligation to protect the demon tribe's village."
 
 *「あ。よく考えたら私達、別に鬼族の里を守る義理はなかったわ」*
 
-What?　Huh?　That's right?"
+"Eh? Huh? Is that so?"
 
 *「えっ？　あれ？　そうなのにゃん？」*
 
-I know. Because our purpose is dragons, right?"
+"That's right. After all, our goal is the dragon, right?"
 
 *「そうなんだよ。だって私達の目的ってドラゴンじゃん？」*
 
 &nbsp;
 
-At first it was about the dragons taking sacrifices and they wanted to do something about it. So, the dragon did something about it.
+At first, it was about wanting to do something because the dragon was taking sacrifices. And now, the dragon has been dealt with.
 
 *最初はドラゴンが生贄を取るからどうにかしたい、っていう話だった。んで、ドラゴンはどうにかなったわけで。*
 
 &nbsp;
 
-If we were dealing with dragons, we wouldn't have anything to do with humans, would we?"
+"If it's a dragon, that's one thing, but we have no obligation to get involved with humans, right?"
 
 *「ドラゴン相手ならともかく、人間相手は私らが手ぇ出す義理一切ないじゃん？」*
 
-"Oh, I see what you mean!"
+"Oh, now that you mention it, that's true!"
 
 *「おー、言われて見りゃそうにゃね！」*
 
-I'm sure you've been here and you're not going to do that. You came all the way here and that's not ......!"
+"J-just wait a minute, Karina! Isn't that a bit much after coming this far...!?"
 
 *「ちょ、ちょっとまってくださいカリーナさん。ここまで来てそれはないのでは……！？」*
 
 &nbsp;
 
-Yohki interrupts fearfully and calls out to me.
+Youki-chan timidly interrupts and speaks up.
 
 *ヨウキちゃんが恐る恐ると割り込んで声をかけてくる。*
 
 &nbsp;
 
-"Miko princess, please help us ......!"
+"Princess Miko, please help us...!"
 
 *「巫女姫様、どうか我々をお助けください……！」*
 
-You said, "...... Eh, no.  The first thing you need to do is to make sure that you have a good understanding of what you're doing and how to do it.
+"Well, no. Now that you mention it, what you said is correct. If it's a dragon, I might lend a hand, but from here on out, it will be a matter between those merchants and the demon tribe... Besides, if it's against human merchants, can't we handle it however we want? It should be easier than dealing with a dragon, right?"
 
 *「……え、いや。言われてみればお姉さんの言う通りですね。ドラゴン相手なら何かしら手を貸しても良いですが、ここから先はその商人と鬼族の皆さんとの話になるわけで……そもそも人間の商人相手なら、どうとでもなるのでは？　ドラゴン相手にするより楽でしょう？」*
 
 &nbsp;
 
-And Deere tilted his head cockily.
+Then, Dear-kun tilted her head in confusion.
 
 *と、ディア君がこてりと首を傾げた。*
 
-The ogre tribe seemed to have realized that compared to the irrationality of dragons, human merchants were still a partner they could deal with.
+It seems the members of the demon tribe also realized that compared to the unreasonable dragon, human merchants are still manageable opponents.
 
 *鬼族の面々も、ドラゴンという理不尽と比べたら、人間の商人なんてまだ対応できる相手だなと気付いたようだ。*
 
 &nbsp;
 
-'Yes, no, but we are dealing with imperial merchants, remember?　If they find out about our village, they will send imperial soldiers to hunt us all down and make us slaves. ......"
+"N-no, but we're dealing with imperial merchants, right? If our village gets discovered, we'll have soldiers from the empire sent in to hunt us all down and turn us into slaves..."
 
 *「い、いや、しかし帝国の商人が相手だぞ？　我々の里がバレてしまったら、帝国の兵士を送り込まれて全員狩られて奴隷にされるしかない……」*
 
-If we are all going to be enslaved, it would be more constructive if we all abandon our villages and run away. Then let us all run away together."
+"If we're all going to be turned into slaves, it would be more constructive to abandon the village and escape together. So let's all escape together."
 
 *「全員奴隷にされるくらいなら、全員で里を捨てて逃げる方が建設的ですね。では全員で逃げましょう」*
 
-"We can't just abandon our ...... village."
+"...We can't abandon the village."
 
 *「……里を捨てるわけには」*
 
-Huh?"　But if we all become slaves, the village will be destroyed just the same, right?　It would be much better for all of us to run away so that people are safe, wouldn't it?　Shouldn't we escape as soon as possible before we lose any more people from our village?"
+"Huh? But if we're all going to become slaves, the village will be destroyed anyway, right? Rather, it would be overwhelmingly better to escape together while people are still safe, right? Shouldn't we escape as soon as possible before we lose any more villagers?"
 
 *「え？　でも全員奴隷になるなら里が滅ぶのは同じですよね？　むしろ人が無事な分、全員で逃げる方が圧倒的にマシですよね？　これ以上里の人間を失う前に、一刻も早く逃げるべきでは？」*
 
 &nbsp;
 
-Deere-kun, who bashes away with a good argument.
+Dear-kun cuts through with a valid point.
 
 *正論でバッサリと切り捨てるディア君。*
 
-The village head is speechless.
+The village chief is left speechless.
 
 *里長は言葉を失っている。*
 
 &nbsp;
 
-You're right, Dia-chan!　The first thing to do is to let go of the incompetent village head who gave in so easily to the merchants!　Apologize to everyone!
+"Dear-chan is right! Then, let's start by releasing the incompetent village chief who easily surrendered to the merchants! You should apologize to everyone!"
 
 *「ディアちゃんの言う通りにゃあ！　んじゃ、まずは商人相手にアッサリ屈した無能な里長を放免するところからだにゃ！　みんなに謝るがいいにゃ！」*
 
-What are you, a cat-bastard?　I admit I was wrong. I admit I was wrong, but you don't get to do whatever you want!
+"Eh, uh, wait, what are you, cat beastman!? I-I admit that I was wrong. I admit it, but you have no right to do as you please!"
 
 *「え、あ、と、というかお前はなんなんだ猫獣人！？　わ、儂が悪かったのは認める。認めるが、お前に好き勝手される筋合いはないぞ！？」*
 
-You're a pain in the ass!　Ora!　Get up! ......Your head is so high!　Bow your head!
+"Shut up! Get up! ...You're still too high-headed! Bow your head!"
 
 *「うっせぇにゃ！　オラ！　立てや！……やっぱ頭が高ぇにゃ！　頭下げろ！」*
 
 &nbsp;
 
-Misha kicks the village head. Misha is doing whatever he wants to do.
+Misha kicks the village chief repeatedly. Over here, we're doing as we please.
 
 *げしげしと里長を蹴るミーシャ。こっちはこっちでやりたい放題である。*
 
-By the way, this village. By the way, this village has been secretly surrounded by soldier-like people since a while ago. Should I tell them?
+By the way, this village. It seems to be surrounded by soldiers secretly, but what should I do? Should I say something?
 
 *ところでこの里。さっきからこっそり兵士っぽいのに包囲されつつあるんだけど、どうしようかなぁ。言うべきかなぁ。*
 
 &nbsp;
 
-Okay, then the new village head will be this Tenshiki, replacing my brother--"
+"Alright, then the new village chief will be this Tenshiki in place of my brother—"
 
 *「よし、それでは新しい里長は兄貴に代わり、このテンシキが――」*
 
-'Why don't you pick one of those who tried to stand up to the dragon as your new village chief?　It was you, you, and you."
+"How about choosing the new village chief from among those who tried to confront the dragon? You, you, and you, right?"
 
 *「新しい里長はドラゴンに立ち向かおうとした人の中から選んだらいいんじゃないですか？　あなたと、あなたと、それとあなたでしたね」*
 
-This Tenshiki guy was hiding in the back.
+"This Tenshiki guy was hiding in the back, so he won't do."
 
 *『このテンシキってやつは奥の方で隠れてたからダメじゃけぇ』*
 
 &nbsp;
 
-Hmmm, everyone seems to be busy deciding on a new village head, so I guess I'll just keep my mouth shut for a bit longer.
+Hmm, everyone seems busy deciding on a new village chief, so maybe I should stay quiet a bit longer?
 
 *うーん、みんな新しい村長を決めるのに忙しそうだし、もうちょっと黙っとこうかな？*
 
@@ -214,7 +214,7 @@ Hmmm, everyone seems to be busy deciding on a new village head, so I guess I'll 
 
 &nbsp;
 
-If you get hit once, you can go for self-defense. ...... ffff.
+If I get hit once, I can claim self-defense... Hehe.
 
 *一発殴られたら正当防衛でいけるからな……フフフ。*
 
@@ -222,25 +222,22 @@ If you get hit once, you can go for self-defense. ...... ffff.
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(Notice below)
+(Announcement below)
 
 *（以下お知らせ）*
 
-Incidentally, the second volume of the book version will be released next month, and like the first volume, I think the percentage of additions and new writings is over 80%.
+By the way, the second volume of the book will be released next month, but like the first volume, I think the rate of additions and new writing will exceed 80%.
 
 *ちなみに来月には書籍版２巻が出るわけだけど、１巻と同じく加筆＋書下ろし率は８割超えてると思うよ。*
 
-I feel like I should be told that I have a reputation for writing down so much.
+I feel like it's okay to say that I'm known for writing a lot of new content.
 
 *めっちゃ書き下ろすことに定評があるとか言われても良い気がする。*
 
 &nbsp;
 
 &nbsp;
-

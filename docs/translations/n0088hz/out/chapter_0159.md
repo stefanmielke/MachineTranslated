@@ -1,118 +1,118 @@
-# Deere, you are such a guilty bitch. ......
+# Dear-kun is such a sinful woman...
 
 ## ディア君ってば罪な女だわ……
 
 &nbsp;
 
-Whew, that cleared things up a bit."
+"Ah, I feel a bit refreshed."
 
 *「ふー、少しスッキリした」*
 
-I didn't think they'd really shoot up the inventory. ......
+"Y-you really shot through the entire stock...?"
 
 *「ま、まさか本当に在庫を撃ち尽くすとは……」*
 
 &nbsp;
 
-I shot all the bullets in my inventory with two guns. And it was a high speed continuous fire.
+I shot through the stock with dual pistols. And at high speed.
 
 *二丁拳銃で在庫の弾を撃ち尽くしてやった。しかも高速連射だ。*
 
-Manual machine gun that fires 6 rounds x 2 guns in 1 second.
+A manual machine gun that fired 6 shots from each of the 2 guns in just one second.
 
 *６発×２丁を１秒で撃ち尽くす手動マシンガン。*
 
-The gun didn't hold up so I had maintenance done along the way. Free of charge, of course.
+Since the guns couldn't handle it, I had to get maintenance done midway. Of course, for free.
 
 *銃の方が持たなかったので途中メンテナンスもしてもらった。もちろん無料で。*
 
 &nbsp;
 
-It was a good test run, and I learned the limitations of the gun!
+I understood the limits of the guns, and it was a good test fire!
 
 *銃の限界も分かったし、いい試射だったな！*
 
 &nbsp;
 
-I'm home."
+"I'm back!"
 
 *「ただいまー」*
 
-"Welcome home, my Lord."
+"Welcome back, my lord."
 
 *「おかえりなさい、あるじ様」*
 
-Oh, thank you for your help, sister."
+"Oh, thank you for your hard work, sister."
 
 *「あ、お疲れ様ですお姉さん」*
 
 &nbsp;
 
-Aisia and Dia look tired.
+Aishia and Dear-kun look somewhat tired.
 
 *なにやら疲れた表情のアイシアとディア君。*
 
-I've made you wait too long to try and shoot.
+I must have kept them waiting too long with all that test firing.
 
 *試し撃ちしすぎて待たせちゃったな。*
 
 &nbsp;
 
-What's wrong? You look really tired."
+"So, what's up? You both look really tired."
 
 *「で、どうしたの。なんかすごい疲れてるけど？」*
 
-I was allowed to watch the village while your ...... sister was doing a trial shoot."
+"While the sister was test firing, I took a look around the village..."
 
 *「……お姉さんが試し撃ちしてる間、里を見させてもらったんですが」*
 
-"Dear Sir, I'm irresistible. ......"
+"Dear-sama was quite popular..."
 
 *「ディア様モテモテでして……」*
 
 &nbsp;
 
-I see. Well, Deere, you're cute.
+I see. Well, it's understandable since Dear-kun is cute.
 
 *なるほど。まぁディア君可愛いから仕方ないな。*
 
-If he comes at me, I'll kick his ass.
+If they make a move, I'll knock them out.
 
 *手ぇ出して来たらブッとばすけど。*
 
 &nbsp;
 
-"He offered me mithril ore hair ornaments, earth spider silk fabrics, and other things and said, 'Have a drink with me.' ......
+"They offered me mithril hair accessories and earth spider silk textiles, saying 'Would you like to drink with me?'..."
 
 *「ミスリル鉱石の髪飾りや、アーススパイダーシルクの織物とかを差し出してきて『俺と酒を飲まないか』って……」*
 
-It was a very serious courtship," he said. They were all quite elaborate gems."
+"It seemed like a serious proposal. Each item was quite a finely crafted piece."
 
 *「かなり本気っぽい求婚でしたよ。いずれもかなり手の込んだ逸品でした」*
 
 &nbsp;
 
-In Dwarfish terms, it is common to propose by presenting your best work of art that you have created.
+For dwarves, it's common to propose by offering their best works.
 
 *ドワーフ的には自分の作った渾身の作品を差し出してプロポーズするのが一般的。*
 
-Dear you are such a guilty woman. ...... I'm a man's daughter.
+Dear-kun is such a sinful woman... even though she's a boy.
 
 *ディア君ってば罪な女だわ……男の娘だけど。*
 
 &nbsp;
 
-You didn't take it or anything at ......, did you?"
+"...So, you didn't accept, right?"
 
 *「……で、受けたりしてないよね？」*
 
-'What does your sister think I am!　I said no!"
+"What do you think I am, sister!? I turned them down!!"
 
 *「お姉さんは僕を何だと思ってるんですか！？　断りましたよ！！」*
 
 &nbsp;
 
-I think she's a very pretty elf boy girl. Yeah, I think she's a very pretty elf boy girl.
+I think she's a very cute elven boy. Yes.
 
 *とっても可愛いエルフの男の娘だと思ってるよ。うん。*
 
@@ -120,41 +120,41 @@ I think she's a very pretty elf boy girl. Yeah, I think she's a very pretty elf 
 
 &nbsp;
 
-I think we should take Arthur with us while we're in this village. With a dragon with you, the bad bugs won't be attracted to him."
+"...While we're in this village, it might be better to bring Arthur-kun along. With a dragon, no bad bugs would dare approach."
 
 *「……この村にいる間、アーサー君連れてた方がいいかもね。ドラゴンが一緒ならさすがに悪い虫も寄ってこないでしょ」*
 
-Is it you?　I don't mind.
+'You mean me? I'm fine with that.'
 
 *『自分っすか？　別にいいっすけど』*
 
-Excuse me, please."
+"Sorry, please."
 
 *「すみません、お願いします」*
 
 &nbsp;
 
-It must have been indeed bearable to have the bearded men send autumn waves to him. Dia-kun nodded honestly.
+It must have been tough for Dear-kun to receive those advances from bearded men. She nodded obediently.
 
 *髭面の男たちに秋波を送られるのはさすがに堪えたのだろう。ディア君は素直にうなずいた。*
 
 &nbsp;
 
-It might be a good idea to keep the conversation open on the women's end."
+"It might also be good for a woman to start a conversation."
 
 *「女性の方から話を広げておくのもいいかもしれませんね」*
 
-"Well, a well-wisher?　I don't know about you, but I'm wondering if the Dwarven woman is going to try to get to you this time."
+"Like a neighborhood gossip? That seems effective, though I don't really understand. Wouldn't Dear-kun end up being targeted by dwarf women instead?"
 
 *「井戸端会議的な？　それは効果的っぽい気がする、良く分からんけど今度はドワーフの女からディア君が狙われたりしない？」*
 
-"In the eyes of a female dwarf, she's 'a child without a beard,' so she'll be fine."
+"From a female dwarf's perspective, I'm just a 'child without a beard,' so it's fine."
 
 *「女ドワーフから見れば『髭も生えてない子供』ですから大丈夫ですよ」*
 
 &nbsp;
 
-I see. I decided to head to the hangout of the dwarf women with Isiah to see if we could get some socks while we were at it.
+I see. I thought I might also procure some socks, so I decided to head towards Aishia and the gathering of dwarf women.
 
 *なるほど。ついでに靴下でも調達できないかな、と私はアイシアとドワーフ女たちのたまり場に向かうことにした。*
 
@@ -164,47 +164,47 @@ I see. I decided to head to the hangout of the dwarf women with Isiah to see if 
 
 &nbsp;
 
-A women's hangout. It was a cookhouse.
+A gathering of women. It was the cooking area.
 
 *女性のたまり場。そこは炊事場だった。*
 
-In a dwarf kitchen the size of a child from a human perspective, dwarf women were chattering and cooking dinner.
+In a child-sized dwarf kitchen, dwarf women were bustling about preparing dinner.
 
 *人間から見たら子供サイズのドワーフキッチンで、ドワーフの女性たちがわちゃわちゃと夕ご飯を作っていた。*
 
-At first glance, it looks like an elementary school cooking class!
+At first glance, it looked just like a cooking class in elementary school!
 
 *一見するとまるで小学校の調理実習である！*
 
 &nbsp;
 
-Nnnn, it's so loli loli ......!　But if you look closely, you can see how she uses a knife!
+"Wow, so cute...! But if you look closely, their knife skills are amazing!"
 
 *「んん、すごいロリロリしい……！　でもよく見ると包丁使いやべー！」*
 
 &nbsp;
 
-It's a moment, a moment, like slicing into strips!　It's not a slicer, it's a knife!
+Chopping vegetables in an instant! It's not a slicer, it's a knife!?
 
 *千切りとか一瞬だよ一瞬！　スライサーじゃない、包丁だよ！？*
 
-I mean, what's with that decoration cutter, he's a ...... skilled cook who's making something like Tanabata strips while chatting!
+And what about those decorative cuts? They're making something like Tanabata strips while chatting... they're skilled cooks!
 
 *ってかなにあの飾り切り、雑談しながら七夕の短冊みたいなの作ってる……熟練の料理人だぁ！*
 
 &nbsp;
 
-They are dwarves. Compared to humans, they are all very good with their hands.
+"Well, they're dwarves. Compared to humans, everyone has nimble hands."
 
 *「ドワーフですからね。人間に比べたらみんな手先は器用ですよ」*
 
-I don't think I could imitate that without using spatial magic. ...... Wow!"
+"I don't think I could replicate that without using spatial magic... wow, that's incredible."
 
 *「空間魔法使わなきゃ真似できそうにないなぁ……うわすげー」*
 
 &nbsp;
 
-The skin of the potato has a geometric pattern ...... Oh, and I peeled it even more normally. You were just playing with your hands to pass the time.
+The potato peels are in geometric patterns... oh, and they peeled them normally too. Was it just a playful pastime?
 
 *芋の皮が幾何学模様になってる……あ、しかもさらに普通に剥いた。ただの暇つぶしの手遊びだったのかよ。*
 
@@ -212,39 +212,38 @@ The skin of the potato has a geometric pattern ...... Oh, and I peeled it even m
 
 &nbsp;
 
-Incidentally, the village's rice is made here in bulk.
+By the way, it seems that the village's meals are prepared here collectively.
 
 *ちなみに、村のご飯はここでまとめて作られているんだとか。*
 
-These may be factors that contribute to the decision that the village is one home.
+This might also be a factor in considering the village as one big family.
 
 *こういうのも、村がひとつの家という判断になる要因かもしれない。*
 
 &nbsp;
 
-Huh?　Isiah. I haven't seen you for a long time. Are you alive?
+"Oh? Aishia-chan. It's been a while. Are you still alive?"
 
 *「あれぇ？　アイシアちゃん。久しぶりに見たねぇ。生きてたのかい」*
 
-Oh. Oh, yeah. Long time no see, grandma. I'm happily working as a slave for my master here. Didn't Dad tell you?"
+"Ah. Yeah. It's been a while, grandma. I'm happily serving as this lord's slave. Didn't you hear from my dad?"
 
 *「あ。うん。久しぶりおばあちゃん。今こちらのあるじ様の奴隷として幸せにやってるよ。父ちゃんから聞いてない？」*
 
-"Ah, well, you said there was a celebration party today. I wonder if that's it."
+"Oh, right. He did mention there was a celebratory feast today. Is that it?"
 
 *「あー、そういや今日はお祝いの宴だって言ってたねぇ。それかなぁ」*
 
 &nbsp;
 
-Dwarf with red hair, brown color, and if you look closely, you will see small wrinkles around her eyes.
+A dwarf with red hair and brown skin, who, upon closer inspection, has fine wrinkles around her eyes.
 
 *赤髪褐色、よく見たら目元に小じわがあるドワーフさん。*
 
-I'm a ...... grandmother and it's only a small wrinkle, you look really young.
+...Is she a grandma with just fine wrinkles? She really looks young.
 
 *……おばあちゃんで小じわ程度なのか、ほんっと若く見えるなぁ。*
 
 &nbsp;
 
 &nbsp;
-

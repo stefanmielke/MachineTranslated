@@ -1,4 +1,4 @@
-# F rank promotion!
+# F Rank Promotion!
 
 ## Ｆランク昇格！
 
@@ -6,11 +6,11 @@
 
 &nbsp;
 
-I'm Karina, and I'm delivering the slime nucleus that I caught with my seniors at the guild.
+I, Karina, am currently delivering the slime cores I collected with my senior at the guild.
 
 *私カリーナ、今ギルドで先輩と一緒に獲ったスライム核を納品してるの。*
 
-I used magic and got a beautiful slime nucleus, so I'm looking forward to the assessment!
+I managed to get a beautiful slime core using magic, so I'm looking forward to the appraisal!
 
 *魔法を使ったら綺麗なスライム核をゲットできちゃったので査定が楽しみね！*
 
@@ -18,139 +18,139 @@ I used magic and got a beautiful slime nucleus, so I'm looking forward to the as
 
 &nbsp;
 
-So, the intact slime nucleus was bought at a higher price, so my share of five pieces came to eight large copper coins.
+As a result, since the undamaged slime core was bought at a high price, my share became 8 large copper coins for 5 cores.
 
 *というわけで、無傷のスライム核は高く買い取ってもらえたため、私の取り分５個で大銅貨８枚になった。*
 
-Let's say you pay the registration fee for the Adventurers' Guild as it is.
+Now, let's go ahead and pay the registration fee for the adventurer's guild.
 
 *そのまま冒険者ギルドの登録料を支払うとしよう。*
 
 &nbsp;
 
-You didn't give Mr. Braid what he took to Ms. Karina, did you?"
+"Blade didn't give you the one he collected, did he?"
 
 *「ブレイドさんが取ったのをカリーナさんにあげたわけじゃないんですね？」*
 
-Yeah. It was really amazing. I was like, "Wow, wizards are awesome.
+"Ah, no. It was really amazing. Wizards are incredible, you know? It was like whoosh!"
 
 *「ああ。マジすごかったよ。魔法使いって凄いんだなぁ、ばびゅんってなってたぞ」*
 
-I see. Then that's no problem."
+"I see. Then there's no problem."
 
 *「なるほど。なら問題ないですね」*
 
 &nbsp;
 
-Braid also testified that I can hunt an intact slime nucleus on my own.
+Blade testified that I could hunt undamaged slime cores by myself.
 
 *私が自力で無傷のスライム核を狩ってこれることもブレイドが証言してくれた。*
 
-Thank you, senpai. I don't have much vocabulary.
+Thank you, senior. My vocabulary is a bit lacking, though.
 
 *ありがとう先輩。語彙すくねぇけど。*
 
 &nbsp;
 
-Here is Karina's Adventurer's Guild certificate, rank F."
+"Here you go, Karina. This is your adventurer's guild certificate. You are now F rank."
 
 *「ではこちら、カリーナさんの冒険者ギルド証です。Ｆランクになります」*
 
 &nbsp;
 
-I've got my Adventurer's Guild certificate!
+I finally got the adventurer's guild certificate!
 
 *ねんがんの冒険者ギルド証をてにいれたぞ！*
 
-The F rank is an apprenticeship, if I remember correctly. Still, it is a proper identification!
+If I remember correctly, F rank is for apprentices. Still, it's a proper identification!
 
 *たしかＦランクは見習い。それでもちゃんとした身分証である！*
 
-Now you won't have to use God's hypnotic ID anymore. ......
+Now I won't have to rely on the god's hypnotic identification anymore...!
 
 *これでもう神様の催眠身分証を使わないで済むよ……！*
 
 &nbsp;
 
-I'll pay your sister. See you later."
+"Well then, I'm going to pay my sister. See you later."
 
 *「んじゃ俺は姉御に金払ってくらぁ。またな」*
 
-Thank you for everything you have done for me!　I'm looking forward to working with you again!"
+"Thanks for everything! I'll be counting on you again!"
 
 *「うっす、色々お世話になりましたっす！　またよろしくっす！」*
 
-Ha-ha-ha, then you'll have to buy me a drink this time."
+"Haha, then next time, you treat me to a drink."
 
 *「だはは、なら今度はお前が一杯奢ってくれよ」*
 
 &nbsp;
 
-I bowed my head to Braid senior, who left in style.
+I bowed my head slightly to the stylishly departing senior, Blade.
 
 *私は格好つけて去るブレイド先輩にスッと頭を下げた。*
 
-Well, you've been a real help. You taught me some woodworking skills.
+Wow, I really owe him a lot. He even taught me woodworking skills.
 
 *いやー、マジお世話になったわ。木工スキルも教えてもらったし。*
 
-Especially meeting with Sister Harumikazuchi.
+Especially my encounter with Sister Harumikazuchi.
 
 *特にハルミカヅチお姉さまとの出会い。*
 
-Definitely, I'm going to see him this time with my hard-earned money!　And then, if I dare, for one night!
+Next time, I will definitely go see her with the money I earned! And hopefully, spend the night!
 
 *絶対、今度は自分の稼いだお金で会いに行くんだ！　そしてあわよくば一晩！*
 
 &nbsp;
 
-Mr. Blade is just a nice guy if he's not drunk. ......
+"Blade is just a nice guy when he's not drunk, right...?"
 
 *「ブレイドさんは酔っぱらってなければただの良い人なんですよね……」*
 
-Well, he was a good drunk there, wasn't he?"
+"Well, he was a pretty nice guy even when he was somewhat drunk."
 
 *「まぁそこそこ酔っぱらってても良い人でしたよ？」*
 
-I heard you were taken to the Shun Lai Pavilion. Are you all right?"
+"I heard you were taken to Shunrai-tei. Were you okay?"
 
 *「シュンライ亭へ連れてかれたらしいじゃないですか。大丈夫でしたか？」*
 
 &nbsp;
 
-If you ask me if I was okay, I wasn't okay because I lost my chastity.
+If we're talking about whether I was okay, I lost my chastity, so I wasn't safe.
 
 *大丈夫かどうかで言われると、貞操を失ったので無事じゃなかったけど。*
 
-Think of it the other way around. Rather, think ...... that you have nothing left to lose!
+But think of it this way. I have nothing left to lose...!
 
 *逆に考えるんだ。むしろ失うものは無くなったと……！*
 
 &nbsp;
 
-To put it mildly, that's where I met the best."
+"To put it mildly, that was the best encounter I've ever had."
 
 *「控えめに言って、そこに最高の出会いがありました」*
 
-...... Carina, maybe you're one of those guys who can handle women?"
+"…Karina, could it be that you are into women too?"
 
 *「……カリーナさん、もしかして女性もいけるクチ？」*
 
-'If anything, it might only be women (since they're men inside).'
+"Actually, I might only be into women (since I'm a guy on the inside)."
 
 *「むしろ女性しかいけないかもしれません（中身は男なので）」*
 
-I see.
+"I-I see."
 
 *「そ、そうですか」*
 
 &nbsp;
 
-The receptionist was a little taken back.
+The receptionist seemed a bit taken aback.
 
 *受付嬢さんは少し引いていた。*
 
-Don't worry, we won't do it without agreement!
+Don't worry, I won't do anything without consent!
 
 *大丈夫、合意が無ければしませんから！*
 
@@ -158,19 +158,19 @@ Don't worry, we won't do it without agreement!
 
 &nbsp;
 
-Oh, by the way, I'd like to take your request right away. Speaking of which, I'd like to take your request right away."
+"Oh, by the way, I want to accept a request right away."
 
 *「あ。そういえば早速依頼受けたいんですが」*
 
-"Yes, add a slime nuke?"
+"Yes, are you looking to collect more slime cores?"
 
 *「はい、スライム核を追加ですか？」*
 
-I was thinking, "You know those requests for logs to be cut?　That's what I wanted to do."
+"There’s a request for chopping logs, right? I’d like to do that."
 
 *「丸太を伐ってくる依頼ってありますよね？　それをやりたいなって」*
 
-You know, "...... it's hard, strenuous work, you know?　There is also the danger of being attacked by demons. You can't be accompanied by guild members, and I don't recommend it. ......
+"…It’s a tough physical job, you know? There’s a risk of being attacked by monsters. I can't recommend it since guild members can't accompany you..."
 
 *「……大変な力仕事ですよ？　魔物に襲われる危険もありますし。ギルド員の同行もできませんし、おススメはできませんが……」*
 
@@ -178,7 +178,7 @@ You know, "...... it's hard, strenuous work, you know?　There is also the dange
 
 &nbsp;
 
-Request] Log collection.　Reward: 1 silver coin per log.
+【Request】Log Collection. Reward: 1 silver coin per log
 
 *【依頼】丸太採取。　報酬：丸太１本につき銀貨１枚*
 
@@ -186,21 +186,21 @@ Request] Log collection.　Reward: 1 silver coin per log.
 
 &nbsp;
 
-Usually, this is a request that can be done by more than one person, either by going as a team or by having a guild official accompany you with a magic bag (an expensive one with the level of a log in it).
+Normally, this is a request that requires multiple people, either going as a team or having guild staff accompany you with a magical bag (an expensive one that can hold logs).
 
 *通常はチームで行くなり、ギルド職員が魔法のカバン（丸太が入るレベルの高価な奴）を持って同行するなりで複数人でこなす依頼だ。*
 
-While cutting down trees, you need to be vigilant of your surroundings and if a demon appears, you need to defeat it. Besides, if you spread blood around, other demons will come to you and the danger level will jump. ......
+You need to be vigilant while chopping wood, and if monsters appear, you have to defeat them. Moreover, if you spill blood, other monsters will be attracted, increasing the danger...
 
 *木を伐りながら周囲も警戒し、魔物が出たら倒す必要がある。その上、もし血をまき散らしてしまったら他の魔物が寄ってくるため危険度は跳ね上がる……*
 
 &nbsp;
 
-The remuneration earned in this way is also lower per person because it is divided by the number of people.
+The reward you earn is split among the group, so the amount per person becomes small.
 
 *そうして得た報酬も、人数割りなので一人当たりの額が安くなる。*
 
-Frankly speaking, this is a request that would not be possible without a specialized group of people called "lumberjacks.
+To be honest, this is a request that you can't handle unless you're part of a specialized group called "lumberjacks."
 
 *正直に言って「木こり」と呼ばれる専門集団でもなきゃやってられない依頼だ。*
 
@@ -208,29 +208,29 @@ Frankly speaking, this is a request that would not be possible without a special
 
 &nbsp;
 
-So I can't recommend it enough.
+"That said, I can't recommend it at all..."
 
 *「というわけで、おススメはこれっぽっちもできないんですが」*
 
-I use magic there, too. If I get attacked, I'll go and get the part of the body that proves that I killed the attacker.
+"Well, I'll be using magic too. If I'm attacked, I'll just take care of the monsters while I'm at it."
 
 *「そこは魔法も使うので。襲われたらついでに討伐証明部位でもとってきますよ」*
 
-"Ummm, is it magic ...... well I stopped it once, right?　At your own risk, right?"
+"Hmm, magic, huh... Well, I did stop doing it once. It's at your own risk, okay?"
 
 *「うーん、魔法ですか……まぁ一度は止めましたよ？　自己責任ですからね？」*
 
 &nbsp;
 
-The receptionist who reminds me. A tough job for a newcomer to do solo by any stretch of the imagination.
+The receptionist emphasized this. It’s a job that’s definitely tough for a newbie to do solo.
 
 *念を押してくる受付嬢さん。新人がソロでやるにはどう考えても厳しい仕事。*
 
-That said, if you can do it solo, it's a delicious story.
+That's why, if I can do it solo, it's a delicious opportunity.
 
 *だからこそ、もしソロでできるなら美味しい話なのだ。*
 
-If you deliver 25 bottles, you will reach the registration fee of the merchant guild.
+If I deliver 25 logs, it will cover the registration fee for the merchant guild.
 
 *２５本も納品すれば、商人ギルドの登録料に届く。*
 
@@ -238,17 +238,17 @@ If you deliver 25 bottles, you will reach the registration fee of the merchant g
 
 &nbsp;
 
-...... Well, it's usually easier to deliver a slime nuke. Definitely. It's also easier to carry.
+…Well, if you think about it normally, delivering slime cores is definitely easier. No doubt about it. It's also easier to carry.
 
 *……まぁ、普通に考えたらスライムの核を納品する方が楽だよな。間違いなく。持ち運びも楽だし。*
 
-But unlike slime nuclei, logs are basically in demand and don't fall in price. They have a fixed number of intact slime nuclei that can be bought in a day. Because they can't handle it.
+However, unlike slime cores, logs generally have demand and don't depreciate in value. It seems there’s a limit to how many undamaged slime cores can be bought in a day. They can't process them all.
 
 *でも、スライムの核と違って丸太は基本的に需要があって値崩れしないのがいい。無傷のスライム核は１日に買い取りできる個数も決まってるらしいし。処理しきれないから。*
 
 &nbsp;
 
-I wouldn't even think of doing it without spatial magic.
+I wouldn't even think about doing it without spatial magic.
 
 *私も空間魔法がなきゃやろうとは思わないだろうしね。*
 
@@ -256,17 +256,17 @@ I wouldn't even think of doing it without spatial magic.
 
 &nbsp;
 
-I'll accept your offer, but if you feel you can't make it, please come home right away.
+"I'll accept it for now, but if you think it's impossible, please come back immediately."
 
 *「一応受理しときますけど、無理だと思ったらすぐ帰ってきてくださいね」*
 
-Yes. Thank you."
+"Okay! Thank you!"
 
 *「はーい。ありがとう」*
 
 &nbsp;
 
-Thus, he succeeded in getting a request for log collection.
+Thus, I successfully accepted the request for log collection.
 
 *こうして丸太採取の依頼を受けることに成功した。*
 
@@ -276,21 +276,18 @@ Thus, he succeeded in getting a request for log collection.
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(This was the #1 inter-day and otherworldly transfer/transition fantasy!
+(Daily, I ranked 1 in the otherworldly reincarnation/transfer fantasy category!
 
 *（日間・異世界転生/転移ファンタジー１位でした！*
 
-Thanks for your support!　If you haven't checked out ↓ ☆☆☆☆☆ yet, please do.
+Thank you for your support! If you haven't checked out the ☆☆☆☆☆ below, please do.
 
 *応援ありがとう！　まだ↓の☆☆☆☆☆をチェックしてない人は是非。*
 
-(Oh, I'm stocked up for a while longer, so I'll update daily!)
+Oh, I still have stock for a while, so I'll be updating daily!)
 
 *あ、もうしばらくはストックあるから毎日更新よ！）*
-

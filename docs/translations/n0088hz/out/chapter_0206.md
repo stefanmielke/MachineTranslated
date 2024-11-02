@@ -1,112 +1,112 @@
-# What's it like!
+# How's it going!
 
 ## どんなもんよ！
 
 &nbsp;
 
-I won the first game easily, and I buzzed, pushed, and beat up a few more guys.
+Having easily won the first match, I proceeded to throw, push out, and beat down several more opponents.
 
 *初戦をあっさり勝利した私は、さらに何人もの連中をブン投げたり押し出したりぶちのめしたりしてやった。*
 
 &nbsp;
 
-"Gah, my body can't move, hey ......?
+"Ugh, my body won't move...!?"
 
 *「ガッ、う、か、身体がうごか、ねぇ……ッ！？」*
 
-I've hit a secret hole. You can only speak until I give you permission."
+"I've struck your vital points. You can only speak until I permit you to."
 
 *「秘孔を突いた。お前は私が許可するまで喋ることしかできない」*
 
-Oh, my God, ......!"
+"I-I give up...!"
 
 *「ま、まいった……！」*
 
 &nbsp;
 
-At times, he stops moving as if he were a master of the killer fist handed down from one generation to the next.
+At times, I stopped moving like a master of a secret killing technique.
 
 *時には一子相伝の殺人拳伝承者の如く動きを止め。*
 
 &nbsp;
 
-I'll show you my fist!　Hi-yah!　Yah!　Ha!
+"Feel the power of my martial arts! Hiyah!! Yah!! Ha!!"
 
 *「俺様の拳法をくらえ！　ハイィ！！　ヤッ！　ハッ！！」*
 
-It doesn't matter if you don't hit it: ......!"
+"If it doesn't hit, it doesn't matter...!"
 
 *「当たらなければどうということはない……！」*
 
-Noooo ......?　When did he get to the edge of the ring ......?　You lost outside the ring!
+"Whoa...!? When did I end up at the edge of the ring...!? That's a ring-out loss!!"
 
 *「ぬぉ……！？　い、いつの間にリングの端に……！　場外負けだとぉっ！！」*
 
 &nbsp;
 
-Sometimes, it avoids them as gloriously as a red comet.
+At times, I elegantly dodged like a red comet.
 
 *時には赤色の彗星の如く華麗に避け。*
 
 &nbsp;
 
-He will make this sword rust!　Here I come!
+"I'll turn you into rust for this sword! Here I come!!"
 
 *「この剣の錆にしてくれるわッ！　いざ、参るッ！」*
 
-You're a little cocky, you know that?　Dogaa!　Merikomi Punch!
+"You're cheeky for a little dog! Doga! Merikomi Punch!!"
 
 *「のび犬のクセに生意気だぁ！　ドガァ！　メリコミパンチ！！」*
 
-Mooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo!"
+"How cruelーーーーーーーーーーーーーーーーーーーーー！！"
 
 *「むごーーーーーーーーーーーーーーーーーーー！！」*
 
 &nbsp;
 
-Sometimes, like a kid general, he would plunge his fist into his face without thinking.
+At times, I punched my opponent's face without a second thought like a bully.
 
 *時にはガキ大将の如く何も考えず顔面に拳をめり込ませた。*
 
-(And the other party was a long-bodied canine beast like a dachshund.)
+(For reference, the opponent was a long-bodied dog beastman resembling a dachshund.)
 
 *（尚、相手はダックスフントのような胴長犬獣人だった）*
 
 &nbsp;
 
-Perhaps it was thanks to such a varied fighting style that the cheers became louder and louder with each victory, although they continued to kill in the blink of an eye.
+Thanks to showcasing such a varied fighting style, even though I continued to win in an instant, the cheers grew louder with each victory.
 
 *そんな風にバリエーションに富んだ戦い方を披露したおかげか、瞬殺を続けているものの勝利数を重ねる毎に段々と声援が大きくなってきた。*
 
-Mainly centered on Aisia, "Kyaa!　Aruji-sama, geez. Karina is so cool!　She's the best! and cheered her up with a good, clear, bard-like voice.
+Mainly, Aishia took the lead, cheering with a clear and beautiful voice, "Kyaa! My lord, ahem. Karina is so cool! The strongestーー!"
 
 *主にアイシアが中心となって「きゃー！　あるじ様、げふん。カリーナ選手かっこいいでーーーす！　最強ーー！」と吟遊詩人な良く通るいい声で応援してくれたおかげだろう。*
 
 &nbsp;
 
-Hahaha!　What's it like!"
+"Ha ha ha! How's that!"
 
 *「はっはっは！　どんなもんよ！」*
 
 &nbsp;
 
-I thrust my hands in the air, and that was all it took for the cheers to echo through the Coliseum. ...... Oh, no, was that because the winner of the next ring had just been decided?　Teheh. Wrong.
+When I raised both hands, the cheers echoed throughout the coliseum. ...Oh, wait, maybe that was just because the outcome of the match in the adjacent ring was decided? Hehe, my mistake.
 
 *私が両手を突き上げると、それだけで歓声がコロシアムに響いた。……あ、いや、今のは隣のリングの勝敗が決まったからかな？　てへっ。勘違いっ。*
 
 &nbsp;
 
-I mean, I've already buzzed 10 people in a row. Oh, I thought this was a tournament?　A round-robin tournament?　Or wanko soba?　Well, I don't care which one it is.
+By the way, I've already taken down ten opponents in a row. Wasn't this supposed to be a tournament? A round-robin? Or maybe a dog soba? Well, whatever works.
 
 *ていうか、もう１０人連続でブッ倒してるんだけど。あれ、これトーナメントじゃなかったっけ？　総当たり戦？　あるいはわんこ蕎麦？　まぁどれでもいいけどね。*
 
-They are sent in one after another, so it's like a workflow.
+Since they keep coming one after another, it feels almost like an assembly line.
 
 *次々送り込まれてくるから、もはや流れ作業的なところあるよ。*
 
 &nbsp;
 
-I remember I was told that the fight money would be increased by the number of victories, so my rank will go up to C!　Gahaha!
+I heard that the fight money increases with the number of victories, so my rank will probably rise to C! Gahaha!
 
 *確か勝利数の分だけファイトマネーも増えるって話だったし、こりゃあ私のランクもＣに上がっちゃうなぁ！　ガハハ！*
 
@@ -114,33 +114,33 @@ I remember I was told that the fight money would be increased by the number of v
 
 &nbsp;
 
-...... I think it's time to show him a hard time, don't you?　What a thought, but I'll just knock down my opponent with a lariat for now.
+...Should I start to struggle a bit to make it look good? While thinking that, I knocked down my opponent with a lariat.
 
 *……そろそろ苦戦して見せたほうが良いかなぁ？　なんて思いつつ、とりあえず対戦相手をラリアットでノックダウンしておく。*
 
 &nbsp;
 
-Another blink-and-you'll-miss-it!　What in the world is this young lady?　The Adventurers' Guild has sent in an unbelievable assassin!
+"Another instant winーーー! What on earth is this ladyーーー!? The Adventurers Guild has sent an incredible assassinーーー!"
 
 *「また瞬殺だーーーッ！　一体何なんだこのお嬢様はーーーッ！？　冒険者ギルドはとんでもない刺客を送り込んできたァアアーーーッ」*
 
 &nbsp;
 
-The referee, or rather the MC, who is no longer a freebie, is getting into the groove.
+The referee, or rather just a regular MC, was getting really into it.
 
 *審判というかもはやタダのＭＣさんがノリノリで盛り上げてくれている。*
 
-And just as the eleventh person was beaten to a pulp, a beastie dressed like a staff member came on stage this time.
+Just then, after I knocked down the eleventh opponent, a beastman dressed like staff came up to the stage.
 
 *と、１１人目をぶちのめしたところで今度はスタッフのような格好をした獣人が舞台に上がってきた。*
 
 &nbsp;
 
-Oh, no.
+"Hey there—"
 
 *「そいやー」*
 
-Wow!　Wait, wait!　No, sir, I'm a staff member!"
+"Wait, wait! No, I'm staff!"
 
 *「わー！　まってまって！　違います、スタッフです！」*
 
@@ -150,69 +150,67 @@ Wow!　Wait, wait!　No, sir, I'm a staff member!"
 
 &nbsp;
 
-Was it a real staff?
+So it was a real staff member.
 
 *本物のスタッフだったか。*
 
-I stopped the attack. If it was a lie, no problem, but the ref stopped it too, so it must be real.
+I stopped my attack. It wouldn't have been a problem if it were a lie, but since the referee also stopped, it must be genuine.
 
 *私は攻撃を止めた。もし嘘でも問題ないが、審判も止めてたので本物だろう。*
 
 &nbsp;
 
-"Well, well, well, I think it's time for you to take a break."
+"Uh, um, how about taking a break soon?"
 
 *「そっ、そそそ、そろそろご休憩されてはいかがでしょうかっ」*
 
-"Hmm?　Is that an invitation to end up losing on purpose?"
+"Hm? Are you suggesting I lose on purpose to end it?"
 
 *「ん？　それはわざと負けて終われって催促？」*
 
-Oh, no!　No, no, no, no, no, no, no, no, no, no, no, no, no!　I mean, for the sake of tournament progress, we're going to have to go to the waiting room!"
+"Oh, no! Not at all! Due to tournament proceedings, it's time to head to the waiting room!"
 
 *「あ、いえ！　とんでもない！　トーナメント進行上、一旦控室の方へってことです！」*
 
 &nbsp;
 
-What the heck, if that's the case, just say so from the beginning.
+What the heck, if that's the case, you should have said so from the start.
 
 *なんだよ、それならそうと最初から言ってよね。*
 
 &nbsp;
 
-I see. So this is the qualifying round, and the next round is the real thing, sort of?"
+"Oh, I see. So this was the preliminary round, and from now on, it's the main event?"
 
 *「ああ、そっか。ここまでが予選で、次から本番、みたいな？」*
 
-"!　Yes!　Yes, sir!　That's exactly what I mean!"
+"Yes! Yes! Exactly right!"
 
 *「！　はい！　はい！　まさにその通りです！」*
 
 &nbsp;
 
-Oh well, I see. It appears that they had to eliminate 11 people first to qualify for the main competition.
+I see, I see. It seems I had to defeat eleven opponents to qualify for the main event.
 
 *そうかそうか。最初に１１人抜きしないと本戦に出場できなかったとみえる。*
 
-Well, it's almost like we just jumped in. It's a tournament with over 100 participants.
+Well, considering I almost jumped in, it's understandable for a tournament with over a hundred participants.
 
 *まぁ、なんせほぼ飛び入りだもんね。流石１００人以上の参加するトーナメントだわ。*
 
 &nbsp;
 
-
-
 &nbsp;
 
 ----------------
 
-(I quietly started submitting new work for Kakuyom-Kon 9.
+(I quietly started posting a new work for Kakuyomu Contest 9.
 
 *（そっとカクヨムコン９向けに新作を投稿始めました。*
 
 &nbsp;
 
-How a dungeon distributor who wants to be a lady someday becomes a real lady.
+A dungeon streamer who wants to become a lady until she becomes a real lady
 
 *いつかお嬢様になりたい系ダンジョン配信者が本物のお嬢様になるまで*
 
@@ -222,19 +220,18 @@ https://kakuyomu.jp/works/16817330667768391252
 
 &nbsp;
 
-It is a dungeon delivery thing for aspiring young ladies!
+It's a dungeon streaming story with aspirations of becoming a lady!
 
 *お嬢様志望のダンジョン配信モノです！*
 
-What makes ...... dungeon different from the usual dungeon delivery thing is that the dungeon is in a game format,
+What's different from regular dungeon streaming stories is... the dungeon is in a game format,
 
 *普通のダンジョン配信モノと違うのは……ダンジョンがゲーム形式で、*
 
-Maybe not even muso, and the amount of money saved was at stake instead of lives,
+probably without any invincible moves, and instead of lives, it involves savings,
 
 *多分無双もしなくて、命の代わりに貯金額がかかってて、*
 
-(And I guess that means it's a Vtuber thing too. ......!)
+and it's also a Vtuber story...!)
 
 *あとVtuberモノでもあるってことかな……！）*
-
