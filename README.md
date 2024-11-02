@@ -30,6 +30,8 @@ All translations were done using ML. Originally translated with DeepL.
 
 We are open for PR that help with the translations, as long as they are machine translations.
 
+If you want a new series translated, please open an issue with the series name and source.
+
 #### Guidelines:
 
 **For translations of existing series:**
