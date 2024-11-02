@@ -2,6 +2,8 @@
 
 #### [Novel Updates Link](https://www.novelupdates.com/series/god-wrecked-the-last-boss/)
 
+#### [Source Link](https://ncode.syosetu.com/n0088hz/)
+
 ### Chapters:
 
 - [●Cover illustration (+ notes)](out/chapter_0001.md)

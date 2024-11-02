@@ -18,12 +18,15 @@ def create_index(main_folder):
                         data = json.load(data_file)
                         series_name = data.get("name", "")
                         novel_updates_link = data.get("novel-updates-link", "")
+                        source_link = data.get("source-link", "")
                 
                 with open(index_file_path, 'w', encoding='utf-8') as index_file:
                     if series_name:
                         index_file.write(f"# {series_name}\n\n")
                     if novel_updates_link:
                         index_file.write(f"#### [Novel Updates Link]({novel_updates_link})\n\n")
+                    if source_link:
+                        index_file.write(f"#### [Source Link]({source_link})\n\n")
                     index_file.write("### Chapters:\n\n")
 
                     # Iterate through each file inside the "out" subfolder
