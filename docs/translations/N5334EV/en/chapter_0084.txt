@@ -1,725 +1,721 @@
 # Chapter Two Characters
 
-This is my third post today.
+This is the third post of the day.
 
-<blank>
+<b>
 
-Think of it like an end title.
-
+Please think of it as something like an end title～
 
 ----------------
 
-<blank>
+<b>
 
------Chapter 2Characters---- -
+―――――Chapter Two Characters―――――
 
-<blank>
+<b>
 
-0 Susie Cloud
+〇Suzy Cloud
 
-Age: 14 years old
+Age: 14
 
-Attributes: All
+Attribute: All
 
 Class: Diviner
 
-Grade 8, adopted daughter of the Cloud family
+【Grade 8 Rank・Adopted Daughter of the Cloud Family】
 
-<blank>
+<b>
 
-0 Howard Cloud
+〇Howard Cloud
 
-Age: 62 years old
+Age: 62
 
 Attribute: Earth
 
 Class: Warlord
 
-Cloud family patriarch
+【Head of the Cloud Family】
 
-<blank>
+<b>
 
-0 Sonia Cloud
+〇Sonia Cloud
 
-Age: 58 years old
+Age: 58
 
-Attributes: Water
+Attribute: Water
 
 Class: Star Shooter
 
-[Howard's wife].
+【Howard's Wife】
 
-<blank>
+<b>
 
-0elrose glop
+〇Elrose Grop
 
-Age: 59 years old
+Age: 59
 
 Attribute: Earth
 
 Class: Marshal Commander
 
-[Cloud family servant (former Amcam House housekeeper)
+【Servant of the Cloud Family (Former Housekeeper of Amcam House)】
 
-<blank>
+<b>
 
-0 Gilberto Gamgee
+〇Gilberto Gamzy
 
-Age: 72 years old
+Age: 72
 
 Attribute: Wind
 
-Race: Glassfoot
+Race: Grassfoot
 
 Class: Night Raider
 
-Cloud Household Servants
+【Servant of the Cloud Family】
 
-<blank>
+<b>
 
-0 Annemarie Byros
+〇Anna Mary Bylos
 
-Age: 19 years old
+Age: 19
 
 Attribute: Earth
 
 Class: Trickster
 
-Cloud Household Servants
+【Servant of the Cloud Family】
 
-<blank>
+<b>
 
-0 Conrad Burok.
+〇Conrad Blouk
 
-Age: 69 years old
+Age: 69
 
 Attribute: Fire
 
-Class: Preceding Hercury Road
+Class: Former Herculean Lord
 
-[Former patriarch of the Burok family
+【Former Head of the Blouk Family】
 
-<blank>
+<b>
 
-0 Jacob Evans
+〇Jacob Evans
 
-Age: 55 years old
+Age: 55
 
-[Chief Butler, Amcam House]
+【Butler of Amcam House】
 
-<blank>
+<b>
 
-<blank>
+<b>
 
-0 August Dulles
+〇August Dales
 
-Age: 52 years old
+Age: 52
 
-Attributes: Water
+Attribute: Water
 
-Class: Brain Road
+Class: Brain Lord
 
-The head of the village of Amkam, the head of the first group, and the patriarch of the three Dulles families.
+【Village Head of Amcam・Leader of the First Squad・Head of the Dales Family】
 
-<blank>
+<b>
 
-0 Silence croquis
+〇Silence Klocky
 
-Age: 48 years old
+Age: 48
 
-Attributes: fire, earth, wind, nothing
+Attribute: Fire・Earth・Wind・Void
 
 Class: Soul Lord
 
-The second group leader, the Gosan family, the Kuroki family patriarchs.
+【Leader of the Second Squad・Head of the Klocky Family】
 
-<blank>
+<b>
 
-0 Alphonse Beers
+〇Alphonse Bias
 
-Age: 51 years old
+Age: 51
 
-Attributes: Earth, Wind, Water
+Attribute: Earth・Wind・Water
 
-Class: Wiseman
+Class: Wise Man
 
-[Team leader of Team 3, patriarch of the Gosanbeas family]
+【Leader of the Third Squad・Head of the Bias Family】
 
-<blank>
+<b>
 
-0 Harry Haggard.
+〇Harry Haggard
 
-Age: 47 years old
+Age: 47
 
-Attributes: Fire, Wind
+Attribute: Fire・Wind
 
-Class: Battlelord
+Class: Battle Lord
 
-The fourth group leader, the Haggard family patriarch.
+【Leader of the Fourth Squad・Head of the Haggard Family】
 
-<blank>
+<b>
 
-0 Frank Long
+〇Frank Long
 
-Age: 44 years old
+Age: 44
 
 Attribute: Wind
 
 Class: Command Master
 
-[Team leader of Team 5, patriarch of the Long family]
+【Leader of the Fifth Squad・Head of the Long Family】
 
-<blank>
+<b>
 
-0 Gary Meyers
+〇Gary Myers
 
-Age: 41 years old
+Age: 41
 
 Attribute: Wind
 
 Class: Sword Master
 
-[Tenth squad leader, patriarch of the Meyers family]
+【Leader of the Tenth Squad・Head of the Myers Family】
 
-<blank>
+<b>
 
-0 Richard Mathieson
+〇Richard Mathison
 
-Age: 39 years old
+Age: 39
 
-Attributes: wind, water, fire, earth
+Attribute: Wind・Water・Fire・Earth
 
-Class: Akashic Road
+Class: Akashic Lord
 
-Head of the 12th Group, Matthieson family patriarch.
+【Leader of the Twelfth Squad・Head of the Mathison Family】
 
-<blank>
+<b>
 
-<blank>
+<b>
 
-<blank>
+<b>
 
-<blank>
+<b>
 
-0 Alia Burok.
+〇Aria Blouk
 
-Age: 24 years old
+Age: 24
 
 Attribute: Fire
 
 Class: Battle Master
 
-Group rank: 10th
+Rank: 10th
 
-[Team Aria Leader].
+【Team Aria Leader】
 
-<blank>
+<b>
 
-00lta Lindeman.
+〇Ilta Lindman
 
-Age: 22 years old
+Age: 22
 
-Attributes: None, earth
+Attribute: Void・Earth
 
-Class: Teaching Officer
+Class: Cleric
 
-Group rank: 8th
+Rank: 8th
 
-Aria team.
+【Member of Team Aria】
 
-<blank>
+<b>
 
-0 Ketty Forest
+〇Keti Forest
 
-Age: 21 years old
+Age: 21
 
-Attributes: wind, water, fire, earth
+Attribute: Wind・Water・Fire・Earth
 
 Class: Summoner
 
-Group rank: 7th
+Rank: 7th
 
-Aria team.
+【Member of Team Aria】
 
-<blank>
+<b>
 
-00 Millie Barrett.
+〇Millie Barrett
 
-Age: 19 years old
+Age: 19
 
 Attribute: Wind
 
 Class: Hunter
 
-Group rank: 4th
+Rank: 4th
 
-Aria team.
+【Member of Team Aria】
 
-<blank>
+<b>
 
-0Caron Cournot
+〇Kalon Clunow
 
-Age: 19 years old
+Age: 19
 
-Class: Bird
+Class: Bard
 
-Group rank: 2nd
+Rank: 2nd
 
-<blank>
+<b>
 
-<blank>
+<b>
 
-<blank>
+<b>
 
-<blank>
+<b>
 
-<blank>
+<b>
 
-0 Colin Saunders
+〇Colin Saunders
 
-Age: 15 years old
+Age: 15
 
-Attributes: water, wind, earth
+Attribute: Water・Wind・Earth
 
 Class: Diviner
 
-[Grade 9 dan, eldest daughter of the Saunders family]
+【Grade 9 Rank・Eldest Daughter of the Saunders Family】
 
-<blank>
+<b>
 
-0 Dana McCain
+〇Dana McCain
 
-Age: 15 years old
+Age: 15
 
-Attributes: Wind, Earth
+Attribute: Wind・Earth
 
 Class: Lancer
 
-[Grade 9 dan, second daughter of the McCain family].
+【Grade 9 Rank・Second Daughter of the McCain Family】
 
-<blank>
+<b>
 
-0 Willie Hodgson
+〇Willy Hodgson
 
-Age: 15 years old
+Age: 15
 
-Attributes: fire, water, wind
+Attribute: Fire・Water・Wind
 
 Class: Mage
 
-Grade 9, second son of the Hodgson family.
+【Grade 9 Rank・Second Son of the Hodgson Family】
 
-<blank>
+<b>
 
-0 Beatrice Croquis
+〇Beatrice Klocky
 
-Age: 13 years old
+Age: 13
 
-Attributes: fire, earth, wind, nothing
+Attribute: Fire・Earth・Wind・Void
 
 Class: Novice
 
-[Grade 8 dan, eldest daughter of the Kuroki family]
+【Grade 8 Rank・Eldest Daughter of the Klocky Family】
 
-<blank>
+<b>
 
-00 Mia Mathieson
+〇Mia Mathison
 
-Age: 14 years old
+Age: 14
 
-Attributes: earth, water, wind
+Attribute: Earth・Water・Wind
 
 Class: Mage
 
-[Grade 8 dan, eldest daughter of the Mathisons]
+【Grade 8 Rank・Eldest Daughter of the Mathison Family】
 
-<blank>
+<b>
 
-0 Irving Haggard
+〇Irvin Haggard
 
-Age: 14 years old
+Age: 14
 
-Attributes: fire, wind, no
+Attribute: Fire・Wind・Void
 
 Class: Swordsman
 
-[Grade 8 dan, third son of the Haggard family].
+【Grade 8 Rank・Third Son of the Haggard Family】
 
-<blank>
+<b>
 
-0 Lombard Broek.
+〇Lombard Blouk
 
-Age: 14 years old
+Age: 14
 
-Attributes: Earth, Water
+Attribute: Earth・Water
 
 Class: Lumberjack
 
-[Grade 8 dan, third son of the Burok family]
+【Grade 8 Rank・Third Son of the Blouk Family】
 
-<blank>
+<b>
 
-<blank>
+<b>
 
-0 Alan Edgarra
+〇Alan Edgala
 
-Age: 13 years old
+Age: 13
 
-[Grade 7 rank].
+【Grade 7 Rank】
 
-<blank>
+<b>
 
-0Bell Nap Long
+〇Belnapp Long
 
-Age: 13 years old
+Age: 13
 
-[Grade 7 rank].
+【Grade 7 Rank】
 
-<blank>
+<b>
 
-0 Carl Giacobini
+〇Carl Giacobini
 
-Age: 13 years old
+Age: 13
 
-[Grade 7 rank].
+【Grade 7 Rank】
 
-<blank>
+<b>
 
-girl
+Girls
 
-0Helena Slater
+〇Helena Slater
 
-Age: 13 years old
+Age: 13
 
-[Grade 7 rank].
+【Grade 7 Rank】
 
-<blank>
+<b>
 
-0 Mary Frank
+〇Mary Frank
 
-Age: 13 years old
+Age: 13
 
-[Grade 7 rank].
+【Grade 7 Rank】
 
-<blank>
+<b>
 
-0 Fiorina Atlee
+〇Fiorina Atlee
 
-Age: 12 years old
+Age: 12
 
-[Grade 6 rank].
+【Grade 6 Rank】
 
-<blank>
+<b>
 
-<blank>
+<b>
 
-00 Marsh Cowsbert.
+〇Marsh Cowsbart
 
-Age: 91 years old
+Age: 91
 
-Attributes: Fire, Earth
+Attribute: Fire・Earth
 
 Race: Dwarf
 
 Class: Former Highlander
 
-Director of the "Cauzbert Workshop."
+【Head of the Cowsbart Workshop】
 
-<blank>
+<b>
 
-0Marybelle Cowsbert.
+〇Maribelle Cowsbart
 
-Age: 28 years old
+Age: 28
 
 Race: Dwarf
 
-[Daughter of Marsh, clerk at "Cowsbert's Workshop"]
+【Clerical Position at the Cowsbart Workshop・Daughter of Marsh】
 
-<blank>
+<b>
 
-0Cecily Eleanor
+〇Cecily Eleanor
 
-Age: 59 years old
+Age: 59
 
-Attributes: water, wind
+Attribute: Water・Wind
 
 Race: Half-Elf
 
 Class: Former Blade Hunter
 
-[Owner of "Late Afternoon (Apres Midi)"]
+【Owner of 'Afternoon (Apre Midi)'】
 
-<blank>
+<b>
 
-<blank>
+<b>
 
---Research Mission--
+――Investigation Delegation――
 
-<blank>
+<b>
 
-00 Cedric Meyer
+〇Cedric Meyer
 
-Age: 39 years old
+Age: 39
 
-Attributes: Water
+Attribute: Water
 
-[Captain of the Twelfth Mobile Heavy Cavalry, Thousand Men, Battalion Commander of the Messenger Corps].
+【Captain of the Twelfth Mobile Heavy Cavalry Division・Commander of the Delegation】
 
-<blank>
+<b>
 
-0 Kyle Irvine
+〇Kyle Irvine
 
-Age: 27 years old
+Age: 27
 
 Attribute: Wind
 
-[First centurion and deputy commander of the mission]
+【First Hundred Captain・Deputy Commander of the Delegation】
 
-<blank>
+<b>
 
-0 Magritte Gauthe.
+〇Magritte Gauche
 
-Age: 26 years old
-
-Attribute: Earth
-
-[Centurion and advance detachment commander.
-
-<blank>
-
-00Djimon Reetzmann.
-
-Age: 25 years old
+Age: 26
 
 Attribute: Earth
 
-Team Leader of Team 1, Advance Unit
+【Hundred Captain・Advance Unit Leader】
 
-<blank>
+<b>
 
-0 Laisa Ulunova
+〇Jimon Reitzman
 
-Age: 22 years old
+Age: 25
 
-Attributes: Water
+Attribute: Earth
 
-Team Leader of Team 2, Advance Unit
+【Leader of Squad 1・Advance Unit】
 
-<blank>
+<b>
 
-0 Tony Easton
+〇Raisa Ulunova
 
-Age: 22 years old
+Age: 22
+
+Attribute: Water
+
+【Leader of Squad 2・Advance Unit】
+
+<b>
+
+〇Tony Easton
+
+Age: 22
 
 Attribute: Fire
 
-Team Leader of Team 3]
+【Leader of Squad 3】
 
-<blank>
+<b>
 
-0Norman Lance
+〇Norman Lance
 
-Age: 28 years old
+Age: 28
 
 Attribute: Wind
 
-Team leader of Team 4, War Spear Escort Unit.
+【Leader of Squad 4・War Spear Escort Unit】
 
-<blank>
+<b>
 
-0 Lisa Tuttle.
+〇Lisa Tuttle
 
-Age: 24 years old
+Age: 24
 
-Attributes: water, no
+Attribute: Water・Void
 
-Team Leader of Team 5, Medical Captain]
+【Leader of Squad 5・Sanitation Team Leader】
 
-<blank>
+<b>
 
-0 Cornell Wallich
+〇Cornell Wallrich
 
-Age: 28 years old
-
-Attribute: Earth
-
-[Team 6 leader, firm commander]
-
-<blank>
-
-0 Luke Trevor
-
-Age: 25 years old
+Age: 28
 
 Attribute: Earth
 
-Team leader of Team 7.
+【Leader of Squad 6・Fortification Team Leader】
 
-<blank>
+<b>
 
-0 Casey Guinness
+〇Luke Trevor
 
-Age: 21 years old
+Age: 25
 
-Attributes: Wind, Water
+Attribute: Earth
 
-[Team 2 members]
+【Leader of Squad 7】
 
-<blank>
+<b>
 
-0Fred Loring
+〇Casey Guinness
 
-Age: 32 years old
+Age: 21
 
-Attributes: Earth, Fire
+Attribute: Wind・Water
 
-Chief Maintenance Officer
+【Member of Squad 2】
 
-<blank>
+<b>
 
-<blank>
+〇Fred Rolling
 
-<blank>
+Age: 32
 
-00nosoli kasbal
+Attribute: Earth・Fire
 
-Age: 75 years old
+【Chief of Maintenance】
 
-Attributes: wind, water, earth
+<b>
 
-[Magical Biology
+<b>
 
-<blank>
+<b>
 
-0 Morris Baltasar
+〇Nosori Kasbar
 
-Age: 75 years old
+Age: 75
 
-Attributes: Earth, Fire
+Attribute: Wind・Water・Earth
+
+【Magical Biology】
+
+<b>
+
+〇Morris Balthasar
+
+Age: 75
+
+Attribute: Earth・Fire
 
 Race: Dwarf
 
-Structural geology
+【Structural Geology】
 
-<blank>
+<b>
 
-0 Seiwa Eagle Melchio
+〇Seiwashi Melchio
 
-Age: 75 years old
+Age: 75
 
-Attributes: All
+Attribute: All
 
 Race: Sun Elf
 
-[Magickal Mechanics (Doctor of Magickal Engineering)
+【Magical Dynamics (Doctor of Magical Engineering)】
 
-<blank>
+<b>
 
-0 Joseline Joslin
+〇Joseline Joslan
 
-Age: 25 years old
+Age: 25
 
-Attributes: No, water, wind
+Attribute: Void・Water・Wind
 
 Race: Half-Elf
 
-Assistant Seiwaashi.
+【Assistant to Seiwashi】
 
-<blank>
+<b>
 
-<blank>
+<b>
 
-0 Cameron Fourier
+〇Cameron Fourier
 
-Age: 41 years old
+Age: 41
 
-[Head of the Research Mission, Assistant Deputy Director of the Northern Area Deipara Task Force, National Disaster Preparedness Committee (a.k.a. Mission Representative)]
+【Deputy Director of the National Disaster Response Committee's Northern Department's Deipara Response Office (Commonly known as the Delegation Representative)】
 
-<blank>
+<b>
 
-0Connor Clark
+〇Connor Clark
 
-Age: 37 years old
+Age: 37
 
-[Deputy Chief of Mission].
+【Deputy Commander of the Delegation】
 
-<blank>
+<b>
 
-0 Jules Nard
+〇Jules Narl
 
-Age: 28 years old
+Age: 28
 
-[Cameron Houllier, private escort]
+【Cameron Fourier's Private Guard】
 
-<blank>
+<b>
 
-<blank>
+<b>
 
 *************************
 
-<blank>
+<b>
 
-0 Hulbert East
+〇Halbert East
 
 Attribute: Earth
 
-True Vampire
+・True Vampire
 
-[Immortal General Halbert]
+【Undying General Halbert】
 
-<blank>
+<b>
 
-0 Marina
+〇Marina
 
-Attributes: Earth, Water
+Attribute: Earth・Water
 
 Race: Moon Elf
 
-Elder Vampire
+・Elder Vampire
 
-[Halbert and his family].
+【Halbert's Follower】
 
-<blank>
+<b>
 
-0 Electra
+〇Electra
 
-Attributes: Fire, Wind
+Attribute: Fire・Wind
 
-Elder Vampire
+・Elder Vampire
 
-[Halbert and his family].
+【Halbert's Follower】
 
-<blank>
+<b>
 
-0 Joel.
+〇Joel
 
 Attribute: Wind
 
-Elder Vampire
+・Elder Vampire
 
-[Halbert and his family].
+【Halbert's Follower】
 
-<blank>
+<b>
 
-<blank>
+<b>
 
-<blank>
+<b>
 
-0 Clarimonde.
+〇Clarimond
 
-True Vampire
+・True Vampire
 
-
-
-<blank>
+<b>
 
 ----------------
 
 Thank you for reading!
 
-<blank>
+<b>
 
-I also wrote a postscript to the activity report.
+I have also written something like an afterword in the activity report.
 
-If you like, you can take a peek at it as well.
-
+If you like, please take a look at that too<m(__)m>
