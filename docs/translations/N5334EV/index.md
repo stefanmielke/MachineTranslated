@@ -1,5 +1,7 @@
 # My Sort of Cheat but Small Fry Female Character
 
+###### Translated with DeepL
+
 #### [Novel Updates Link](https://www.novelupdates.com/series/my-sort-of-cheat-but-small-fry-female-character/)
 
 #### [Source Link](https://ncode.syosetu.com/n5334ev/)

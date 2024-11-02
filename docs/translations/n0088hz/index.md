@@ -1,5 +1,7 @@
 # God Wrecked the Last Boss
 
+###### Translated with DeepL
+
 #### [Novel Updates Link](https://www.novelupdates.com/series/god-wrecked-the-last-boss/)
 
 #### [Source Link](https://ncode.syosetu.com/n0088hz/)

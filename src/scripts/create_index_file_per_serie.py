@@ -19,10 +19,13 @@ def create_index(main_folder):
                         series_name = data.get("name", "")
                         novel_updates_link = data.get("novel-updates-link", "")
                         source_link = data.get("source-link", "")
+                        ml_used = data.get("ml-used", "")
                 
                 with open(index_file_path, 'w', encoding='utf-8') as index_file:
                     if series_name:
                         index_file.write(f"# {series_name}\n\n")
+                    if ml_used:
+                        index_file.write(f"###### Translated with {ml_used}\n\n")
                     if novel_updates_link:
                         index_file.write(f"#### [Novel Updates Link]({novel_updates_link})\n\n")
                     if source_link:
