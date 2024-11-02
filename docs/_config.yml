@@ -1,3 +1,10 @@
 remote_theme: pages-themes/midnight@v0.2.0
 plugins:
 - jekyll-remote-theme
+exclude:
+- docs/translations/n0088hz/data.json
+- docs/translations/n0088hz/en
+- docs/translations/n0088hz/jp
+- docs/translations/N5334EV/data.json
+- docs/translations/N5334EV/en
+- docs/translations/N5334EV/jp
