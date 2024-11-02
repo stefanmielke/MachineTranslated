@@ -1,5 +1,7 @@
 # God Wrecked the Last Boss
 
+#### [Novel Updates Link](https://www.novelupdates.com/series/god-wrecked-the-last-boss/)
+
 ### Chapters:
 
 - [●Cover illustration (+ notes)](out/chapter_0001.md)

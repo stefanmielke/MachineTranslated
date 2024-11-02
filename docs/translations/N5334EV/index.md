@@ -1,5 +1,7 @@
 # My Sort of Cheat but Small Fry Female Character
 
+#### [Novel Updates Link](https://www.novelupdates.com/series/my-sort-of-cheat-but-small-fry-female-character/)
+
 ### Chapters:
 
 - [01 Waking up in the Suzy Forest](out/chapter_0001.md)
