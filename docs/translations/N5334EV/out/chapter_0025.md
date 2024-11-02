@@ -1,137 +1,136 @@
-# 25 The Pleasures of Orbet Mash
+# Episode 25: The Delight of Orubetto Mash
 
 ## 25話　オルベット・マッシュの愉悦
 
-There are some cruel descriptions. Please be careful if you do not like it.
+There are cruel depictions. Please be cautious if you are sensitive to such content.
 
 *残酷な描写がございます。苦手な方はご注意ください。*
-
 
 ----------------
 
 &nbsp;
 
-Sole shook her colorless white hair in a flurry.
+It swayed its colorless white hair gently.
 
 *ソレは色味の無い白い髪を、フワリと揺らした。*
 
-Their chilling cerulean blue eyes look down on and ridicule everyone but themselves.
+The cerulean blue eyes, reminiscent of the cold, looked down upon and mocked everything but itself.
 
 *冷え込む様なセルリアンブルーの瞳は自分以外を見下し嘲る目だ。*
 
-The corners of his mouth turn up, distorting his thin, bloodless mouth.
+With a mouth devoid of color, it twisted its lips and raised the corners.
 
 *薄く血の気の無い口元を歪ませながら口角を上げる。*
 
 &nbsp;
 
-Looks about 10 years old.
+It appeared to be around 10 years old.
 
 *見た目は10歳程。*
 
-Black outerwear and white shirt.
+Wearing a black outer garment and a white shirt.
 
 *黒のアウターに白いシャツ。*
 
-On his chest, he wore a jabot with many folds like those worn by the nobility, and at the center of the jabot was a jewel of the same color as his eyes.
+On its chest, it adorned a frilled jabot typical of nobility, at the center of which a gem of the same color as its eyes emitted light.
 
 *その胸元には貴族が身に付ける様な襞の多いジャボを着け、その中心には瞳と同じ色の宝玉が光を放っていた。*
 
-Furthermore, colorful jewels adorned around the neck peeked out from the gaps in the outer garments.
+Furthermore, colorful gems peeked out from around its neck through the gaps in the outer garment.
 
 *更に、アウターの隙間からも首回りを飾る、色とりどりの宝玉が顔を覗かせていた。*
 
 &nbsp;
 
-Sole, who still looks like an innocent boy, is now holding up a girl.
+What looked like a still innocent boy was lifting a girl.
 
 *まだあどけない少年に見えるソレは、今一人の少女を抱き上げていた。*
 
-The girl is 12 or 3 years old, somewhat larger than the boy, but he is not bothered by this and lifts her up with only his left hand on her waist.
+The girl appeared to be around 12 or 13 years old, somewhat larger than the boy, but he lifted her effortlessly, with only his left hand resting on her waist.
 
 *年の頃は12～3歳の少女、少年よりも幾分体が大きいが、彼は気にすることも無く少女の腰に左手だけを添え持ち上げている。*
 
 &nbsp;
 
-The girl, held by the waist and bent over, stares into the void with eyes wide open and tears welling up in her eyes.
+The girl, held by the waist, arched backward, her eyes wide open as she stared into the void, tears streaming down her face.
 
 *腰を持たれ弓なりに仰け反った少女は、眼を見開き虚空を見つめ涙を溢れさせている。*
 
-His lips quivered with blood, and he repeated small words of forgiveness.
+Her lips trembled, bloodless, as she repeatedly murmured words of forgiveness.
 
 *唇は血の気を失い小刻みに震え、小さくひたすら許しの言葉を繰り返す。*
 
 &nbsp;
 
-A white-haired boy looks down happily at the girl.
+The white-haired boy looked down at the girl’s figure with delight.
 
 *その少女の姿を楽しげに見下ろす白髪の少年。*
 
-When the boy muttered something in her ear, the girl's eyes widened even more and she tried to scream, but her voice was inaudible.
+As he whispered something in her ear, the girl widened her eyes further, attempting to scream, but no sound came out.
 
 *その耳元で少年が何事か呟くと少女は更に目を見開き、悲鳴を上げ様とするが声が出ない。*
 
-Even if you try to escape, you can't move even slightly, as if you are locked in place by an invisible commandment.
+Even as she tried to escape, it was as if she were bound by an invisible restraint, unable to move even slightly.
 
 *逃げ出そうとしても、まるで見えない戒めで固定されているかの様に、僅かに動く事すら出来ない。*
 
 &nbsp;
 
-The girl's eyes were turning the color of despair, and her mouth opened and closed repeatedly in vain.
+The girl's eyes became stained with despair, her mouth opened and closed meaninglessly.
 
 *少女の瞳が絶望の色に染まって行く、口が無意味に開閉を繰り返した。*
 
-The boy takes the girl's left hand in front of him, brings it close to his own mouth, and kisses it tenderly.
+The boy took the girl’s left hand and brought it close to his mouth, gently kissing it.
 
 *少年は手前にある少女の左手を取り、自らの口元へ近づけ優しげに口づけをする。*
 
 &nbsp;
 
-Then he goes on to slowly tighten his grip on the girl's hand.
+Then, he slowly tightened his grip on the girl’s hand.
 
 *そしてそのまま少女の手をゆっくりと握り締めて行く。*
 
-My bones creaked with a mishri.
+A crack echoed as her bones creaked.
 
 *ミシリッと骨が軋んだ。*
 
-The girl's eyes widen even more and her mouth moves to stop, but no words come out.
+The girl widened her eyes even more, mouthing "stop," but no words came out.
 
 *少女が更に目を見開き　やめて　と口を動かすが言葉が出ない。*
 
 &nbsp;
 
-Soon, a dull sound, as if several twigs were being crushed, echoes through the room.
+Eventually, a dull sound like multiple small branches breaking resonated through the room.
 
 *やがて、幾つもの小枝が砕かれる様な鈍い音が室内に響く。*
 
-The girl bursts into tears and tries to scream from the back of her throat, but all that escapes is the sound of air.
+The girl overflowed with tears, trying to scream from the depths of her throat, but only the sound of air escaped.
 
 *少女は涙を溢れさせ、喉の奥から叫びを上げようとするが漏れ出るのは空気の音だけだ。*
 
-No sad voices leaked out.
+Her pained voice did not emerge.
 
 *悲痛な声は漏れ出ない。*
 
 &nbsp;
 
-The boy watches the girl's expression with a happy tilt of his head, and his mouth twists even more.
+The boy tilted his head, observing the girl’s expression with delight, further distorting his mouth.
 
 *少年はその少女の表情を嬉しそうに首を傾け眺め、口元を更に歪めて行く。*
 
 &nbsp;
 
-Air is squeezed out of the girl's mouth as she screams intermittently.
+As if intermittently screaming, air was squeezed out of the girl’s mouth.
 
 *断続的に悲鳴を上げる様に、少女の口から空気が絞り出される。*
 
 &nbsp;
 
-The boy grasped the girl's hand and with a yukkuri, twisted her arm in the opposite direction of her elbow joint.
+The boy held the girl’s hand and slowly twisted her arm in the opposite direction of the elbow joint.
 
 *少年は少女の手を握り、ユックリとその腕を肘の関節とは逆の方向へ捻り上げた。*
 
-The girl's arm bent in a direction it would not normally face.
+A light crack echoed, and the girl’s arm bent in a direction it should not have.
 
 *コキリ　と軽い音が響き、少女の腕が本来であれば向く筈の無い方向に折れ曲がった。*
 
@@ -139,25 +138,25 @@ The girl's arm bent in a direction it would not normally face.
 
 &nbsp;
 
-The girl opens her throat further and screams, but all that comes out is air with more force than before.
+The girl opened her throat further and screamed, but only a more forceful rush of air escaped than before.
 
 *少女は更に喉元を開き悲鳴を上げるが、出るのは先程より勢いのある空気だけだ。*
 
-The inability to speak made the girl's pain seem even greater.
+The inability to produce sound intensified her suffering.
 
 *声が出せない事が、更に少女の苦痛を大きなものに感じさせていた。*
 
-Tears flowed unceasingly from her wide-open eyes, and her pupils trembled slightly.
+Tears flowed endlessly from her wide-open eyes, and her pupils trembled slightly.
 
 *見開いた目からは涙が止めど無く流れ落ち、瞳が小刻みに震える。*
 
 &nbsp;
 
-The boy's smile deepens with joy as he senses that the girl is losing her sanity.
+Sensing that the girl was losing her sanity, the boy deepened his smile.
 
 *少女の正気が失われつつある事を感じ、嬉しげに少年は笑みを深める。*
 
-He threw out the girl's arm and grabbed her forehead with his right hand.
+He released the girl’s arm and grabbed her forehead with his right hand.
 
 *彼は少女の腕を放り出し、右手で少女の額を掴んだ。*
 
@@ -165,85 +164,85 @@ He threw out the girl's arm and grabbed her forehead with his right hand.
 
 &nbsp;
 
-The boy's fingernails are as sharp as those of a predator.
+The boy’s fingernails were sharp like those of a carnivorous beast.
 
 *少年の指先の爪は肉食獣の様に鋭い。*
 
-The boy dug his claws into the girl's temples and dragged her head down, exposing her throat.
+He dug his nails into the girl’s temple, pulling her head down to expose her throat.
 
 *少年はその爪を少女のこめかみに食込ませ、頭を引き摺り下げて喉元を曝けさせた。*
 
-The girl's eyes flicker with even more fear.
+The girl’s eyes quivered with even more fear.
 
 *少女の瞳が更に恐怖に揺れ動く。*
 
 &nbsp;
 
-The boy takes a yukuri at the girl's throat as it is.
+The boy slowly bit into the girl’s throat.
 
 *少年はそのまま少女の喉元にユックリと喰らい付く。*
 
-It's like biting into the finest fruit....
+As if sinking his teeth into a prime fruit…
 
 *まるで極上の果実にかぶり付く様に…。*
 
-The girl's body stiffens and twitches with pain and fear like never before.
+The girl’s body stiffened and convulsed with pain and fear unlike anything she had experienced before.
 
 *少女の身体がこれまでに無い程の痛みと恐怖で硬直し引き攣って行く。*
 
 &nbsp;
 
-The boy's eyes changed from cold blue to blood red, glowing and shimmering suspiciously.
+The boy’s eyes changed from a cold blue to a blood-like red, glowing ominously.
 
 *少年の瞳が冷たいブルーから血の様な赤へと変わり、怪しく光り揺らめいた。*
 
 &nbsp;
 
-As the girl's body becomes bloodless and white as wax.
+Before long, the color drained from the girl’s body, turning it waxy white.
 
 *見る見る少女の身体から血の気が失せ、蝋の様に白くなる。*
 
-Eventually, the animation disappears from his eyes, and his body loses its power, and he loses his semblance of being a living person.
+Eventually, the vitality disappeared from her eyes, and her body lost its strength, losing its appearance as a living being.
 
 *やがて目からも生気が消え失せ、身体の力も抜け落ち生者としての様相を無くしてしまう。*
 
 &nbsp;
 
-The boy removes his mouth from the girl's throat and throws her body down as if he were throwing a drink can.
+The boy pulled his mouth away from the girl’s throat and discarded her body as if throwing away an empty drink can.
 
 *少年は少女の喉元から口を離すと、その身体を飲み終わったドリンク缶でも投げる様に打ち捨てた。*
 
-The boy mopped his mouth and pulled a jewel the size of the tip of his pinky finger out of his mouth onto his tongue, which looked like a blood clot.
+He moved his mouth, and from it, he extracted a gem the size of a pinky nail, placing it on his tongue, resembling a lump of blood.
 
 *少年は口元をモゴモゴと動かし、口の中から小指の先ほどの宝石を、血の塊の様な舌の上に乗せて取り出した。*
 
 &nbsp;
 
-"Hmm, the colors aren't good, and there's a lot of fog."
+“Hmm—, the color isn’t good, and there’s a lot of cloudiness.”
 
 *「んーーっ、色味も良くないっ、曇りも多いなっ」*
 
 &nbsp;
 
-Put it back in your mouth again and let it play in your mouth as if you were licking a candy ball.
+He returned it to his mouth once more, playing with it as if it were a candy.
 
 *もう一度それを口の中に戻し、飴玉でも舐める様に口の中で遊ばせる。*
 
 &nbsp;
 
-
+“The taste is bland… Is the material not good? A brash country girl like this is about all I can expect.”
 
 *「味も大味だなっ……素材が良くないかっ…、蓮っ葉な田舎娘じゃこんなもんかっ」*
 
 &nbsp;
 
-Something began to stir in the shadowy part of the room.
+Something began to stir in the shadows of the room.
 
 *ザワザワと部屋の陰の部分で何かが蠢き始めた。*
 
 &nbsp;
 
-Oh, that's enough. Even if you leave it to die soon, it will die soon. Just get rid of it."
+“Oh, it’s fine. Even if I leave it to its last breath, it’ll die soon enough. Just get rid of it quickly.”
 
 *「あっ、もういいよっ。虫の息で放っといてもすぐ死ぬけどっ。とっとと始末しちゃってっ」*
 
@@ -251,57 +250,57 @@ Oh, that's enough. Even if you leave it to die soon, it will die soon. Just get 
 
 &nbsp;
 
-As if waiting for her words, something leaps out of the shadows and bites the girl's body.
+As if waiting for those words, something leaped out from the shadows and clung to the girl’s body.
 
 *その言葉を待って居たかのように、陰の中から何かが躍り出て少女の身体に喰らい付く。*
 
 &nbsp;
 
-It had five human-like bodies, but the tip of its nose was protruding, its mouth was wide open, and its vicious fangs were in disorder.
+It had a human-like form, but its snout protruded, and its mouth was split wide open, filled with vicious fangs.
 
 *それは人の様な五体を持ってはいるが、鼻先は突き出て、口元は大きく裂け凶悪な牙が乱立していた。*
 
-A few of these crocodile-like creatures, neither human nor beast, attached themselves to the girl's body and bared their fangs.
+Several creatures, resembling a beast or a human with such a crocodilian head, attached themselves to the girl’s body and sank their fangs into her.
 
 *そんな鰐の様な頭部を持つ獣とも人ともつかぬモノが数体、少女の身体に取り付き牙を立てた。*
 
 &nbsp;
 
-It bites into the arm and crushes and bites off the bone with its fangs.
+They bit into her arms, crushing the bones with their fangs.
 
 *腕に喰らい付き骨ごと牙で砕いて噛み切る。*
 
-He devoured the flesh of his thighs and munched on the exposed femur.
+They tore into the flesh of her thighs, gnawing at the exposed femur.
 
 *太腿の肉を食い千切り剥き出しになった大腿骨にむしゃぶり付いた。*
 
-It set its fangs on its abdomen and tore into it, dragging out the organs in its belly and devouring them.
+They sank their fangs into her abdomen, ripping it open and devouring the entrails within.
 
 *腹部に牙を立て切り裂き、腹の中の臓物を引きずり出して貪り喰らった。*
 
-They bite off the throat, drop the head, crush the cranium and sip and eat the brain inside.
+They bit through her throat, severing her head, crushing the skull, and slurping up the brain inside.
 
 *喉を噛みちぎって頭を落とし、頭蓋を砕き中の脳を啜り喰らう。*
 
 &nbsp;
 
-The girl, dying but barely alive, was thus devoured alive by the beasts and used up to satisfy their brutal desires.
+The girl, barely alive, was thus devoured by the beasts while still alive, used to satisfy their brutal desires.
 
 *瀕死ながらも辛うじて生きていた少女は、こうして獣たちに生きたまま貪られその残忍な欲望を満足させる為に使い切られた。*
 
 &nbsp;
 
-No matter how bad the food tastes, it mustn't go to waste!"
+“No matter how bad it tastes, one must not waste ingredients.”
 
 *「どんなに不味くても、食材は無駄にしちゃいけないからねっ」*
 
 &nbsp;
 
-The boy slumped in his chair and put his elbows on the table.
+The boy sat down in a chair, resting his elbows on the table.
 
 *少年は椅子に腰を落とし、テーブルに肘を付いた。*
 
-In my mouth, I am still licking around the gem I just found like candy.
+He was still savoring the gem from earlier in his mouth like candy.
 
 *口の中ではまだ先程の宝石を飴の様に舐め回している。*
 
@@ -309,31 +308,31 @@ In my mouth, I am still licking around the gem I just found like candy.
 
 &nbsp;
 
-"Mr. Orbet, you have a visitor."
+“Lord Orubetto, you have a visitor.”
 
 *「オルベット様、御面会で御座います」*
 
 &nbsp;
 
-Behind the chair in which the boy was sitting, a younger man suddenly appeared out of the shadows.
+From the shadow behind the chair where the boy sat, a young man appeared.
 
 *少年が座る椅子の背後、その影の中からスッと年若い男が現れた。*
 
-The age range is 17-8 years old.
+He seemed to be around 17 or 18 years old.
 
 *年のころは17～8歳。*
 
-He is much older than the boy called Orbet.
+He was significantly older than the boy called Orubetto.
 
 *オルベットと呼ばれた少年よりも随分年上だ。*
 
 &nbsp;
 
-Her entire body is wrapped in a colorless black butler's uniform, and her fine silver hair, brushed back in an all-back style, appears wisteria-colored in some lights.
+Dressed entirely in colorless black butler attire, his silver hair, slicked back, appeared violet in the light.
 
 *全身を色の無い黒い執事服に包まれ、オールバックに撫で付けた銀の細い髪は光によっては藤色にも見える。*
 
-He announced his visitor with his slitted, downcast eyes, the same blue as the boy's.
+He lowered his long, narrow eyes, the same blue as the boy’s, as he announced the visitor.
 
 *彼はその切れ長で、少年と同じブルーの瞳を伏せながら来客を告げた。*
 
@@ -341,139 +340,139 @@ He announced his visitor with his slitted, downcast eyes, the same blue as the b
 
 &nbsp;
 
-From the shadows behind the silver butler, a woman appeared, also like him, without a sound.
+From the shadow behind the silver butler, a woman also appeared silently, just like him.
 
 *銀の執事の後ろの影から、やはり彼と同じく音も無く女が姿を現した。*
 
 &nbsp;
 
-His appearance, which would have been that of an adult, is chillingly beautiful.
+Her appearance suggested she had reached adulthood, and she was coldly beautiful.
 
 *成人を迎えているであろうその容姿は、冷たいほどに美しい。*
 
-White porcelain skin and thick, blood-red lips.
+With porcelain skin and thick, blood-red lips.
 
 *白磁の肌に、厚みのある血の様に赤い唇。*
 
-His sky-blue tinted eyes showed thoughtful composure.
+Her sky-blue eyes displayed a thoughtful calmness.
 
 *空色に染まった瞳は思慮深い落ち着きを見せていた。*
 
-Her platinum blonde hair, neatly parted in the middle and flowing down her chest on either side, becomes more luminous the further she goes.
+Her platinum blonde hair, parted neatly in the center, flowed down to her chest, becoming more radiant as it extended.
 
 *綺麗に真ん中で別れ、流れる様に左右の胸元に落ちるプラチナブロンドの髪は、先へ行くほどに輝きを増す。*
 
-The dress, with its shoulders exposed and chest wide open, overflowed with rich twin dunes that looked as if they were about to spill out without reserve.
+The dress, which exposed her shoulders and had a deep neckline, generously showcased her ample bosom.
 
 *肩を出し胸元が大きく開かれたドレスは、惜しげも無く零れ落ちそうに豊かな双丘を溢れさせていた。*
 
 &nbsp;
 
-The dress that envelops her is a deep garnet that is even redder than blood.
+The dress enveloping her body was a deep garnet, redder than blood.
 
 *その身を包むドレスは血より尚も赤い深みのあるガーネット。*
 
-The hem of the dress and the ribbon are decorated with black to tighten the entire outfit.
+The hem and ribbons of the dress were adorned with black, accentuating the overall outfit.
 
 *ドレスの裾やリボンには黒い色味があしらわれ装い全体を締めている。*
 
-The skirt's seam at the waist was pointed downward to make her look slimmer, and the tiered skirt, which spread out in layers from there, concealed her legs and made her slender waist look thinner.
+The waistline of the skirt tapered downward to create a slimmer appearance, and the tiered skirt flared out, hiding her feet and making her slender waist appear even thinner.
 
 *ウエストのスカートの切り替え線は、より細く見せる為下へ向かって尖り、そこからフワリと幾重にも重なり広がるティアードのスカートは足元を隠し、細い腰をより細く見せていた。*
 
 &nbsp;
 
-Please excuse me for interrupting your meal. Forgive me for my impolite visit."
+“I apologize for interrupting your meal. Please forgive my rudeness for this uninvited visit.”
 
 *「お食事中失礼致します。不躾な来訪の無礼、お許しください」*
 
 &nbsp;
 
-The woman quietly bows her head and mouths an apology for the unexpected visit.
+The woman quietly bowed her head, apologizing for the sudden visit.
 
 *女は静かに頭を下げながら、突然の訪問への詫びを口にする。*
 
 &nbsp;
 
-It's totally tactless. It's totally tactless. Well, it's over now.
+“Absolutely. It’s completely uncouth. Well, it’s fine since I’m done anyway.”
 
 *「全くだよっ。全く無粋だよねっ。まぁもう終わったから良いんだけどさっ」*
 
 &nbsp;
 
-Orbet bites down on what he had been toying with in his mouth.
+Orubetto crushed what he had been toying with in his mouth.
 
 *オルベットがそれまで口の中で弄んでいた物を噛み砕く。*
 
 &nbsp;
 
-I cannot thank you enough for your generosity, Mr. Orbet. I cannot thank you enough for your generosity, Mr. Orbet.
+“I am grateful for your generosity, Lord Orubetto.”
 
 *「恐れ入ります。オルベット様のご寛大さに感謝の言葉も御座いません」*
 
 &nbsp;
 
-Without looking Orbet in the eye, the woman quietly bowed her head.
+Without looking at Orubetto, the woman quietly bowed her head.
 
 *オルベットの目も見ず女は静かに頭を下げた。*
 
 &nbsp;
 
-Tsk! So? What do you want all of a sudden? I'm your errand boy, Clarimonde the rat!
+“Tch! So? What do you want all of a sudden? You, the errand girl Clarimond!”
 
 *「ちっ！で？突然何の用っ？使いっパシリの牝鼠クラリモンドっ！」*
 
-Yes, Mr. Rodolphe has a message for you.
+“Yes, I have a message from Lord Rodulf.”
 
 *「はい、ロドルフ様からのご伝言で御座います」*
 
-I know that! You're here! What else is there to say? That's why I don't like women in heat! I'm asking you what you want!
+“I know that! You’re here! There’s nothing else, right?! This is why I dislike lustful women! I’m asking what you want from me!”
 
 *「そんな事は解ってるんだよっ！キミが来ているんだっ！それ以外無いだろうっ！？コレだから発情ボケした女は嫌なんだっ！ボクは何の用なのかを聞いてるんだよっ！」*
 
-Yes, I beg your pardon. Sir Rodolphe wishes to delay the expedition of the Knights of King's Landing to Irosio."
+“Yes, I apologize. Lord Rodulf wishes for the delay of the Iroshio expedition by the knight order in the royal capital.”
 
 *「はい、失礼致しました。ロドルフ様は王都騎士団のイロシオ遠征の遅滞をお望みで御座います」*
 
 &nbsp;
 
-The woman called Clarimonde, who did not change her color at Orbet's insult, nonchalantly conveys her business.
+Without changing her expression at Orubetto’s insult, the woman called Clarimond calmly conveyed her message.
 
 *オルベットの侮辱にも顔色を変えず、クラリモンドと呼ばれた女は淡々と用件を伝えて行く。*
 
 &nbsp;
 
-Isn't it the job of the brains over there to deal with those muscle dummies?
+“Isn’t dealing with those muscle-bound fools the job of their own brainless types?!”
 
 *「そんな筋肉ダルマ達の相手は向こうの脳筋の仕事じゃないのかいっ？！」*
 
-Mr. Hulbert is currently in the Great Forest carrying out his plans..."
+“Halbart is currently executing a plan in the Great Forest…”
 
 *「ハルバート様は大森林にて現在計画を遂行中で御座いますので…」*
 
-"Damn it! Then why don't you just go ahead and intercept them?
+“Tch! Then they should just face them head-on, right?!”
 
 *「ちっ！それならそのまま迎え撃てば良いんじゃ無いのっ？！」*
 
-That would have caused delays in our plans. That is why I am here to ask for your help.
+“If we do that, it will cause delays in the plan. Therefore, we would like to ask for your assistance, Lord Orubetto.”
 
 *「それでは計画に遅れが生じてしまいます。ですのでオルベット様にお力添えを頂きたくお伺いさせて頂きました」*
 
-Damn! You're a rough person! So? What do you want from me?
+“Tch! You’re a hard taskmaster! So? What do you want me to do?!”
 
 *「ちっ！人使いの荒い人間だなっ！で？ボクに何をさせたいのさっ？！」*
 
-Yes, the expedition needs a guide to enter the Great Forest. We will coordinate and prepare the personnel in the villages that are most familiar with the Great Forest.
+“Yes, the expedition team requires a guide to enter the Great Forest. We will arrange personnel and prepare in the village most familiar with the Great Forest.”
 
 *「はい、遠征隊は大森林へ侵入するに当たりガイドが必要で御座います。大森林に最も精通する村にて人員を調整し準備を整える事となりましょう」*
 
-Heh,...... is that supposed to be that village?"
+“Oh… So, is that village the one I’m thinking of?”
 
 *「へぇ……それは、あの村って事でいいのかなっ？」*
 
 &nbsp;
 
-Orbet's eyes, which until then had been resting on the table with his elbows on the table and his brow furrowed in a grimace, narrowed in interest.
+Orubetto, who had been leaning on the table with a frown, narrowed his eyes with interest.
 
 *それまでテーブルに肘を付き、不機嫌に眉を寄せていたオルベットの目が興味深げに細められる。*
 
@@ -481,75 +480,75 @@ Orbet's eyes, which until then had been resting on the table with his elbows on 
 
 &nbsp;
 
-Yes, in the village. I would like you to make sure that the village is not ready for the expedition.
+“Yes, it is that village. We ask that you leave the village in a state where the expedition team cannot prepare.”
 
 *「はい、かの村に御座います。オルベット様に置かれましては、村を遠征隊が準備を整えられない状態にして頂きますようお願い致します」*
 
-Does that mean you don't mind if I destroy your village?"
+“Does that mean I can annihilate the village if I want?”
 
 *「それはっ、ボクが村を壊滅させちゃっても構わないって事かなっ？」*
 
-He said he would leave the matter to Mr. Orbet."
+“They have entrusted it to you, Lord Orubetto.”
 
 *「オルベット様に一任するとの事で御座います」*
 
 &nbsp;
 
-I've been to that village before. I've been to that village before, and there were many healthy kids there. Among them, there was a girl who got the best star beads...but Rodolphe used her the other day! Well, if you say you're trying to make up for that ...... That's a little more tactful."
+“Oh… that sounds good. I’ve been to that village before, and there were many lively kids there. Among them was a particularly exceptional star jewel collector… Although Rodulf used them last time! Well, if this is meant to make up for that… Hmm! You’re showing some consideration, aren’t you?”
 
 *「へぇっ……、良いねぇっ。あの村には前にも遊びに行った事があるんだけどさっ、元気な子が沢山居たからねぇっ。中でも飛びきり極上の星珠が取れた子も居たしっ…尤もこの前ロドルフに使われちゃったけどさっ！まぁ、その事への埋め合わせのつもりだと言うならっ……ウンっ！少しは気が効いてるじゃないかっ」*
 
-Thank you.
+“I appreciate it.”
 
 *「恐れ入ります」*
 
 &nbsp;
 
-Okay, I'll go with you! I'll go with you.
+“Fine! I’ll go!”
 
 *「いいよっ！行ってあげるよっ」*
 
-Thank you. Mylord will be pleased."
+“Thank you. My lord will also be pleased.”
 
 *「ありがとうございます。マイロードもお喜びになられます」*
 
 &nbsp;
 
-Orbet extends his hand and happily announces, and Clarimonde quietly replies.
+Orubetto spread his arms and cheerfully announced, and Clarimond quietly responded.
 
 *オルベットが手を広げ嬉しそうに告げ、クラリモンドは静かに答える。*
 
 &nbsp;
 
-What? Does the king know about this? I didn't have veto power from the beginning! Well, that's all right!
+“What?! Does the king know about this?! I had no choice but to comply from the start! …Well, it’s fine!”
 
 *「なんだっ？！王様も承知してるのかっ？！端からボクに拒否権無かったんじゃないかっ！…まぁ良いけどさっ！」*
 
-I'm sorry. So, may I ask what your schedule is?"
+“I apologize. May I ask about your schedule?”
 
 *「申し訳御座いません。それで、御予定をお伺いしても宜しいでしょうか？」*
 
-I was just in Irosio a couple of days ago. Well, I feel sorry for Halbert who had to take it back. ...... No, he doesn't care about that necrophilia! But I'm just getting settled in here. Shouldn't I visit you in the fall?"
+“Well, I just went to Iroshio not long ago. I sympathize with Halbart, who has to turn back… No, that necrophiliac probably doesn’t care! But I just settled here! Is it not a problem if I visit in the autumn?”
 
 *「そうだねっ、イロシオへはついこの前行って来たばかりだしねっ。まぁ取って返す事になったハルバートには同情もするけどっ……いや、あのネクロフィリアじゃ気にもしてないかっ！でもボクはココには落ち着いたばかりなんだよっ。秋口にお邪魔するんじゃいけないかいっ？」*
 
 &nbsp;
 
-No problem at all. I will inform Mr. Rodolphe accordingly.
+“No problem at all. I will convey that to Lord Rodulf.”
 
 *「何ら問題御座いません。それではロドルフ様にはその様にお伝えいたします」*
 
-"Oh, I'm looking forward to working with you. But then again, it's hard for you to work for a human, isn't it? Oh, in your case, you serve them because you like it, right? Ha ha! Well, good luck!
+“Ah, thank you. By the way, it must be tough serving humans, huh? Oh, in your case, you enjoy it, right? Haha! Well, do your best!”
 
 *「ああっ、よろしく頼むよっ。それにしてもっ、キミも人間なんかに仕えて大変だねっ？あっ、キミの場合好きで盛ってるんだっけっ？ははっ！まぁ呉々も頑張っておくれよっ！！」*
 
-Thank you for your concern. Thank you very much for your concern. I hope you will be able to carry out your duties safely. Now, if you will excuse me.
+“I appreciate your concern. I pray that your duties will be fulfilled safely. I will take my leave now.”
 
 *「お気使い有難う御座います。無事お役目が遂行できますようお祈り申し上げております。それではこれにて失礼致します」*
 
 &nbsp;
 
-Clarimonde mechanically greeted his exit, bowed his head once more deeply, and disappeared directly into the shadows.
+Clarimond mechanically offered her farewell, bowed deeply, and then vanished into the shadows.
 
 *クラリモンドは機械的に退出の挨拶を述べ、一際深く頭を下げるとそのまま影の中へと消えて行った。*
 
@@ -557,41 +556,40 @@ Clarimonde mechanically greeted his exit, bowed his head once more deeply, and d
 
 &nbsp;
 
-"Hmph! A rat in heat, shaking her ass at a human!"
+“Hmph! A lustful female rat shaking her tail at humans!”
 
 *「ふんっ！人間に尻を振る発情しっ放しの牝ネズミがっ！」*
 
 &nbsp;
 
-He stares at Clarimonde's vanished shadow with abhorrence.
+He glared at the shadow where Clarimond had disappeared with disdain.
 
 *忌々しげにクラリモンドの消えた影を睨みつける。*
 
 &nbsp;
 
-Ahab! I'm going out! The inside of the mansion is suffocating with the smell of vile rutting bitches! Keep it clean!"
+“Eihabu! I’m going out! The mansion is suffocating with the vulgar scent of lustful females! Clean it up!”
 
 *「エイハブっ！出かけるっ！屋敷の中が下品な発情した牝臭さで息が詰まるっ！！綺麗にしておけっ！」*
 
-"Ha, ha! Master Orbet, what shall we do with my companions?"
+“Understood! Lord Orubetto, what shall we do with the others?”
 
 *「はっ！オルベット様、共の者は如何いたしましょう？」*
 
-I'm hunting for a change of pace! Whoever ...... is going, let's take Doug and Eliza with us. It'll be fun to watch them hunt."
+“A hunting trip for a change! No one… No, I’ll take Doug and Eliza with me. Watching their hunt will be entertaining too.”
 
 *「気分転換の狩りだっ！誰もっ……いやっ、ダグとイライザを連れて行こうっ。あの子たちの狩りを見るのも一興だしなっ」*
 
-Yes, sir. We'll have everything ready for you right away.
+“Yes, I will prepare immediately.”
 
 *「はい、直ちに支度を整わせます」*
 
-I don't like it! I don't like it. ...... Tribune Village, now that's something to look forward to."
+“Hmph! I don’t like it, but… the village of Tribune, huh? That’s one thing to look forward to.”
 
 *「ふんっ！気に食わないがっ……トリビューンの村かっ、楽しみが一つ出来たなっ」*
 
 &nbsp;
 
-Orbette's mouth twisted into an ugly smile and she swayed as she dissolved into the water and disappeared into the shadows.
+Orubetto twisted his mouth into an ugly grin and dissolved into the shadows as if melting into the water.
 
 *オルベットが口元を醜く歪ませ、ユラリと揺れながら水へ溶ける様に影へと同化し消えて行った。*
-

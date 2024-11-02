@@ -1,588 +1,586 @@
-# 114 Episode 114 Leave it to Annie!
+# Chapter 114: Leave It to Annie!
 
 ## 114話　アニーにおまかせ！
 
-What do you mean? Ron."
+"What does this mean? Ron?"
 
 *「どう言う事だ？ロン」*
 
-Just as I saw it.
+"It's just as you see."
 
 *「見た通りだ」*
 
-No, I don't know! I don't know!
+"No! I don't get it!!"
 
 *「いや！わかんねぇって！！」*
 
 &nbsp;
 
-Lombardo's curt response is met with an involuntary tsk-tsk from Irving.
+Arvin couldn't help but interject at Ronbart's blunt answer.
 
 *ロンバートの淡白な答えに、アーヴィンが思わずツッコミを入れる。*
 
 &nbsp;
 
-For the most part, I don't understand the situation.
+Overall, the situation was quite unclear.
 
 *大体にして状況がよく分からない。*
 
-I tried to find the head chef in the cafeteria, who was in charge there, but there was no sign of him inside.
+He had tried to find the head chef, who was responsible for the dining hall, but it seemed he wasn't inside.
 
 *食堂の中で、そこの責任者である料理長を探してみたが、中には居る様子が無かった。*
 
-Suddenly, I noticed that there was a lot of noise outside, and when I came outside, I found that the head chef had a scrunched-up face in front of Annie.
+Suddenly noticing the commotion outside, he stepped out to find the head chef, Toby, grimacing in front of Annie.
 
 *ふと、表が騒がしい事に気が付き、外に出て来てみれば、当の料理長がアニーを前に顔を引き攣らせている。*
 
-What do you say happened in this short period of time?
+What on earth happened in such a short time?
 
 *この短時間に何があったと言うのか？*
 
 &nbsp;
 
-I don't understand.
+It didn't make sense.
 
 *意味が分からない。*
 
 &nbsp;
 
-Oi! Irving! Lombard! You guys know this kid?
+"Hey! Arvin! Ronbart! Do you guys know this kid?!"
 
 *「オイ！アーヴィン！ロンバート！お前らこの子の知り合いか？！」*
 
 &nbsp;
 
-Toby, the head chef, shouted to Irving for help.
+Toby, the head chef, called out to Arvin as if seeking help.
 
 *料理長であるトビーが、アーヴィンに助けを求める様に声を上げた。*
 
 &nbsp;
 
-Yeah, but..."
+"Yeah, I do."
 
 *「ああ、そうだけど」*
 
-Then do something about it!"
+"Then do something about it!"
 
 *「なら何とかしてくれよ！」*
 
-No, so what's the situation?"
+"No, but what’s the situation here?"
 
 *「いや、だからどう言う状況だよ？」*
 
-This man was trying to ramble on to these kids!"
+"This person was trying to bully these kids!"
 
 *「この人が、この子達にらんぼうしようとしていたのよ！」*
 
-I didn't!
+"I wasn't!!"
 
 *「して無ぇって！！」*
 
 &nbsp;
 
-Annie stood in front of Toby, protecting the two small children, and gave him a sharp look.
+Annie stood in front of Toby, protecting the two small children, glaring sharply at him.
 
 *アニーが、小さな子供2人を庇う様にトビーの前に立ち、鋭い視線を投げつけていた。*
 
-In response, Toby complains to Irving that it was a misunderstanding.
+In response, Toby pleaded with Arvin, claiming it was a misunderstanding.
 
 *それに対し、トビーは誤解だとアーヴィンに訴える。*
 
 &nbsp;
 
-I don't know, man. Toby, what's going on?"
+"Yeah, I still don't get it. Toby, for now, just tell me what happened."
 
 *「うん、やっぱり分からねぇ。トビー、取り敢えず何があったんだよ」*
 
 &nbsp;
 
-This little guy was asking me to do his job, and I told him I couldn't do it, so I turned him away."
+"These little brats were saying they wanted to work, so I just sent them back, saying that was impossible."
 
 *「このチビ供が、仕事をさせろとか言うから、そんなの無理だと追い返しただけだ」*
 
 &nbsp;
 
-'These kids just rolled out the door! This man threw these little ones out!"
+"These kids rolled out from the door! This person threw such small children out!!"
 
 *「この子達、扉から転がり出て来たわ！この人こんな小さな子を放り出したのよ！！」*
 
-I was like, "No, no! I opened the door and it just rolled right off. ......"
+"N-no! They just rolled out as soon as I opened the door..."
 
 *「い、いや！扉を開いたら、そのまま転がって行っちまっただけで……」*
 
 &nbsp;
 
-Irving knows. He knows it empirically.
+Arvin knew. He knew from experience.
 
 *アーヴィンは知っている。経験則で知っている。*
 
-When a girl is going through a rough patch, if you object poorly, as far as I'm concerned, it's not going to get you anywhere.
+That when a girl is in a rage, opposing her carelessly leads to nothing good.
 
 *女の子が荒ぶっている時に、下手に異を唱えると碌な結果にならないと言う事を。*
 
 &nbsp;
 
-Especially the more impassioned a girl is, the more she knows never to touch it once it is lit.
+Especially with passionate girls, once they get fired up, you should never touch them.
 
 *特に、激情的な女の子ほど、一旦火が付いた時には決して触ってはいけないと知っている。*
 
-I know things very well, in familiar places!
+He knew this all too well from personal experience!
 
 *身近な所で、物凄く良く知っている！*
 
 &nbsp;
 
-I don't think it's manly to play nice!"
+"I think making excuses isn't very manly!!"
 
 *「いいわけをするのは男らしくないと思うわっ！！」*
 
 &nbsp;
 
-Irving looked up at Annie, who was even angrier than before, and wondered what she had seen.
+Seeing Annie's anger escalate beyond what it was before, Arvin looked up to the heavens, as if to say, "I told you so."
 
 *それまで以上の怒気をはらんだアニーの様子に、アーヴィンはそれ見た事かと天を仰ぐ。*
 
-Whenever Toby says a word back, Annie's verbal attacks intensify.
+Every time Toby tried to say something, Annie's verbal attacks grew fiercer.
 
 *トビーが何か一言返すたび、アニーの口撃は激しさを増す。*
 
 &nbsp;
 
-My brothers also said.
+His older brothers had said the same.
 
 *兄貴たちも言っていた。*
 
-A girl is a girl, no matter how young. They should not go against an angry girl.
+No matter how young they are, girls are still girls. You should never oppose an angry girl.
 
 *たとえどんなに幼くとも、女の子は女の子だ。怒り狂っている女の子に逆らってはいけないのだ。*
 
 &nbsp;
 
-Once this happens, a poor stimulus can be fatal.
+Once it reached this point, any careless provocation could be deadly.
 
 *こうなってしまったら、下手な刺激は命取りに成り兼ねない。*
 
-Irving quietly and gently turned away from Toby, who was being punched and sandbagged by the words.
+Arvin quietly averted his gaze from Toby, who was being battered by words like a punching bag.
 
 *アーヴィンは、言葉に殴られサンドバックになっているトビーから、静かにそっと目を背けた。*
 
 &nbsp;
 
-Then, as if there is only one way to solve the problem, he addresses the other party.
+Then, as if the only way to resolve this was to speak to the other party involved, he turned to the other person.
 
 *そして、解決の糸口はこちらにしか無いという様に、もうひと方の当事者へ言葉をかける。*
 
 &nbsp;
 
-'Did you guys do something terrible to this old guy?'
+"Did this old man do something terrible to you?"
 
 *「お前ら、このおっちゃんに酷い事されたのか？」*
 
-Oh, no, that's not true."
+"No, that's not true."
 
 *「そ、そんなことはないの」*
 
-They haven't done anything to me.
+"Nothing happened."
 
 *「なにも、されてないの」*
 
 &nbsp;
 
-But they threw you out the door, didn't they?"
+"But you were thrown out from the entrance, right?"
 
 *「でも、入り口から放り出されたんだろ？」*
 
-I was so scared I fell over!"
+"I-I got surprised and just rolled out!"
 
 *「び、びっくりしてころんじゃったの！」*
 
-I fell down with him!
+"I rolled out too!"
 
 *「ボクもいっしょにころがっちゃったの！」*
 
 &nbsp;
 
-The two of them are in sync with each other. If you look closely, they both look alike.
+They really seemed to be in sync. Upon closer inspection, they looked very similar.
 
 *息のあった2人だな。よく見れば2人共ソックリだ。*
 
-Are these guys twins?
+Are they twins?
 
 *コイツら双子か？*
 
 &nbsp;
 
-What brings you guys to this place?"
+"Why did you come to this place?"
 
 *「何でお前ら、こんな所に来たんだ？」*
 
-I'm here to get a job!"
+"We came to get a job!"
 
 *「おしごとをもらいにきたの！」*
 
-I want my money!"
+"We want money!"
 
 *「おかねがほしいの！」*
 
 &nbsp;
 
-Work?
+"A job?"
 
 *「仕事？」*
 
-Mark told me this before!"
+"Mark said something before!"
 
 *「まえにマークがいってたの！」*
 
-I've been hired here!"
+"He said we could work here!"
 
 *「ここでおしごとしてもらったって！」*
 
 &nbsp;
 
-Who's Mark?"
+"Who is Mark?"
 
 *「マークって誰だ？」*
 
-I was with you before!"
+"He was with us before!"
 
 *「まえにいっしょにいたの！」*
 
-I'm the same guy who used to work with you!"
+"He was the older brother who was with us!"
 
 *「いっしょにいたおにいさんなの！」*
 
 &nbsp;
 
-Why did you want the money?"
+"Why did you want money?"
 
 *「何でお金が欲しかったんだ？」*
 
-My sister is in trouble!"
+"My older sister is in trouble!"
 
 *「おねえちゃんがたいへんなの！」*
 
-I'm trying to save my sister!
+"I want to help my older sister!"
 
 *「おねえちゃんをたすけたいの！」*
 
 &nbsp;
 
-When I asked her why the "lady" was having a hard time, she didn't really get the point and didn't really understand.
+Even when he asked why that "older sister" was in trouble, he couldn't quite grasp it.
 
 *なんでその『おねえちゃん』が大変なのかを聞いても、どうも要領が得ず良く分からない。*
 
-But it was clear to Irvin that the two were serious about wanting the job.
+However, Arvin understood that the two were genuinely seeking work.
 
 *しかし、2人が本気で仕事を求めている事は、アーヴィンにもよく分かった。*
 
 &nbsp;
 
-Toby, have you ever put a kid to work before?"
+"Toby, have you ever made kids work before?"
 
 *「トビー、前に子供に仕事させた事あんのか？」*
 
 &nbsp;
 
-Irving, who had somehow relaxed his anger toward Toby slightly, turned to Annie, who had been listening to these children, and Toby, who was still quiet, and asked the stern-faced man.
+Arvin had unconsciously eased his anger towards Toby and turned his attention to Annie, who was listening intently to the children's story, and Toby, who had also quieted down, and questioned the stern-faced man.
 
 *アーヴィンは、いつの間にかトビーに対する怒気をわずかに緩め、この子達の話に聞き耳を立てていたアニーと、やはり大人しくなっているトビーに目を向け、その厳つい顔の男に問いかけた。*
 
 &nbsp;
 
-No. ...... work?"
+"Well... work?"
 
 *「いやぁ……仕事？」*
 
-They must have tricked me and stiffed me anyway!"
+"You're just trying to trick them and make them work, aren't you?"
 
 *「どうせだまして、こき使ったに違いないわ！」*
 
-No, no! That's not ....... Yeah, but I'd call it work, ah, ......."
+"N-no! That's not it... But, well, I guess you could call it work..."
 
 *「い、いや！そんな事は……。あぁ、でも仕事って言うかな、ありゃぁ……」*
 
-Do you have any idea what's going on?
+"Do you have any idea what you're talking about?"
 
 *「何か、心当たりあんのか？」*
 
-The other day there was a little boy who wandered into the house. I fed him leftovers, and he said he was thanking me and helped me sweep the floor.
+"There was a little brat who wandered in the other day. I fed him leftovers, and he helped clean the floor as a thank you."
 
 *「この前、迷い込んでた小僧がいてな。残りモン食わせてやったら、お礼だとか言って床掃除手伝ってくれたんだわ」*
 
-"......"
+"…"
 
 *「……」*
 
-I'm not sure why you're staring at me, girl! I once gave her a five-kuple copper coin as a reward. ......
+"W-why are you glaring at me, girl?! And I did give him 5 copper coins as a tip, but…"
 
 *「な、なんで嬢ちゃん睨むんだよ？！ンでな、駄賃だっつって、５クプル銅貨渡してやった事はあったけどな……」*
 
 &nbsp;
 
-"5c hey ....... You guys talking about that?"
+"5c, huh... Is that what you’re talking about?"
 
 *「５cねぇ……。お前ら、それの事か？」*
 
-I'm not sure."
+"“We don’t really understand.”"
 
 *「「よくわからないの」」*
 
-I don't know, but he said he cleaned up!"
+"We don't know, but he said he cleaned!"
 
 *「わからないけど、おそうじしたっていってたの！」*
 
-I said I got it!
+"He said he received something!"
 
 *「どうかもらったっていってたの！」*
 
 &nbsp;
 
-Apparently, these twins had come here to work together, relying on what they had heard before.
+It seems these twins came here relying on a story they heard before, hoping to get work together.
 
 *どうやらこの双子は、前に聞いた話を頼りに、2人でここまで仕事をさせてもらいに来たらしい。*
 
 &nbsp;
 
-We're going to clean up!"
+"We want to clean!"
 
 *「わたしたち、おそうじするの！」*
 
-We want to work!
+"We want to work!"
 
 *「ぼくたち、おしごとさせてほしいの！」*
 
 &nbsp;
 
-Toby is in charge of this diner.
+The person in charge of this dining hall is Toby.
 
 *この食堂の責任者はトビーだ。*
 
-Even if we are dealing with such a young child, if we let him work here, that is a decision Toby can make on his own.
+Even if it’s such young children, if they were to work here, it would be Toby's decision alone.
 
 *たとえこんな幼い子供相手でも、ここで仕事をさせるとしたら、それはトビーの独断で決定できる。*
 
-I don't know how I'll excuse myself to my sister later. ......
+He didn't know how he would explain it to the boss later...
 
 *後で姉御にどう言い訳するかは知らないけどな……。*
 
 &nbsp;
 
-Irving turned his attention back from the twins to Toby and asked probingly.
+Arvin turned his gaze back to Toby and asked, probing.
 
 *アーヴィンは、双子からトビーに目を向け直し、探る様に問いかけた。*
 
 &nbsp;
 
-What do you think, Toby? Are you going to let these guys do their job?"
+"So, what do you say, Toby? Are you willing to let them work?"
 
 *「どうなんだよトビー。コイツ等に仕事させる気あるのか？」*
 
-What are you talking about, Irving? I can't believe I'm leaving these kids in the hands of such a rambunctious man!"
+"What are you saying, Arvin! I can't leave these rambunctious kids with this guy!"
 
 *「なに言ってるのアーヴィン！こんならんぼうな人にこの子達をまかせるなんて！」*
 
 &nbsp;
 
-Annie, with an angry look in her eyes, slams Toby with one word, "Such a rambunctious person," and complains to Irving that she cannot accept entrusting these children to him.
+Annie, with a gaze filled with anger, threw the words "this rambunctious guy" at Toby, pleading with Arvin that she couldn't accept leaving these kids with him.
 
 *アニーは、怒りの籠った眼差しを蓄え「こんならんぼうな人」という一言をトビーに叩き付け、コイツにこの子達を任せるなんて承服出来ない、とアーヴィンに訴える。*
 
-Toby, confronted with a hard stare, looks momentarily intimidated, "Ugh! but he still makes his will known.
+Toby, confronted with her fierce glare, showed a moment of hesitation, but still insisted on his stance.
 
 *きつい眼差しを突き付けられたトビーは、一瞬「うっ！」と怯んだ様子を見せるが、それでも自分の意思を通す。*
 
 &nbsp;
 
-'Yes, pretty much! In the kitchen, there are knives and fire! What do you think will happen if you tip over the oil? You can't just let a little kid like this in here!"
+"F-first of all! The kitchen has knives, and we use fire! What do you think would happen if oil spilled?! There's no way I can let such little kids in here!"
 
 *「だ、大体だな！厨房は刃物は置いてあるし、火も使う！油なんかひっくり返したらどうなると思ってんだ？！こんな小っちぇガキ、入れられるワケねぇだろが！」*
 
-But you've had him do it before, right?"
+"But you let them work before, right?"
 
 *「でも、前にやらせた事あんだろ？」*
 
-I was cleaning the hall. I didn't let them in the kitchen.
+"That was just cleaning the hall. I didn't let them into the kitchen."
 
 *「あれはホールの掃除だったんだ。厨房にゃ入れさせて無ぇ」*
 
 &nbsp;
 
-I see," sighed Irving, speaking to Annie in a hushed tone.
+I see, Arvin sighed and spoke to Annie in a calming manner.
 
 *なるほどな、とアーヴィンは嘆息し、アニーに宥める様に話しかけた。*
 
 &nbsp;
 
-Toby is a sweet old man with a bad mouth," he said. The point is, he doesn't want the kid to get hurt. You're worried about your kids, right? Right?
+"Well, you see, Toby may have a bad mouth, but he's actually a kind old man. The point is, he doesn't want to see kids get hurt. He's worried about them, right?"
 
 *「まあ、あれだ、トビーは口は悪いが、こう見えて優しいおっさんなんだよ。要は子供に怪我させたくないんだ。子供が心配でしょうがないんだろ？な？」*
 
-"...... shut the fuck up."
+"…Shut up."
 
 *「……うるせぇな」*
 
-'Stop it, don't go red ...... nice old man is disgusting.'
+"Don't turn red... It’s creepy for a good guy to be like that."
 
 *「やめろよ赤くなるなよ……いいおっさんが気持ち悪ぃよ」*
 
-Shut up!
+"Shut up!!"
 
 *「うるせぇな！！」*
 
 &nbsp;
 
-I don't trust him! It's too dangerous to entrust these children to such a man!"
+"I can't trust someone like that! It's way too dangerous to leave these kids with a person like him!"
 
 *「そんなの信用できないわ！この子達を、こんな人にまかせるなんて危険すぎるわ！」*
 
 &nbsp;
 
-Annie, who looked at the two of them with a scowl, was still incredulous and prodded.
+Annie, looking at the two with suspicious eyes, firmly rejected the idea, still unable to believe it.
 
 *2人の様子を胡乱な目で見るアニーは、やはり信じられないと突っぱねた。*
 
-Irving looks at Toby with eyes that see something unfortunate.
+Arvin looked at Toby with a disappointed gaze.
 
 *アーヴィンが、残念な物を見る目でトビーを見る。*
 
 &nbsp;
 
-But Annie, who was still in a rough state, had a small hand outstretched to her.
+However, just then, small hands reached out towards the still agitated Annie.
 
 *だか、未だ荒ぶるアニーに、小さな手が伸ばされた。*
 
 &nbsp;
 
-Please, onee-chan, we want to do a job! We want to work!
+"Please, big sister! We want to work!"
 
 *「おねがいおねえちゃん！わたしたちおしごとしたいの！」*
 
-Onee-chan, please! We want to clean the house!
+"Please, big sister! We want to clean!"
 
 *「おねえちゃんおねがい！ぼくたちおそうじしたいの！」*
 
-"......?!"
+"…?!"
 
 *「……？！」*
 
 &nbsp;
 
-Annie received the request head-on as the twins came up beside her, grabbed her by the sleeves from both sides, and looked up at her with wide eyes.
+Annie was taken aback as the twins approached her, grabbing her sleeves and looking up at her with big eyes, making their request directly.
 
 *アニーは、傍に寄って来た双子に両脇から袖を掴まれ、大きな目で見上げられながらされたお願いを、真正面から受け取ってしまった。*
 
-And for that moment, I froze in my tracks.
+In that moment, she froze.
 
 *そしてその一瞬、思わず固まっていた。*
 
-As she gazed into those moist, glassy, cerulean blue eyes, she felt something rising up from deep within her chest.
+Staring into their glass-like, cerulean blue eyes, she felt something welling up from deep within her chest.
 
 *その潤んだガラスの様な、セルリアンブルーの瞳に見つめられ、胸の奥から何かが込み上げて来るのを感じていたのだ。*
 
 &nbsp;
 
-"...... lady?"
+"…Big sister?"
 
 *「……おねえちゃん？」*
 
-I'm begging you! Onee-chan!"
+"Please! Big sister!"
 
 *「おねがいなの！おねえちゃん！」*
 
-Onee-chan! I'm begging you!"
+"Big sister! Please!"
 
 *「おねえちゃん！おねがいなの！」*
 
 &nbsp;
 
-Every time the twins call me "Onee-chan," something deep in my chest grows. I can't take my eyes off of them.
+Every time they called her "big sister," something deep within her grew larger. She couldn't take her eyes off them.
 
 *双子に「おねえちゃん」と呼ばれるたび、胸の奥の何かが大きくなっていく。二人から目が離せない。*
 
 &nbsp;
 
-Something is swirling inside Annie right now.
+Right now, something was swirling within Annie.
 
 *今、アニーの中で何かが渦巻いている。*
 
 &nbsp;
 
-My favorite brother William, my sister Colin, and my gallant sister Sue. ......
+Her beloved brother William, her sister Colin, and the dignified sister Su...
 
 *大好きなウィリアムお兄さまにコリンお姉さま、そして凛々しいスー姉さま……。*
 
 &nbsp;
 
-Until now, I have been a "younger sister," the one who is protected.
+Until now, she had always been the "younger sister," a being who was protected.
 
 *自分はこれまで、『妹』という庇護される側の存在だった。*
 
-There was also the feeling and joy of being constantly protected by the older brothers and sisters that I admired.
+She had always felt the joy and reassurance of being protected by her admired older brothers and sisters.
 
 *憧れるお兄さまやお姉様達に、常に守られていると言う実感や喜びもあった。*
 
 &nbsp;
 
-At the same time, however, he was also aware that he always had a thirst to catch up and stand in line.
+But at the same time, she was always aware of her desire to catch up and stand alongside them.
 
 *だが同時に、そこに追いつきたい、並び立ちたいと言う渇望も、常に自分の中にある事も自覚していた。*
 
 &nbsp;
 
-I'm going to go to ...... and ask her, "Hey, lady? You mean me?"
+"…Big sister? Are you talking about me?"
 
 *「……おねえちゃん？わたしの事？」*
 
-I said, "Yes, I am! I'm a onee-chan! I'm a onee-chan!"
+"“Yes! You're the big sister! Please!!”"
 
 *「「そうなの！おねえちゃんなの！おねがいなの！！」」*
 
-"......!!!!"
+"…!!"
 
 *「……！！」*
 
 &nbsp;
 
-Here and now are young children who call themselves "Onee-chan" and come to rely on and cling to me.
+Here, there were young children who called her "big sister" and were relying on her.
 
 *今ここに、自分を「おねえちゃん」と呼び、頼り縋って来る幼い子たちがいる。*
 
-He looks at me like he does when he depends on his brothers and sisters, and he clings to me, asking me to do something about it.
+They looked at her with the same eyes she had when she relied on her brothers, pleading for her to do something.
 
 *自分が兄たちに頼る時の様な目で、自分に何とかして欲しいと縋って来ている。*
 
 &nbsp;
 
-"...... got it."
+"…I understand."
 
 *「……わかったわ」*
 
 &nbsp;
 
-It was then that something was born within Annie.
+At that moment, something was born within Annie.
 
 *その時、アニーの中で何かが生まれたのだ。*
 
 &nbsp;
 
-I'll take care of everything! I'll take care of everything!
+"I understand! Leave everything to me!!"
 
 *「わかったわ！全部わたしにまかせておきなさい！！」*
 
 &nbsp;
 
-"Huh?!"
+"“Huh?!!”"
 
 *「「はあぁぁ？！！」」*
 
 &nbsp;
 
-Irving and Toby asked, "What is this kid talking about all of a sudden?" They shouted at the same time.
+Arvin and Toby both exclaimed simultaneously, "What is this child suddenly saying?"
 
 *アーヴィンとトビーが、「この子は突然何を言ってるんだ？」と同時に声を上げていた。*
-
-
 
 &nbsp;
 
@@ -594,17 +592,16 @@ Thank you for reading.
 
 &nbsp;
 
-Thank you for your buzz and your rating! We are always encouraged!
+Thank you for your bookmarks and evaluations! They always motivate me!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
 
 &nbsp;
 
-It has been a long time since I have posted a series of articles.
+I will be posting in quick succession after a long time.
 
 *久々に連投します。*
 
-Five episodes will be dropped on consecutive days.
+I plan to release 5 chapters in a row.
 
 *5話を連日投下予定です。*
-

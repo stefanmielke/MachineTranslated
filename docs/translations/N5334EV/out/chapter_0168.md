@@ -1,118 +1,118 @@
-# 156 Episode 156 After-the-Fact Processing? Accidental Disposal?
+# Episode 156: Aftermath? Accident Handling?
 
 ## 156話　事後処理？事故処理？
 
-It is well known that the land of this school was originally the site of a nobleman's mansion.
+It is a well-known story that the land of this academy was originally the site of a noble's mansion.
 
 *この学園の土地が、元々は貴族のお屋敷跡だったと言う事は有名な話である。*
 
-The Temple Authority was the first to purchase this land after the original owner, a nobleman, was disinherited, and it was used as a temple facility for a while.
+After the original noble owner was disinherited, the first to purchase this land was the temple office, and it was said to have been used as a temple facility for a while.
 
 *元の持ち主である貴族が廃嫡した後、この土地を最初に買い取ったのが神殿庁で、暫くは神殿の施設として使われていたのだそうだ。*
 
-It is also known that the school building now used by the theology department was the great temple of the time.
+It is also a well-known fact that the school building currently used by the theology department was the great temple of that time.
 
 *今、神学科が使用している校舎は、当時の大神殿だったというのも知られた話だ。*
 
-The other facilities, such as the auditorium, are said to have been reused from the chapel and other temple facilities of the time.
+Additionally, many of the lecture halls and facilities are said to be repurposed from the temple facilities that were once chapels.
 
 *その他にも、幾つもある講堂やら施設とかは、当時の礼拝堂とかの神殿施設だった物の再利用なのだと言う。*
 
 &nbsp;
 
-Perhaps that is why priests still come and go in the school, and part of it still maintains its function as a temple, as it should.
+Perhaps because of this, there are still priests coming and going within the academy, and some parts naturally retain their function as a temple.
 
 *だからなのだろう、今も学園内には神官様が出入りしているし、その一部は当然のように神殿としての機能も保っている。*
 
-That's why you can take theology classes at the school.
+This is also why theology classes can be taken at the academy.
 
 *神学科の授業が学園で受けられるのもその為だね。*
 
 &nbsp;
 
-There is one role of the temple that I have known for a long time.
+There is one role of the temple that I have known for quite some time.
 
 *神殿の役割として、わたしも随分前から知っている物がひとつある。*
 
 &nbsp;
 
-It's role is to protect children without parents.
+That is the role of protecting children without parents.
 
 *それは、親のない子供を保護するという役割。*
 
 &nbsp;
 
-The two caretakers of the Purple House, for example, never returned to the facility that day.
+On that day, the two managers of the infamous Purple House never returned to the facility.
 
 *あの日、例のパープルハウスの管理人の2人は、施設に戻って来る事はなかった。*
 
-The drowned bodies of two people, a man and a woman, were reportedly raised in the Maguarat River in the early afternoon of that day.
+In the afternoon of that day, two bodies, a man and a woman, were found drowned in the Maguarat River.
 
 *当日の昼過ぎ、マグアラット河に男女2人の水死体が上がったという。*
 
-Although their faces were not in a condition to be recognized, there was no doubt that they were probably the two janitors.
+Their faces were unrecognizable, but it was probably without a doubt the two managers in question.
 
 *顔が判別出来る状態では無かったが、恐らく例の管理人の2人で間違いは無い。*
 
-I must have been unlucky to get caught up in this mess, AnnaMarie said.
+Anna Mary said they were likely caught up in this unfortunate mess.
 
 *今回のゴタゴタに運悪く巻き込まれたのだろうと、アンナメリーは言っていた。*
 
 &nbsp;
 
-Because of this, the children at the institution were temporarily placed in the care of the Consulate of Amcam, arranged by Uncle Philip.
+Because of this, the children from the facility were temporarily taken to the Amukam Consulate, arranged by Uncle Philip.
 
 *そんな事もあり、施設の子供達はフィリップ叔父様のお手配で、アムカム領事館に一時預かりになった。*
 
-They will go to the new facility in the order in which the paperwork is completed.
+Once the administrative procedures are completed, they will be sent to a new facility in order.
 
 *事務的な手続きが済んだ順から、新しい施設に向かう事になるそうだ。*
 
-This time it's a solid facility, managed by the municipality of De Kembel.
+This time, it is said to be a reliable facility managed by the Dekkenbel municipality.
 
 *今度はデケンベルの自治体が管理する、確かな施設なのだと言う事だ。*
 
 &nbsp;
 
-It was decided that the twins would be transferred to an infant house managed by the school's temple.
+The twins have been decided to be transferred to the nursery managed by the temple within the academy.
 
 *双子ちゃん達は、学園内の神殿が管理する幼児舎へと編入する事が決まった。*
 
 &nbsp;
 
-Originally, they were supposed to go in there, but somehow they ended up going to an outside private facility. ......
+Originally, they were supposed to enter there from the beginning, but somehow they ended up going to an external private facility...
 
 *本来は、元よりそこへ入る筈だったのに、何処をどう間違ったのか外部の民間施設に行く事になったのだとか……。*
 
-Right now, they need a little more time with the paperwork to get it back to the way it should be.
+Now, it seems that a little time is needed for the administrative procedures to return things to their rightful state.
 
 *今は、本来あるべき形に戻す為の事務手続きで、少しばかりの時間が必要なのだとか。*
 
-In the meantime, the twins will remain in the care of the consulate.
+During that time, the twins will continue to be cared for at the consulate.
 
 *その間、双子ちゃんはそのまま領事館にお世話になるのだそうだ。*
 
 &nbsp;
 
-Nevertheless, my uncle told me that I should be able to enter a facility within the school by the end of this week.
+Even so, Uncle Philip told me that they should be able to move into the academy's facility within this week.
 
 *それでも、今週中には学園内の施設へ入舎は出来る筈だと、叔父様は教えて下さった。*
 
 &nbsp;
 
-Karen was given permission to stay outside at the Amcam consulate so that she could stay with the twins until they moved into the school.
+Karen had received permission to stay overnight at the Amukam Consulate so that she could be with the twins until they moved to the academy.
 
 *カレンは、双子ちゃん達が学園内へと移るまでの間、2人と一緒に居られるように、アムカム領事館へ外泊する許可が下りていた。*
 
-It is said that the school's president himself made the decision not to separate the students from their only living relatives under such circumstances.
+It seems that the academy's director himself was considerate enough not to separate them from their only living relatives in such a situation.
 
 *流石にこんな状況下で、唯一の肉親と引き離すのは忍びないと言う、学園理事長自らのご配慮なのだそうだ。*
 
-He is a man of great chic.
+He is quite a thoughtful person.
 
 *中々に粋な計らいをされる方だ。*
 
-Needless to say, my liking for the chancellor has skyrocketed, even though I have yet to meet him.
+Although I haven't met him yet, it goes without saying that my favorability toward the director has skyrocketed.
 
 *まだお会いした事は無いけれど、わたしの中で理事長への好感度が急上昇したのは言うまでも無い。*
 
@@ -126,55 +126,55 @@ Needless to say, my liking for the chancellor has skyrocketed, even though I hav
 
 *「あら？スー、ご機嫌よう」*
 
-"Dear Carrie! Good day, sir."
+"Lady Carrie! I-I’m well."
 
 *「キャリー様！ご、ご機嫌、よう」*
 
-"Lovely as ever, isn't she? Sue."
+"You still look adorable as ever, Sue."
 
 *「相変わらず愛らしいわね？スー」*
 
-"...... Oh, I'm so sorry."
+"…I-I’m honored."
 
 *「……お、恐れ入りま、す」*
 
-'Are you not going to wear your party mask today?'
+"Are you not wearing your party mask today?"
 
 *「今日は、パーティーマスクは着けないの？」*
 
-Squeeze!"
+"Ha-gyu!"
 
 *「はぎゅっ！」*
 
-'Yes, yes! Your father asked me to apologize to Sue when I see her."
+"That's right! My father asked me to apologize to you if I met you, Sue."
 
 *「そうそう！お父様から、スーに会ったら謝っておいて欲しいと頼まれていたのよ」*
 
-"Ohhiggity?
+"Uhi-gi?!"
 
 *「ぅひぎっ？！」*
 
-I'm sorry, Sue. Men are always so concerned with appearances that they sometimes try to force their way through unreasonable things. I have given him a stern talking-to, so please let him off the hook this time.
+"I'm sorry, Sue. Men tend to value their appearance, so sometimes they insist on unreasonable things. I’ve told him firmly, so please let this one slide."
 
 *「ごめんなさいねスー。男の方ってどうしても体面を重んじるから、時に理不尽な事も押し通そうとなさるの。私からもきつく言っておいたから、今回は見逃してあげて欲しいわ」*
 
-Oh, no! Oh, I am in awe! I'm the one who's very rude, ......!"
+"S-Such! I-I am the one who has been terribly rude…!"
 
 *「そ、そんな！お、畏れ多い！わ、わたくしこそ大変な失礼、を……！」*
 
-Well! Thank you Sue! You forgive me, don't you? I'm so happy!"
+"Oh my! Thank you, Sue! You will forgive me?! I'm so happy!"
 
 *「まあ！ありがとうスー！許して下さるのね？！嬉しいわ！」*
 
-HAMIMYU!"
+"Ha-myu-gyu!"
 
 *「はみゅぎゅ！」*
 
-I will definitely come again next time you have a party mask event at your restaurant. I'll be there for sure.
+"Next time there’s a party mask event at the shop, please let me know. I will definitely attend."
 
 *「今度また、お店でパーティーマスクのイベントがある時は是非教えてね。必ず伺いますから」*
 
-Aww, aww. ......"
+"Ah, uh…"
 
 *「ぁう、あぅ……」*
 
@@ -182,33 +182,33 @@ Aww, aww. ......"
 
 &nbsp;
 
-What makes you think you can wear a mask and not be identified?"
+"Why did you think wearing a mask would prevent you from being recognized?"
 
 *「何でアンタ、マスク着けてりゃ身バレしないと思ったのよ？」*
 
-"Oogie!"
+"U-gi!"
 
 *「ぅぎ！」*
 
-I think they could easily figure out where I was from, since I was wearing a store uniform."
+"After all, it was the shop's uniform, so I think it would be obvious who you are."
 
 *「大体、お店の制服だったんだから、どこの人かくらい直ぐ分かっちゃうんじゃないかな？」*
 
-Hugs!"
+"Ha-gyu-gyu!"
 
 *「はぎゅぎゅっ！」*
 
 &nbsp;
 
-Stop it already! My mental life has already reached zero!
+Stop it already――! My mental life has long been at zero!!!
 
 *もうヤメテ――！わたしのメンタルライフは、とっくにゼロよーーーっっ！！*
 
-I can only hold my head up and writhe in shame.
+I couldn't help but hold my head in my hands, only able to writhe in shame.
 
 *思わず頭を抱え、羞恥に身悶える事しか出来ない。*
 
-That day, a black history was born in me.
+On that day, my black history was born.
 
 *あの日、わたしに黒歴史が爆誕していたのだ。*
 
@@ -220,205 +220,205 @@ That day, a black history was born in me.
 
 &nbsp;
 
-That day, that time, that place, that after. ......
+On that day, at that time, in that place, after that...
 
 *あの日あの時あの場所であの後……。*
 
 &nbsp;
 
-As they were burning the filth, Irving and Karen caught up with them.
+As I was burning the waste, Arvin and Karen caught up with me.
 
 *汚物を燃やしていた所へ、アーヴィンとカレンが追い付いて来た。*
 
 &nbsp;
 
-But they were not the only two who came there.
+However, they were not the only two who came.
 
 *でも、そこへやって来たのは2人だけではなかった。*
 
-The guards and knights belonging to Dekenberu also came in droves.
+The guards and knights from Dekkenbel also came in droves.
 
 *衛士さん達やデケンベル所属の騎士の方達も、ゾロゾロと揃ってやって来たのだ。*
 
-Well, the smoke was rising like a wolfsbane, so they said it was a landmark. ......
+Well, it seems the smoke was rising like a signal fire, so that served as a landmark...
 
 *まあ、煙が狼煙のように立ち昇っていたから、それが目印になったらしいが……。*
 
 &nbsp;
 
-I heard that the knights had also sensed that demonic beasts were gathering near here, and they were searching for them.
+The knights also seemed to have sensed that magical beasts were gathering nearby and were investigating it.
 
 *騎士さん達の方でも、魔獣がこの近くに集まっている事を察知して、それを探っていたらしいし。*
 
 &nbsp;
 
-And I told him, "The one I'm burning now is the last one, so it's no longer a problem.
+Then, I informed them that "the one we are burning now is the last one, so there is no problem."
 
 *んで、「今燃やしているのが最後の1体だからもう問題無い」と教えて差し上げた。*
 
-However, when they confirmed that this guy was still alive, they demanded that he hand it over to them.
+However, when they confirmed that this one was still alive, they insisted on handing it over.
 
 *ところがその人たちは、まだ生きているコイツを確認すると、ソレを引き渡せと迫って来た。*
 
-What are they talking about? I thought to myself, "What? I don't want to do it. I politely declined.
+What are these guys talking about? I thought, as I politely declined with, "Huh? No, thank you."
 
 *何言ってんだコイツ等？と思いながら、わたしは「は？嫌ですけど？」と、丁寧にお断り申し上げた。*
 
 &nbsp;
 
-Isn't it obvious?
+Of course, right?
 
 *当たり前だよね？*
 
-We missed it before and got into this mess, and we're not going to make the same mistake, okay?
+We ended up in this situation because I let one go before; I won't make the same mistake again.
 
 *前に見逃したからこんな事態に陥ったんだもの、同じ轍は踏みませんのことよ？*
 
 &nbsp;
 
-Irving looked at me like, "How long are you going to keep burning it?" I nodded my head and said, "I'll burn it right away.
+When Arvin looked at me as if to say, "How long are you going to keep burning it?" I nodded and said, "I will turn it to ash right away."
 
 *アーヴィンが「いつまで燃やし続けんだ？」みたいな目を向けて来たので、「直ぐに灰にするよ」と首肯した。*
 
-I'm not a clingy person, and I have no intention of going on like this for too long.
+I’m not particularly clingy, nor do I have any intention of dragging this out.
 
 *わたしは別に粘着質でも無いし、こんなのに長々と付き合う気も更々無いからね。*
 
 &nbsp;
 
-Now, let's turn them into ashes! I raised my magical power a little, and a voice said, "Wait a while! I heard a voice saying, "Hold on a moment!
+Alright, let's turn it to ash! As I raised my magical power, a voice called out, "Please wait a moment!"
 
 *さあ灰にするぞ！とちょいと魔力を高めたら、「暫し待たれよ！」と言う声が上がった。*
 
 &nbsp;
 
-Among the guards and knights surrounding us, he was the one with the most distinguished appearance, which was obvious at a glance.
+It was someone among the guards and knights surrounding us, who was clearly of the highest rank.
 
 *わたし達の周りを囲んでいる衛士や騎士の方達の中で、一番地位があると一目で分かる出で立ちの方だ。*
 
-After all, the equipment was fancy.
+Their equipment was flashy.
 
 *何と言っても装備が派手だった。*
 
-It is a full-body gilded armor with silver-gold and red-gold lines on the gauntlets and shoulders. The lines seem to indicate rank, and although gaudy, they are very cool. It looks like nothing but a commanding officer.
+They wore full-body armor adorned with silver gold and red gold lines on the gauntlets and shoulders. The way the lines were arranged seemed to indicate rank, and while flashy, it looked very cool. They could only be seen as a commander class.
 
 *ガントレットや肩口に、シルバーゴールドやレッドゴールドのラインが入った全身金ピカの鎧なのだ。ラインの入り方が階級を現しているみたいで、派手だがとてもカッコイイ。もう指揮官クラス以外には見えない。*
 
 &nbsp;
 
-And the person said, "It is unprecedented that a magical beast is released in the city of Dekenberu. We want to find the main culprit of this disturbance at any cost. We need to interrogate him to find out what happened.
+This person said, "It is unprecedented for magical beasts to be unleashed in the city of Dekkenbel. We must capture the main culprit of this commotion at all costs. Interrogation is essential for clarifying the matter."
 
 *で、その方が言うには「デケンベルの街中に魔獣が放たれるなど前代未聞。今回の騒ぎの主犯は何としても確保したい。事の究明に当たる為にも尋問は不可欠」的な事を仰った。*
 
-So, if he is alive, he wants us to hand him over.
+So, they asked me to hand over the living one.
 
 *だから、生きているなら引き渡して欲しいと。*
 
 &nbsp;
 
-Even if they told me that, there was no way I would hand over this guy who did that to Annie.
+Even if they said that, there was no way I would just hand over the one that had done that to Annie.
 
 *そんな事を言われてもアニーをあんな目に合わせたコイツを、はいそうですか、と渡す訳がない。*
 
 &nbsp;
 
-I have already received reports of your success in exterminating the monsters and saving the lives of citizens and my men. Let me thank you again. "I would like to thank you again, and ask you to hand them over to us.
+"I have already received reports that you have exterminated the magical beasts and saved the lives of the citizens and my subordinates. I would like to express my gratitude once again. With that said, would you please hand it over to us?"
 
 *「君が魔獣を駆逐し、市民や私の部下の命を救ってくれた事は、既に報告が上がっている。改めて感謝させて欲しい。その上で、其れを此方へ引き渡しては貰えないだろうか」*
 
-I'll take care of it right here and now.
+"This will be dealt with here and now."
 
 *「コレは、今ココで処理致し、ます」*
 
-'You! Sir's offer!"
+"You scoundrel! Your offer!!"
 
 *「貴様！卿の申し出を！！」*
 
-Yes?"
+"What is it?"
 
 *「なにか？」*
 
-"----！！！！"
+"――――！！！！"
 
 *「――――！！！！」*
 
 &nbsp;
 
-Naturally, I said coldly, "I don't want to. I said coldly, "I don't want to," and one of the knightly men started to make a fuss about something.
+Naturally, when I coldly replied, "No, thank you," one of the knights started to act all tough.
 
 *当然「嫌ですけど？」と冷たく言い放ってみた所、騎士らしい方のお1人が何やらイキって来た。*
 
-So, I gave him a quick glare, and he blew bubbles and turned over.
+So, when I gave them a glare, they started foaming at the mouth and fell over.
 
 *なので、ちょいとひと睨みしたら泡を吹いてひっくり返ってしまった。*
 
 &nbsp;
 
-Then all the knights of the guard around us took a few steps back, but only the commander did not move a single step, still saying, "Please do me a favor.
+Then the surrounding guards and knights took a few steps back, but the commander did not move an inch and still said, "I beg you."
 
 *そしたら周りの衛士騎士の皆さんも、ザワリと数歩後ずさったんだけど、その指揮官の方だけは一歩も動かず「何卒頼む」とまだ言っている。*
 
-I was impressed that he is a moderately determined person ......, and Irving comes tugging at my sleeve with his choy choy choy.
+What a composed person... I thought, impressed, when Arvin tugged at my sleeve.
 
 *中々に肝の座った方だな……と感心していたら、アーヴィンがチョイチョイと袖を引っ張って来る。*
 
-What? When I turned to look at him, Irving came to me in a whisper, "That's probably the general manager of the De Kembel Defense Organization.
+"What is it?" I looked over, and Arvin quietly said, "That is probably the head of the Dekkenbel Defense Organization."
 
 *なに？と目を向けるとアーヴィンは小声で「あれは多分、デケンベル防衛機構の本部長だ」と言って来た。*
 
 &nbsp;
 
-How would Irving know that?
+How does Arvin know such a thing?
 
 *なんでアーヴィンがそんな事を知ってるんだろう？*
 
-I don't understand well, but so what? I asked him with my eyes, "Cool your head. It's not good to cause a problem by poking and prodding here. It will cause trouble for the consul general and it will not help your head of state. Irving told me to cool my head! Irving!
+I didn’t quite understand, but when I asked with my eyes, "Cool your head. It’s not good to cause problems by pushing back here. It will inconvenience the consul general and embarrass your head," I was shocked to hear Arvin tell me to cool my head! From Arvin!
 
 *良く分からないが、だから何？と目で聞くと「頭を冷やせ。ここで突っぱねて問題を起こすのは良くない。総領事に迷惑がかかるし、御頭首の顔も立たない」「！！」アーヴィンに頭を冷やせと言われた！アーヴィンに！*
 
-That was a huge shock, but more importantly, I was at a loss for words to return such a statement.
+That was quite a shock, but more than that, I had no words to respond to such a statement.
 
 *それがめちゃショックだったが、それよりも、そんな事を言われては返す言葉も無くなってしまう。*
 
-I can't be bothered with Uncle Philip or even Papa Howard.
+I certainly couldn’t inconvenience Uncle Philip or even Papa Howard.
 
 *フィリップ叔父様は勿論、ハワードパパにまで迷惑なんてかけられない。*
 
 &nbsp;
 
-Shoulders relaxed, a long, long sigh escapes my mouth.
+I relaxed my shoulders and let out a long, long sigh.
 
 *肩の力を抜き、長い長い溜息が口から洩れる。*
 
-I kicked it, which was still covered with fire, in the direction of the knights.
+Reluctantly, I kicked the still smoldering thing toward the knights.
 
 *しょうがないのでまだブスブスと火を纏っているソレを、騎士さん達の方へ向けて蹴り飛ばした。*
 
-But I'll remember to tell you.
+But I wouldn’t forget to say something.
 
 *でも言っておく事は忘れない。*
 
 &nbsp;
 
-Once the fire is extinguished, it will begin to regenerate. It will continue to burn for about a week, but after that, you will have to take care of it yourselves. If you touch it directly, you will catch fire yourself, so it is better to carry it on an iron skewer, okay?
+"When that fire goes out, it will begin to regenerate. I think it will continue to burn for about a week, but after that, you will have to manage it yourselves. Oh, and if you touch it directly, it will catch fire on you as well, so it would be better to stab it with an iron skewer and carry it, okay?"
 
 *「その火が消えればそいつは再生し始め、ます。そのままなら一週間程度は燃え続けると思います、が、その後はご自分達で何とかしてくだ、さい。あ、直接触るとご自身にも燃え移ります、から、鉄串でも刺して運んだほうが良いです、よ？」*
 
-Thank you! I appreciate your concern!"
+"Thank you! I appreciate your consideration!"
 
 *「ありがとう！お気遣い感謝する！」*
 
-"...... promise me you won't let him out of his cage. I will never release him from his cage."
+"…Please just promise me one thing. Do not ever release it from its cage."
 
 *「……約束だけしてくだ、さい。ソイツを決して檻から解放しない、と」*
 
 &nbsp;
 
-I have expressed my intention to return her to the dust at that moment, without question, if I detect her presence in the city.
+If I sense its presence in the city, I will immediately turn it to dust without question.
 
 *もし街中でソイツの気配を察知したら、問答無用でその瞬間、塵に還す所存だと意思表明はさせて頂いた。*
 
-The commander stated, "I will certainly meet your expectations," and left with the guard knights in tow.
+The commander said, "I will certainly meet your expectations," and led the guards and knights away.
 
 *指揮官様は、「必ずやご期待に添わせて貰う」と述べられ、衛士騎士さん達を引き連れて去って行った。*
 
@@ -426,73 +426,71 @@ The commander stated, "I will certainly meet your expectations," and left with t
 
 &nbsp;
 
-As I was thinking, "What an awkward end," my mouth was bent into a grimace, when Irving dropped a bomb from the side.
+What a troublesome ending, I thought, pouting when Arvin dropped a bombshell from the side.
 
 *何とも座りの悪い最後だなと、口をへの字に曲げているわたしに、アーヴィンが横からシラっと爆弾を落として来た。*
 
 &nbsp;
 
-That's Robert Randall Goldberg, the head of the defense establishment. He was a powerful man, just like Master Caroline's father.
+"That was Robert Randall Goldberg, the head of the Defense Organization. As Caroline's father, he was quite an imposing figure."
 
 *「あれがロバート・ランドル・ゴールドバーグ防衛機構本部長か。キャロライン様の親父さんだけあって、迫力ある人だったな」*
 
 &nbsp;
 
-Huh?
+Haaah?!!
 
 *はあぁぁぁ？！！*
 
-He is Carrie's father?
+Lady Carrie’s father, you sayーーーー?!!!
 
 *キャリー様のお父様ですとぉーーーー？！！！*
 
-Isn't that the old duke himself!
+Isn't that the former duke himselfーーーー?！！
 
 *旧公爵様その人ではないですかーーーーー！！*
 
-I never heard of such a thing, but?
+I hadn’t heard such a thing?！！
 
 *そんな話は聞いちゃおりませんががが？！！*
 
 &nbsp;
 
-"What? You didn't get it?"
+"What? You didn’t know?"
 
 *「なんだ？分かって無かったのか？」*
 
 &nbsp;
 
-I don't understand!
+Of course, I wouldn’t know!!
 
 *分かるわけないじゃん！！*
 
 &nbsp;
 
-Seeing me with my eyes peeled back, Irving looks at me with a look of dismay.
+Seeing my eyes wide open, Arvin looked at me with an exasperated expression.
 
 *目ん玉剥いてるわたしを見て、アーヴィンは呆れた様な視線を向けて来る。*
 
 &nbsp;
 
-Kuh! Not once, not even twice, has Irving questioned your common sense?
+Ugh! For the second time, was I questioned about common sense by Arvin?!
 
 *くぁぁ！一度ならず二度までも、アーヴィンに常識を問われた？！*
 
-What a humiliation!
+What a humiliation!!
 
 *何と言う屈辱！！*
 
 &nbsp;
 
-But! More than anything else, that's not the point! I'm mindful of the fact that I've just done it.
+But! More than that, I was overwhelmed by the fact that I had just messed up.
 
 *だが！そんな事よりも何よりも！今やらかした事実に頭を抱える。*
 
-Karen's kindness, as she gently placed her hand on my shoulder as I continued to moan in agony, was strangely poignant.
+The kindness of Karen, who gently placed her hand on my shoulder as I continued to groan in agony, strangely resonated with me.
 
 *苦悶の呻きを上げ続けるわたしの肩に、ソッと手を乗せてくれたカレンの優しさが、妙に沁みた。*
-
-
 
 &nbsp;
 
@@ -506,13 +504,12 @@ Thank you for reading.
 
 &nbsp;
 
-Thank you for pointing out the typo!
+Thank you for pointing out the typos and errors!
 
 *誤字脱字のご指摘、ありがとうございます！*
 
 &nbsp;
 
-Thank you for your buzz and your rating! We are always encouraged!
+Thank you for the bookmarks and evaluations! They are always a great encouragement!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
-

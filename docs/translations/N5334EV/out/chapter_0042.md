@@ -1,8 +1,8 @@
-# Chapter 1 Characters
+# Chapter One Characters
 
 ## 第一章登場人物
 
-This is a brief summary for my own use and as a memo.
+This is a rough summary I made for my own reference.
 
 *自分用にとメモ的にザックリとまとめた物でございます。*
 
@@ -10,7 +10,7 @@ This is a brief summary for my own use and as a memo.
 
 &nbsp;
 
-Added Amkam village map.
+Added a map of Amukam Village.
 
 *アムカム村マップを追加しました。*
 
@@ -19,7 +19,6 @@ Added Amkam village map.
 Added a floor plan of the Cloud residence.
 
 *クラウド邸見取り図を追加しました。*
-
 
 ----------------
 
@@ -33,13 +32,13 @@ Added a floor plan of the Cloud residence.
 
 &nbsp;
 
-Chapter 1 Characters
+Chapter One Characters
 
 *第一章登場人物*
 
 &nbsp;
 
-*Age is at the end of the first chapter.
+*The ages are as of the end of Chapter One.
 
 **年齢は一章終了時のモノ。*
 
@@ -47,11 +46,11 @@ Chapter 1 Characters
 
 &nbsp;
 
-0 Susie Cloud (Sue)
+〇Suzie Cloud (Soo)
 
 *〇スージィ・クラウド（スー）*
 
-13 years old (8th dan)
+13 years old (Rank 8)
 
 *13歳（8段位）*
 
@@ -59,7 +58,7 @@ Chapter 1 Characters
 
 *153cm 42kg*
 
-B 71 B cup (possibly C-. So C cup! is only a self-proclaimed)
+B 71 B cup (probably C-. So C cup! is just self-proclaimed)
 
 *B 71　Bカップ（恐らくはC－。なのでCカップ！はあくまで自称）*
 
@@ -71,21 +70,21 @@ H 74
 
 *H 74*
 
-Born on the blue moon/14th of the 2nd
+Born on the 14th of the 2nd month
 
 *2の蒼月/14日生まれ*
 
-Short bob of red hair that shines like rubies and bounces outward. Clear cobalt green eyes.
+Red hair that shines like a ruby and bounces out in a short bob. Clear cobalt green eyes.
 
 *ルビーの様に光り、外に跳ね広がるショートボブの赤い髪。澄んだコバルトグリーンの瞳。*
 
-Adopted daughter of the Cloud family. All attributes, primary weapon, two swords, middle sword]
+【Adopted daughter of the Cloud family. Holds all attributes. Main weapon: dual middle swords】
 
 *【クラウド家養女。全属性持ち　主武器・二刀ミドルソード】*
 
 &nbsp;
 
-0 Howard Cloud
+〇Howard Cloud
 
 *〇ハワード・クラウド*
 
@@ -93,19 +92,19 @@ Adopted daughter of the Cloud family. All attributes, primary weapon, two swords
 
 *62歳*
 
-195 cm
+195cm
 
 *195cm*
 
-Red Moon in 4 / born on the 20th
+Born on the 20th of the 4th month
 
 *4の紅月/20日生まれ*
 
-Gray head of hair and a dark beard covering his mouth. Gray eyes with power.
+Gray hair and a thick beard covering his mouth. Strong gray eyes.
 
 *グレーの頭髪と口元を覆う濃い髭。力のある灰色の目。*
 
-Head of the Cloud family. Head of the Amkham County Protectorate. Gray Iron God. Main weapon: Zweihender.
+【Head of the Cloud family. Overseer of the Amukam County Guard. 'Gray Iron Demon God'. Main weapon: Zweihänder】
 
 *【クラウド家当主。アムカム郡護民団統括。『灰色の鉄鬼神』　主武器・ツヴァイヘンダー】*
 
@@ -113,11 +112,11 @@ Head of the Cloud family. Head of the Amkham County Protectorate. Gray Iron God.
 
 &nbsp;
 
-0 Sonia Cloud
+〇Sonia Cloud
 
 *〇ソニア・クラウド*
 
-58 years old.
+58 years old
 
 *58歳*
 
@@ -125,25 +124,25 @@ Head of the Cloud family. Head of the Amkham County Protectorate. Gray Iron God.
 
 *168cm*
 
-Chestnut-brown hair tied in a fluffy bun on top of her head. Grayish green eyes.
+Chestnut brown hair gathered lightly on top of her head. Grayish green eyes.
 
 *フワリと頭の上で纏めた栗茶色の髪。灰味がかったグリーンの瞳。*
 
-He has a bad leg and cannot put too much strain on it. Sometimes he uses a wheelchair.
+Has bad legs and cannot put too much strain on them. Sometimes uses a wheelchair.
 
 *脚が悪く余り負担はかけられない。時に車椅子を使う事もある。*
 
-Wife of Howard Cloud, primary weapon, longbow.
+【Wife of Howard Cloud. Main weapon: longbow】
 
 *【ハワード・クラウドの妻　主武器・ロングボウ】*
 
 &nbsp;
 
-0.005L Rose
+〇Elrose
 
 *〇エルローズ*
 
-59 years old.
+59 years old
 
 *59歳*
 
@@ -151,21 +150,21 @@ Wife of Howard Cloud, primary weapon, longbow.
 
 *170cm*
 
-Black strands of hair mixed with gray that form a dumpling on the top of the head.
+Black hair with white mixed in, tied up in a bun on top of her head.
 
 *頭の上で団子を作る白髪の混じった黒いひっ詰め髪。*
 
-Main weapon: ton fur.
+【Maid of the Cloud family. Main weapon: tonfa】
 
 *【クラウド家女中　主武器・トンファー】*
 
 &nbsp;
 
-0 Gilbert.
+〇Gilberto
 
 *〇ジルベルト*
 
-71 years old.
+71 years old
 
 *71歳*
 
@@ -173,39 +172,39 @@ Main weapon: ton fur.
 
 *166cm*
 
-old man with one eye much bigger than the rest
+One-eyed old man
 
 *隻眼の老人*
 
-Cloud family servant, main weapon: longsword + dagger
+【Servant of the Cloud family. Main weapon: longsword + dagger】
 
 *【クラウド家使用人　主武器・ロングソード+ダガー】*
 
 &nbsp;
 
-0 Henry Jameson
+〇Henry Jameson
 
 *〇ヘンリー・ジェイムスン*
 
-55 years old.
+55 years old
 
 *55歳*
 
-180 cm
+180cm
 
 *180㎝*
 
-Dark brown hair mixed with gray stroked into an all back. He has a beard.
+Dark brown hair mixed with white, slicked back. Has a beard.
 
 *オールバックに撫でつけた白髪の混ざったダークブラウンの髪。顎ひげ有り。*
 
-[Head of the Amkham Village Temple Temple. Priest]
+【Chief priest of the Amukam Village Temple. Priest】
 
 *【アムカム村神殿神殿長。祭司官】*
 
 &nbsp;
 
-0 Daisy Jameson
+〇Daisy Jameson
 
 *〇デイジー・ジェイムスン*
 
@@ -217,25 +216,25 @@ Dark brown hair mixed with gray stroked into an all back. He has a beard.
 
 *168cm*
 
-Her shiny dark brown hair is later braided into a bun to tie it up.
+Shiny dark brown hair tied back in a braid and bun.
 
 *艶のあるダークブラウンの髪を後で三つ編みにし団子にして纏めている。*
 
-The grayish brown eyes and the small glasses over them suggest a responsible position.
+Grayish brown eyes and small glasses that suggest a responsible position.
 
 *灰みがかったブラウンの眼とそれにかかる小さなメガネが責任職を思わせる。*
 
-[Amkam Village School Teacher. [Warding and supplemental].
+【School teacher of Amukam Village. Barrier creator; support】
 
 *【アムカム村学校教師。結界者・補】*
 
 &nbsp;
 
-0 August Dulles
+〇August Dales
 
 *〇オーガスト・ダレス*
 
-52 years old.
+52 years old
 
 *52歳*
 
@@ -243,25 +242,25 @@ The grayish brown eyes and the small glasses over them suggest a responsible pos
 
 *187cm*
 
-Well-dressed but muscular.
+Well-built but muscular.
 
 *恰幅は良いが筋肉質。*
 
-Her brown hair is cropped and clean.
+Neatly trimmed brownish hair with a clean appearance.
 
 *茶褐色の髪を切り揃え清潔感がある。*
 
-Village head of Amkam Village. Head of the first group of Amkam Group 12. Patriarch of the Dulles family, one of the three Amkham families.
+【Village chief of Amukam. Leader of Amukam's 12th group, first squad. Head of the Dales family, one of the three families of Amukam】
 
 *【アムカム村村長。アムカム12班、第一班班長。アムカム三家の内の一つ、ダレス家家長】*
 
 &nbsp;
 
-0 Frank Long
+〇Frank Long
 
 *〇フランク・ロング*
 
-44 years old.
+44 years old
 
 *44歳*
 
@@ -269,17 +268,17 @@ Village head of Amkam Village. Head of the first group of Amkam Group 12. Patria
 
 *190cm*
 
-He is a large man with black hair and a mustache.
+Large build with black hair and a mustache.
 
 *大柄で黒髪の口髭を蓄えている。*
 
-[Amcam 12, Team Leader, Team 5]
+【Leader of the 5th squad of Amukam's 12th group】
 
 *【アムカム12班、第五班班長】*
 
 &nbsp;
 
-00 Rider Haggard
+〇Ryder Haggard
 
 *〇ライダー・ハッガード*
 
@@ -291,7 +290,7 @@ He is a large man with black hair and a mustache.
 
 *181cm*
 
-[Second son of the Haggard family. No. Attribute. Golden Bloodsucker Killer, primary weapon, nightsword.
+【Second son of the Haggard family. Holds no attributes. 'Golden Vampire Slayer'. Main weapon: knight sword】
 
 *【ハッガード家次男。無、属性持ち。『黄金の吸血殺し』　主武器・ナイトソード】*
 
@@ -301,7 +300,7 @@ He is a large man with black hair and a mustache.
 
 &nbsp;
 
-0 Lavinia Cloud (Lavie)
+〇Lavinia Cloud (Lavi)
 
 *〇ラヴィニア・クラウド（ラヴィ）*
 
@@ -323,17 +322,17 @@ Red hair in a single braid and grayish green eyes.
 
 &nbsp;
 
-Amkham Village School Students
+Amukam Village School Students
 
 *アムカム村　学校生徒*
 
 ＿＿＿＿＿＿＿＿＿＿
 
-Graduates - Male
+Graduates - Boys
 
 *卒業生・男子*
 
-0 Victor Frank
+〇Victor Frank
 
 *〇ヴィクター・フランク*
 
@@ -345,17 +344,17 @@ Graduates - Male
 
 *174cm*
 
-Thin, silky platinum blonde hair and blue eyes. She is beautiful only in appearance.
+Thin, silky platinum blonde hair and blue eyes. Only looks handsome.
 
 *細くさらさらとしたプラチナブロンドの髪と青い瞳。見た目だけは美形。*
 
-The eldest son of the Frank family. Has fire attribute. Specialized in evasion.
+【Eldest son of the Frank family. Fire attribute holder. Evasion specialist】
 
 *【フランク家長男。火属性持ち。回避特化】*
 
 &nbsp;
 
-0 Arrows B.A.S.
+〇Arrows Beas
 
 *〇アローズ・ビーアス*
 
@@ -367,17 +366,17 @@ The eldest son of the Frank family. Has fire attribute. Specialized in evasion.
 
 *167cm*
 
-[Second son of the Beas family. Magic offense. Fire, water, wind, three attributes.
+【Second son of the Beas family. Magic offense. Holds fire, water, and wind attributes】
 
 *【ビーアス家次男。魔法オフェンス。火、水、風、三属性持ち】*
 
 &nbsp;
 
-girl
+Girls
 
 *女子*
 
-0Carla Edgarra
+〇Karla Edgarla
 
 *〇カーラ・エドガーラ*
 
@@ -401,11 +400,11 @@ H 79
 
 *H 79*
 
-Short bob, black hair and dark eyes.
+Short bob black hair and black eyes.
 
 *ショートボブの黒髪と黒い瞳。*
 
-[Eldest daughter of the Edgarra family. She has the earth attribute. Main weapon: a dagger.
+【Eldest daughter of the Edgarla family. Earth attribute holder. Main weapon: hidden dagger】
 
 *【エドガーラ家長女。地属性持ち。主武器・仕込み短刀】*
 
@@ -413,7 +412,7 @@ Short bob, black hair and dark eyes.
 
 &nbsp;
 
-0 Alicia Lugosi
+〇Alicia Lugosi
 
 *〇アリシア・ルゴシ*
 
@@ -437,11 +436,11 @@ H 81
 
 *H 81*
 
-Her soft ash brown hair, which has a slight habit, is pulled into a ponytail with a white ribbon.
+Slightly wavy soft ash brown hair tied in a ponytail with a white ribbon.
 
 *少し癖のある柔らかそうなアッシュブラウンの髪を白いリボンでポニーテールにしている。*
 
-Second daughter of the Lugosi family. She has water attribute. Main weapons: empty hand + combat knife.
+【Second daughter of the Lugosi family. Water attribute holder. Main weapon: unarmed combat + combat knife】
 
 *【ルゴシ家次女。水属性持ち。主武器・徒手空拳+コンバットナイフ】*
 
@@ -449,7 +448,7 @@ Second daughter of the Lugosi family. She has water attribute. Main weapons: emp
 
 &nbsp;
 
-0 Jessica Karloff
+〇Jessica Karoff
 
 *〇ジェシカ・カーロフ*
 
@@ -473,11 +472,11 @@ H 84
 
 *H 84*
 
-Strawberry blonde hair in a braid. Slender arms and legs reminiscent of a model.
+Strawberry blonde hair in braids. Slender limbs reminiscent of a model.
 
 *三つ編みにしたストロベリーブロンドの髪。モデルを思わせるスラリと伸びた手足。*
 
-[Third daughter of the Karloff family. Magic defense. She has two attributes, fire and non-fire. Specialized in physical strengthening and recovery. Priestess apprentice.
+【Third daughter of the Karoff family. Magic defense. Holds fire and null attributes. Body enhancement and healing specialist. Priest apprentice】
 
 *【カーロフ家三女。魔法ディフェンス。火・無、二属性持ち。身体強化、回復特化。神官見習い】*
 
@@ -489,11 +488,11 @@ Strawberry blonde hair in a braid. Slender arms and legs reminiscent of a model.
 
 ＿＿＿＿＿＿＿＿＿＿
 
-9th Dan, Men
+Rank 9 - Boys
 
 *9段位・男子*
 
-0 Willie Hodgson
+〇Willy Hodgson
 
 *〇ウィリー・ホジスン*
 
@@ -505,11 +504,11 @@ Strawberry blonde hair in a braid. Slender arms and legs reminiscent of a model.
 
 *171cm*
 
-Men with glasses.
+Glasses boy.
 
 *メガネ男子。*
 
-[Second son of the Hodgson family. Magic defense. Fire, water, dual attributes.
+【Second son of the Hodgson family. Magic defense. Holds fire and water attributes】
 
 *【ホジスン家次男。魔法ディフェンス。火、水、二属性持ち】*
 
@@ -517,11 +516,11 @@ Men with glasses.
 
 &nbsp;
 
-girl
+Girls
 
 *女子*
 
-0 Dana McCain
+〇Dana McKean
 
 *〇ダーナ・マッケイン*
 
@@ -545,7 +544,7 @@ H 81
 
 *H 81*
 
-Long cherry red shiny brunette hair tied back.
+Long cherry red hair tied back.
 
 *後ろで束ねた長いチェリーレッドに輝くブルネットの髪。*
 
@@ -553,7 +552,7 @@ Aquamarine eyes reminiscent of a cat.
 
 *ネコを思わせるアクアマリンの瞳。*
 
-Second daughter of the McCain family. Primary weapon: Short Spear.
+【Second daughter of the McKean family. Main weapon: short spear】
 
 *【マッケイン家次女。主武器・ショートスピア】*
 
@@ -561,7 +560,7 @@ Second daughter of the McCain family. Primary weapon: Short Spear.
 
 &nbsp;
 
-0 Colin Saunders
+〇Colin Saunders
 
 *〇コリン・ソンダース*
 
@@ -573,7 +572,7 @@ Second daughter of the McCain family. Primary weapon: Short Spear.
 
 *150cm*
 
-B 81 D cup (with a hidden big cup)
+B 81 D cup (slightly hidden giant)
 
 *B 81　Dカップ（隠れ巨入気味）*
 
@@ -585,15 +584,15 @@ H 89
 
 *H 89*
 
-Her calm dirty blonde hair is later braided down in a fishbone.
+Calm dirty blonde hair braided in a fishtail at the back.
 
 *落ち着いたダーティブロンドの髪を後でフィッシュボーンで編み下ろしている。*
 
-The bluish gray eyes behind the large round glasses are tangerine.
+The blue-gray eyes behind large round glasses are citrus-like.
 
 *大きな丸眼鏡の奥にある青味がかったグレーの眼はミカン目。*
 
-[Eldest daughter of the Saunders family. Magic defense. Water and wind, dual attributes.
+【Eldest daughter of the Saunders family. Magic defense. Holds water and wind attributes】
 
 *【ソンダース家長女。魔法ディフェンス。水・風、二属性持ち】*
 
@@ -603,11 +602,11 @@ The bluish gray eyes behind the large round glasses are tangerine.
 
 ＿＿＿＿＿＿＿＿＿＿
 
-8th Dan, Men
+Rank 8 - Boys
 
 *8段位・男子*
 
-0 Irving Haggard
+〇Irvin Haggard
 
 *〇アーヴィン・ハッガード*
 
@@ -623,17 +622,17 @@ Dark blonde hair
 
 *ダークブロンドの髪*
 
-Amber Wolf Eyes
+Amber wolf eyes
 
 *アンバーのウルフアイズ*
 
-Third son of the Haggard family. Primary weapon: longsword
+【Third son of the Haggard family. Main weapon: longsword】
 
 *【ハッガード家三男。主武器・ロングソード】*
 
 &nbsp;
 
-0 Lombard Broek.
+〇Lombard Blouk
 
 *〇ロンバート・ブロウク*
 
@@ -645,15 +644,15 @@ Third son of the Haggard family. Primary weapon: longsword
 
 *172cm*
 
-Large boy. Shoulder-length cropped carrot-orange hair.
+Large boy with shoulder-length carrot orange hair.
 
 *大柄な少年。肩口まである切りっぱなしのキャロットオレンジの髪。*
 
-She has a straight nose and deep digs. Her eyes are clear blue.
+Straight nose and deep features. Clear blue eyes.
 
 *鼻筋が通り、掘りが深い。瞳は澄んだブルー。*
 
-Third son of the Burok family. Primary Weapon: Battle Axe
+【Third son of the Blouk family. Main weapon: battle axe】
 
 *【ブロウク家三男。主武器・バトルアクス】*
 
@@ -661,15 +660,15 @@ Third son of the Burok family. Primary Weapon: Battle Axe
 
 &nbsp;
 
-girl
+Girls
 
 *女子*
 
-0 Beatrice Kroki (Bibi Bearko)
+〇Beatrice Croki (Vivi Bear)
 
 *〇ベアトリス・クロキ（ビビ・ベア子）*
 
-13 years old (8th dan)
+13 years old (Rank 8)
 
 *13歳（8段位）*
 
@@ -689,15 +688,15 @@ H 70
 
 *H 70*
 
-Born on the azure/17th of the 3rd
+Born on the 17th of the 3rd month
 
 *3の蒼月/17日生まれ*
 
-She has back-length, loosely wavy, tobiko hair. Her hair is swept back with a catsuit, showing her large forehead. Her thin eyebrows and a moderate scattering of freckles indicate her strong spirit. Her eyes are large amber.
+Loose wavy bright hair down to her back. Wearing a headband to push it back, exposing a large forehead. Thin eyebrows and well-spread freckles show her strong personality. Large amber eyes.
 
 *背中まである緩くウエーブのかかったとび色の髪。カチューシャで後ろに流し、大きな額を見せている。細い眉と程よく散ったソバカスが気の強さを表す。瞳は大きなアンバー。*
 
-[Eldest daughter of the Kuroki family, one of the three Amukam families. She is a magic defender. She has three attributes: earth, wind, and nothing. Lord of Algernon, a follower.
+【Eldest daughter of the Croki family, one of the three families of Amukam. Magic defense. Holds earth, wind, and null attributes. Master of the familiar Algernon】
 
 *【アムカム三家の内の一つ、クロキ家長女。魔法ディフェンス。地・風・無、三属性持ち。従魔アルジャーノンの主】*
 
@@ -707,11 +706,11 @@ She has back-length, loosely wavy, tobiko hair. Her hair is swept back with a ca
 
 &nbsp;
 
-00 Mia Mathieson
+〇Mia Mattison
 
 *〇ミア・マティスン*
 
-13 years old (8th dan)
+13 years old (Rank 8)
 
 *13歳（8段位）*
 
@@ -719,7 +718,7 @@ She has back-length, loosely wavy, tobiko hair. Her hair is swept back with a ca
 
 *160cm*
 
-B 84 E cup (G is Susie's wishful thinking)
+B 84 E cup (G is just Suzie's wishful estimation)
 
 *B 84　Eカップ（Gはあくまでスージィの願望的目測）*
 
@@ -731,15 +730,15 @@ H 82
 
 *H 82*
 
-Born on the azure moon/11th of the 6th
+Born on the 11th of the 6th month
 
 *6の蒼月/11日生まれ*
 
-Ash blonde hair with a bluish tinge, waist-length, loosely braided and swept forward from her shoulders. Her eyes are clear ultramarine.
+Ash blonde hair with a bluish tint, long hair down to her waist loosely braided and flowing forward from her shoulders. Clear ultramarine eyes.
 
 *青味がかったアッシュブロンドの髪、腰まである長い髪を緩い三つ編みにし肩口から前へ流している。瞳は澄んだウルトラマリン。*
 
-[Eldest daughter of the Mathisons. Magic offense. Earth and water, dual attributes.
+【Eldest daughter of the Mattison family. Magic offense. Holds earth and water attributes】
 
 *【マティスン家長女。魔法オフェンス。地・水、二属性持ち】*
 
@@ -749,11 +748,11 @@ Ash blonde hair with a bluish tinge, waist-length, loosely braided and swept for
 
 ＿＿＿＿＿＿＿＿＿＿
 
-7th Dan, Men
+Rank 7 - Boys
 
 *7段位・男子*
 
-0 Alan Edgarra
+〇Alan Edgarla
 
 *〇アラン・エドガーラ*
 
@@ -763,7 +762,7 @@ Ash blonde hair with a bluish tinge, waist-length, loosely braided and swept for
 
 &nbsp;
 
-0Bell Nap Long
+〇Bernap Long
 
 *〇ベルナップ・ロング*
 
@@ -773,7 +772,7 @@ Ash blonde hair with a bluish tinge, waist-length, loosely braided and swept for
 
 &nbsp;
 
-0 Carl Giacobini
+〇Carl Jacobini
 
 *〇カール・ジャコビニ*
 
@@ -783,11 +782,11 @@ Ash blonde hair with a bluish tinge, waist-length, loosely braided and swept for
 
 &nbsp;
 
-girl
+Girls
 
 *女子*
 
-0Helena Slater
+〇Helena Slater
 
 *〇ヘレナ・スレイター*
 
@@ -797,7 +796,7 @@ girl
 
 &nbsp;
 
-0 Mary Frank
+〇Mary Frank
 
 *〇メアリー・フランク*
 
@@ -809,11 +808,11 @@ girl
 
 ＿＿＿＿＿＿＿＿＿＿
 
-6th Dan, Men
+Rank 6 - Boys
 
 *6段位・男子*
 
-0 Clark Smith
+〇Clark Smith
 
 *〇クラーク・スミス*
 
@@ -823,7 +822,7 @@ girl
 
 &nbsp;
 
-0 Ashton Smith.
+〇Ashton Smith
 
 *〇アシュトン・スミス*
 
@@ -833,11 +832,11 @@ girl
 
 &nbsp;
 
-girl
+Girls
 
 *女子*
 
-0 Fiorina Atlee
+〇Fiorina Atlee
 
 *〇フィオリーナ・アトリー*
 
@@ -849,11 +848,11 @@ girl
 
 ＿＿＿＿＿＿＿＿＿＿
 
-5th Dan, Men
+Rank 5 - Boys
 
 *5段位・男子*
 
-0 Stephan Zing
+〇Stefan Jing
 
 *〇ステファン・ジング*
 
@@ -865,7 +864,7 @@ girl
 
 *135cm*
 
-Tenpa, reddish brown kinky hair, freckled face.
+Curly red-brown hair, freckled face
 
 *天パで赤茶のクセっ毛、そばかすだらけの顔*
 
@@ -877,11 +876,11 @@ Sparkling blue eyes
 
 &nbsp;
 
-girl
+Girls
 
 *女子*
 
-0 Gloria Heron
+〇Gloria Heron
 
 *〇グローリア・ヘロン*
 
@@ -891,7 +890,7 @@ girl
 
 &nbsp;
 
-0 Shelley Frank
+〇Shelly Frank
 
 *〇シェリー・フランク*
 
@@ -903,11 +902,11 @@ girl
 
 ＿＿＿＿＿＿＿＿＿＿
 
-4th Dan, Men
+Rank 4 - Boys
 
 *4段位・男子*
 
-0 Dennis Whatley.
+〇Dennis Hawtry
 
 *〇デニス・ホートリィ*
 
@@ -917,7 +916,7 @@ girl
 
 &nbsp;
 
-0 Virgil Filane
+〇Virgil Filain
 
 *〇ヴァージル・フィレイン*
 
@@ -927,11 +926,11 @@ girl
 
 &nbsp;
 
-girl
+Girls
 
 *女子*
 
-0 Irma Utley.
+〇Irma Atlee
 
 *〇イルマ・アトリー*
 
@@ -941,7 +940,7 @@ girl
 
 &nbsp;
 
-0Janice Karloff
+〇Janice Karoff
 
 *〇ジャニス・カーロフ*
 
@@ -953,11 +952,11 @@ girl
 
 ＿＿＿＿＿＿＿＿＿＿
 
-3rd Dan, Men
+Rank 3 - Boys
 
 *3段位・男子*
 
-0 Frank G. Wright
+〇Frank Zilight
 
 *〇フランク・ジーライト*
 
@@ -967,7 +966,7 @@ girl
 
 &nbsp;
 
-0 Thomas Ligoti
+〇Thomas Rigotti
 
 *〇トマス・リゴティ*
 
@@ -977,7 +976,7 @@ girl
 
 &nbsp;
 
-0 Wade Willman
+〇Wade Wilman
 
 *〇ウェイド・ウィルマン*
 
@@ -987,11 +986,11 @@ girl
 
 &nbsp;
 
-girl
+Girls
 
 *女子*
 
-0 Phoebe Kaitz
+〇Phoebe Kites
 
 *〇フィービー・カイツ*
 
@@ -1003,11 +1002,11 @@ girl
 
 ＿＿＿＿＿＿＿＿＿＿
 
-2nd Dan, Men
+Rank 2 - Boys
 
 *2段位・男子*
 
-0 David Blake
+〇David Blake
 
 *〇デヴィット・ブレイク*
 
@@ -1017,7 +1016,7 @@ girl
 
 &nbsp;
 
-0 Charles Beaumont
+〇Charles Beaumont
 
 *〇チャールズ・ボーマント*
 
@@ -1027,11 +1026,11 @@ girl
 
 &nbsp;
 
-girl
+Girls
 
 *女子*
 
-0 Leila Carter
+〇Layla Carter
 
 *〇レイラ・カーター*
 
@@ -1041,7 +1040,7 @@ girl
 
 &nbsp;
 
-0 Mabel Beaumont
+〇Mabel Beaumont
 
 *〇メイベル・ボーモント*
 
@@ -1053,11 +1052,11 @@ girl
 
 ＿＿＿＿＿＿＿＿＿＿
 
-1st Dan, Men
+Rank 1 - Boys
 
 *1段位・男子*
 
-0 Edward Crocki
+〇Edward Croki
 
 *〇エドワード・クロキ*
 
@@ -1065,13 +1064,13 @@ girl
 
 *6歳*
 
-The eldest son of the Kroki family.
+【Eldest son of the Croki family】
 
 *【クロキ家長男】*
 
 &nbsp;
 
-0 Valet Avans
+〇Valet Avans
 
 *〇ヴァレット・アヴァンズ*
 
@@ -1081,11 +1080,11 @@ The eldest son of the Kroki family.
 
 &nbsp;
 
-girl
+Girls
 
 *女子*
 
-0 Eva Avans
+〇Eva Avans
 
 *〇エヴァ・アヴァンズ*
 
@@ -1099,11 +1098,11 @@ girl
 
 &nbsp;
 
-0 William Cloud, Will.
+〇William Cloud (Will)
 
 *〇ウィリアム・クラウド（ウィル）*
 
-17 years old (senior in high school)
+17 years old (3rd year of high school)
 
 *17歳（高等校3回生）*
 
@@ -1111,15 +1110,15 @@ girl
 
 *175cm*
 
-Short-cropped, youthful, ashy, sandy blonde hair
+Short, youthful grayish sandy blonde hair
 
 *短く刈り込んだ若々しい灰味の強いサンディブロンドの髪*
 
-Gray eyes with a blue tinge
+Bluish gray eyes
 
 *青味のあるグレーの瞳*
 
-He is the eldest son of the Cloud family. He has two attributes, wind and no wind. Primary weapon: longsword.
+【Eldest son of the Cloud family. Holds wind and null attributes. Main weapon: longsword】
 
 *【クラウド家長男。風・無、二属性持ち。主武器・ロングソード】*
 
@@ -1127,15 +1126,15 @@ He is the eldest son of the Cloud family. He has two attributes, wind and no win
 
 &nbsp;
 
-0Fred McCain
+〇Fred McKean
 
 *〇フレッド・マッケイン*
 
-16 years old (sophomore in high school)
+16 years old (2nd year of high school)
 
 *16歳（高等校2回生）*
 
-Second son of the McCain family.
+【Second son of the McKean family】
 
 *【マッケイン家次男】*
 
@@ -1145,23 +1144,23 @@ Second son of the McCain family.
 
 ＿＿＿＿＿＿＿＿＿＿
 
-Protectorate, senior rank
+Guard - High Rank Members
 
 *護民団　上団位者*
 
 &nbsp;
 
-0 Gary Meyers
+〇Gary Myers
 
 *〇ゲイリー・メイヤーズ*
 
 &nbsp;
 
-0 Marcel Avans
+〇Marcel Avans
 
 *〇マルセル・アヴァンズ*
 
-[Valette and Eva's father].
+【Father of Valet and Eva】
 
 *【ヴァレットとエヴァの父親】*
 
@@ -1169,25 +1168,25 @@ Protectorate, senior rank
 
 ＿＿＿＿＿＿＿＿＿＿
 
-Protectorate, low-ranking member of the Suzy Crowdfun Club
+Guard - Low Rank Members (Suzie Cloud Fan Club Members)
 
 *護民団　低団位者（スージィ・クラウドファン倶楽部会員）*
 
 &nbsp;
 
-0 Kenneth.
+〇Kenneth
 
 *〇ケネス*
 
 &nbsp;
 
-00 Randolph.
+〇Randolph
 
 *〇ランドルフ*
 
 &nbsp;
 
-0 Ruffino
+〇Rufino
 
 *〇ルフィーノ*
 
@@ -1195,19 +1194,19 @@ Protectorate, low-ranking member of the Suzy Crowdfun Club
 
 ＿＿＿＿＿＿＿＿＿＿
 
-Copetown Blacksmith Workshop
+Coop Town - Blacksmith Workshop
 
 *コープタウン　鍛冶工房*
 
 &nbsp;
 
-00 Marsh Cowsbert.
+〇Marsh Causbart
 
 *〇マーシュ・カウズバート*
 
 &nbsp;
 
-0Marybelle Cowsbert.
+〇Maribelle Causbart
 
 *〇マリーベル・カウズバート*
 
@@ -1221,15 +1220,15 @@ Copetown Blacksmith Workshop
 
 &nbsp;
 
-0 Orbet Mash (10)
+〇Orbet Mash (10)
 
 *〇オルベット・マッシュ（10）*
 
-（Age in parentheses ( ) is the age in appearance.
+(Age appearance in parentheses)
 
 *（）内は外見上の年齢*
 
-Child Eater.
+'Child Eater'
 
 *『子供喰らい』（チャイルド・イーター）*
 
@@ -1237,49 +1236,49 @@ Child Eater.
 
 ＿＿＿＿＿＿＿＿＿＿
 
-Orbet Mash and his family
+Orbet Mash's Minions
 
 *オルベット・マッシュ眷属*
 
 &nbsp;
 
-0 Ahab (18)
+〇Ahab (18)
 
 *〇エイハブ（18）*
 
 &nbsp;
 
-0 Putola (17)
+〇Putora (17)
 
 *〇プトーラ（17）*
 
 &nbsp;
 
-0 Bernie (16)
+〇Barney (16)
 
 *〇バーニー（16）*
 
 &nbsp;
 
-0 Lawrence (14)
+〇Lawrence (14)
 
 *〇ローレンス（14）*
 
 &nbsp;
 
-0 Lila (14)
+〇Lila (14)
 
 *〇ライラ（14）*
 
 &nbsp;
 
-0 Eliza (12)
+〇Eliza (12)
 
 *〇イライザ（12）*
 
 &nbsp;
 
-0 Doug (9)
+〇Doug (9)
 
 *〇ダグ（9）*
 
@@ -1289,13 +1288,13 @@ Orbet Mash and his family
 
 &nbsp;
 
-0 Clarimonde.
+〇Clarimond
 
 *〇クラリモンド*
 
 &nbsp;
 
-00 abd
+〇Abdo
 
 *〇アブド*
 
@@ -1303,7 +1302,7 @@ Orbet Mash and his family
 
 &nbsp;
 
-0 als alf
+〇Alz Alf
 
 *〇アルズ・アルフ*
 
@@ -1315,25 +1314,22 @@ Orbet Mash and his family
 
 &nbsp;
 
-0Rodolph Darker
+〇Rudolph Darker
 
 *〇ロドルフ・ダーカー*
-
-
 
 &nbsp;
 
 ----------------
 
-The next "Interlude" will be dropped a week later on the 17th at 20:00.
+Next time is 'Interlude', to be posted in a week on the 17th at 20:00.
 
 *次回は『幕間』、一週間後17日20時に投下します。*
 
-This is a story during the summer vacation.
+It's a story during summer vacation.
 
 *夏休み中のお話しです。*
 
-Interlude 1: Let's Go to the Sea!
+'Interlude 1: Let's Go to the Sea!'
 
 *『幕間1　海へ行こうよ！』*
-

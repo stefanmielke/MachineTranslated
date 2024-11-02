@@ -1,26 +1,26 @@
-# 154 A Quake
+# Chapter 154: Tremor
 
 ## 154話　激震
 
-I felt the earth shake.
+I felt the earth shake heavily.
 
 *ズシリ、と大地が揺れた気がした。*
 
-It is as if a huge dragon is slowly advancing.
+It was as if a gigantic dragon was slowly advancing.
 
 *まるで巨大な竜が、ゆっくり歩を進めているかの様な錯覚に囚われる。*
 
 &nbsp;
 
-It seems to be shaking the atmosphere.
+It seemed to be shaking the very atmosphere.
 
 *ビリビリと、大気までも震わせている様だ。*
 
-The thud ...... thud ...... and the vibration gradually gets louder and louder.
+The vibrations gradually grew stronger, thudding… thudding…
 
 *ドスン……ドスン……と少しずつ振動が大きくなって来る。*
 
-Each time I do, I feel a big jump in my body.
+With each tremor, I felt my body jump.
 
 *その度に、身体が大きく跳ね上がる気がする。*
 
@@ -30,87 +30,87 @@ Each time I do, I feel a big jump in my body.
 
 &nbsp;
 
-No, not .......
+No… that's not it.
 
 *いや……違う。*
 
-This is my body shaking. This is my body shaking.
+It's my own body that's shaking. It's trembling.
 
 *これは自分の身体が揺れているのだ。震えているのだ。*
 
-Why on earth am I shaking? Am I shaking?
+Why on earth am I shaking? Trembling?
 
 *一体何故自分は揺れている？震えている？*
 
-............ frightened?
+…Am I afraid?
 
 *…………怯えているのか？*
 
 &nbsp;
 
-You say you are frightened?
+Am I really saying that I'm afraid?
 
 *自分は怯えていると言うのか？*
 
-What on earth are you scared of?
+What on earth am I afraid of?
 
 *一体何に怯えるのだ？*
 
-What happened to that feeling of omnipotence you had a moment ago? There is no need to be frightened.
+What happened to the omnipotence I felt just a moment ago? There's no reason to be afraid.
 
 *さっきまであった全能感はどうした？怯える必要などある訳が無い。*
 
 &nbsp;
 
-Boom! and the body jumps again.
+My body jolted again with a thud!
 
 *ドクン！とまた身体が跳ね上がる。*
 
 &nbsp;
 
-What the hell is going on?
+What on earth is going on?!
 
 *一体全体どうしたと言うんだ！*
 
-What makes my body jump so much ......?
+Why is my body jumping like this…?
 
 *何だってこんなに俺の身体は跳ね上がる……？*
 
 &nbsp;
 
-Oh well, the body responds on its own.
+I see, my body is reacting on its own.
 
 *そうか、身体が勝手に反応しているのだ。*
 
-They are trembling and frightened on their own.
+It's trembling and shaking involuntarily.
 
 *勝手に震えて怯えている。*
 
-These vibrations are the beats of my own heart.
+This vibration is the pounding of my heart.
 
 *この振動は自分の心臓の鼓動だ。*
 
-My heart is beating horribly.
+My heart is beating terrifyingly fast.
 
 *心臓が恐ろしい程に打ち鳴っているのだ。*
 
 &nbsp;
 
-I found myself sweating like a waterfall.
+Before I knew it, sweat was flowing down like a waterfall.
 
 *気付けば滝の様に汗が流れている。*
 
-This is an instinctive fear.
+This is a primal fear.
 
 *これは本能的な恐怖なのだ。*
 
-A fear of something fundamental that cannot be controlled by one's reason.
+A fear of something fundamental that I cannot control with my reason.
 
 *自分の理性では制御出来ない、根源的な何かへの畏れ。*
 
 &nbsp;
 
-And then I noticed the presence there.
+And then, I became aware of the presence that was there.
 
 *そして、そこに居る存在に気が付いてしまった。*
 
@@ -120,7 +120,7 @@ The moment I saw it, I suddenly understood that my soul was afraid.
 
 &nbsp;
 
-Fluke felt at that moment that the red jade light that shimmered around him was like sparks from the flames of rage that erupted from him.
+Fluke felt at that moment that the being scattering the light of the ruby was like the sparks of a fiery rage erupting.
 
 *紅玉の光を振りまくソレが、まるで噴き上げる憤怒の炎が撒き散らす火の粉の様だと、フルークはその時感じた。*
 
@@ -132,247 +132,247 @@ Fluke felt at that moment that the red jade light that shimmered around him was 
 
 &nbsp;
 
-Wait, Susie! Calm down first."
+“Wait, Suzy! First, calm down.”
 
 *「待てスージィ！先ずは落ち着け」*
 
-What about?" What are you talking about, Irving? I'm calm.
+“Huh? What are you talking about, Arvin? I am calm, okay?”
 
 *「は？何言ってるのアーヴィン。わたしは落ち着いています、が？」*
 
-Then you'd better control your killing spree!"
+“Then suppress that killing intent!”
 
 *「なら、その殺気を抑えろよ！」*
 
 &nbsp;
 
-Pardon me!
+How rude!
 
 *失敬な！*
 
-Irving, you are talking as if I am leaking murderous intent.
+That Arvin, saying that I’m leaking killing intent everywhere.
 
 *アーヴィンめ、わたしが殺気をダダ漏れにしている様な事を言って来おる。*
 
-It was as if the area shook every time I walked!
+As if the ground shakes every time I walk!
 
 *わたしが歩くたびに、辺りが揺れるみたいな事まで！*
 
-I'm not that heavy!
+I’m not that heavy!
 
 *わたしゃそんなに重くないぞ！*
 
 &nbsp;
 
-I don't care about that, Irving. What's this all about?
+“More importantly, Arvin. What is going on here?”
 
 *「そんな事よりアーヴィン。これはどういう事、かな？」*
 
 &nbsp;
 
-I couldn't even speak at the sight of the devastation unfolding before my eyes. I am, but I am still speaking out.
+I was at a loss for words at the horrific scene before me. No, I was speaking.
 
 *目の前に広がる惨状に、わたしは声も出ない。いや出しているが。*
 
 &nbsp;
 
-Why is Irving here, and why is this happening?"
+“Why is Arvin here, and why is this happening?”
 
 *「どうしてアーヴィンがいて、こんな事になっているの、かな？」*
 
 &nbsp;
 
-I saw the dog that had been growling near Karen trying to get up.
+I noticed a dog that had been groaning near Karen trying to get up.
 
 *カレンの近くで唸っていた犬が、起き上がろうとしてるのが目に入った。*
 
-The waist is squishy and wriggling around. The wound seems to be regenerating.
+Its waist was squirming and writhing. It seemed its wounds were regenerating.
 
 *腰回りがグニャグニャうにょうにょと蠢いてる。傷が再生している様だ。*
 
-Hmm? What is this guy? Is he going to jump on Karen?
+Huh? What’s this guy? Is it planning to pounce on Karen?
 
 *ン？何だコイツ。カレンに飛びかかるつもりか？*
 
 &nbsp;
 
-Why are you being so difficult to deal with?"
+“Why are you struggling against something like this?”
 
 *「どうして、こんなの相手に手こずってる、の？」*
 
 &nbsp;
 
-I lightly turned my wrist and snapped my fingers at this guy.
+I lightly flicked my wrist and snapped my fingers at it.
 
 *ソイツに向けて、軽く手首を返して指を鳴らした。*
 
-As soon as the directional shockwave with strong Ki on it reaches this guy, the body of the magical beast pops like a water balloon.
+The strong shockwave infused with ‘ki’ hit it, and the beast’s body burst like a water balloon.
 
 *強く『氣』を乗せた指向性の衝撃波が、ソイツに届いた途端、魔獣の身体が水風船みたいに弾け飛ぶ。*
 
 &nbsp;
 
-How could Karen, Miss Cordelia, and Annie have been hurt so badly?
+“Why are Karen, Lady Cordelia, and even Annie, so badly injured?”
 
 *「カレンやコーディリア嬢達、それにアニーまで、どうしてこんな酷い怪我をしている、の？」*
 
 &nbsp;
 
-I felt my core grow cold.
+I felt the core of my body growing cold.
 
 *身体の芯が冷えて行くのを感じていた。*
 
-Karen is the only one sitting conscious. No, that Karen is also barely conscious?
+Only Karen was sitting there, barely maintaining consciousness. No, even she was just barely holding on, right?
 
 *意識を保って座っているのはカレンだけだ。いや、そのカレンも意識を保っているのは辛うじて、か？*
 
 &nbsp;
 
-Miss Lucille has both arms broken.
+Lady Lucille had both arms broken.
 
 *ルシール嬢は両腕が折れてる。*
 
-Miss Catherine's side is bleeding badly. This is going to damage her internal organs.
+Lady Catherine was bleeding heavily from her side. This could damage her internal organs.
 
 *キャサリン嬢の脇腹からの出血が酷い。コレは内臓にまでダメージが及ぶぞ。*
 
-Miss Cordilia has a gouged shoulder and even a blue bruise on her beautiful face ....... And her fingers, broken?
+Lady Cordelia had her shoulder flesh gouged out, and her beautiful face was bruised… Were her fingers broken too?
 
 *コーディリア嬢は肩の肉が抉られていて、綺麗な顔には青痣まで……。指も、折れてる？*
 
-And small animals? This one is terrible. Her heart is barely beating weakly, but it's about to stop.
+Even the small animal? This poor thing is in a terrible state. Its weak little heart is barely beating, but it looks like it will stop soon.
 
 *小動物も？この子も酷い。辛うじて弱々しく心臓が動いているけど、もう止まりそうだ。*
 
-Annie ....... Oh my god ...... how could this be so bad? It looks as if she's been kicked repeatedly. There's even blood around her mouth after she vomited blood.
+Annie… What happened… How did it come to this? It looks like she’s been kicked multiple times. There’s even blood at her mouth.
 
 *アニー……。なんてこと……どうしたらこんな酷い事に？まるで何度も蹴り飛ばされたようだ。口元には血を吐いた後まである。*
 
-Karen, the only person who remains conscious, is also terrible.
+Even Karen, who was the only one maintaining consciousness, looked terrible.
 
 *唯一人意識を保っているカレンも酷い。*
 
-That sheltering right arm is broken. How many fingernails have been removed from that beautiful hand?
+That right arm she was protecting is broken. Were the nails of that beautiful hand torn off?!
 
 *あの庇っている右腕は折れてるな。あの綺麗だった手の爪が、何枚も剥がされてる？！*
 
-It seems to be damaging to my body. He's coughing ....... Any damage to the ribs or lungs?
+It seems she has damage to her body too. She’s coughing… Are her ribs or lungs injured?
 
 *身体にもダメージがありそうだ。咳き込んでる……。肋骨とか肺にも損傷が？*
 
 &nbsp;
 
-...... Irving!"
+“…Arvin!”
 
 *「……アーヴィン！」*
 
-I'm sorry. I'm sorry.
+“I’m sorry. I was inadequate.”
 
 *「スマン。オレが至らなかった」*
 
-'Soo, Soo! Ha, Haggard, you're here to help!"
+“S-Su-chan! H-Haggard-kun came to help!”
 
 *「ス、スーちゃん！ハ、ハッガード君は、助けに来てくれたの！」*
 
-Why are you even injured? Are you going to fall behind your opponent like this? Aren't you sagging?"
+“Why are you injured too? Falling behind against something like this? Are you slacking off?”
 
 *「なんでアンタ迄怪我してるの？こんなの相手に後れを取る？たるんで、ない？」*
 
-"No face."
+“I’m sorry.”
 
 *「面目ない」*
 
 &nbsp;
 
-I almost hit Irving too hard.
+I almost lashed out at Arvin.
 
 *ついアーヴィンに強く当たりそうになる。*
 
-If Irving is as good as he seems to be, he should be able to handle an opponent of this caliber with ease.
+With his abilities, he should have been able to handle an opponent like this easily.
 
 *アーヴィンの実力なら、このくらいの相手、簡単に処理出来る筈なのだ。*
 
-So why not?
+So why?!!
 
 *なのに何故？！！*
 
 &nbsp;
 
-But if you look closely, Irving is pretty damaged too.
+But looking closely, Arvin also seemed to have taken considerable damage.
 
 *でも、よく見るとアーヴィンも結構なダメージを受けてる。*
 
-In addition, you can visit .......
+On top of that…
 
 *おまけに……。*
 
 &nbsp;
 
-I mean, why are you the only one in a poisoned state?"
+“...By the way, why are you the only one poisoned?”
 
 *「……てか、なんでアンタだけ毒状態、なの？」*
 
-What about? Poison?"
+“Huh? Poison?”
 
 *「は？毒？」*
 
-"You're in a highly poisonous trance, okay? Did you not know that?
+“You’re in a state of severe poisoning, you know? Didn’t you realize that?”
 
 *「猛毒の状態異常に陥ってる、よ？分かって無かっ、た？」*
 
-'Is it the poison that's making me all queasy and dizzy from earlier?'
+“Is that why I’ve been feeling nauseous and dizzy since earlier?”
 
 *「さっきからムカムカしてたのとか、目が回ってるのって毒のせいか？」*
 
-You were coughing up blood!"
+“You were even vomiting blood!”
 
 *「血まで吐いてたじゃない！」*
 
-"By any chance, ......, was that a close ......?"
+“Could it be… I was in danger…?”
 
 *「ひょっとして……、危なかった……のか？」*
 
 &nbsp;
 
-Irving was still Irving.
+Arvin was still Arvin.
 
 *アーヴィンは相変わらずアーヴィンだった。*
 
 &nbsp;
 
-Why is this guy so careless about his own body?
+Why is he so oblivious to his own body?
 
 *何でコイツはこうも自分の身体に無頓着なんだろ？*
 
-Do you know what Bibi is always lamenting?
+Doesn’t he understand why Bibi always complains?!
 
 *ビビがいつも嘆いているの分かってる？！*
 
-Well, riders tend to be similar.
+Speaking of which, Rider seems to have a similar tendency.
 
 *そういや、ライダーも似た様な傾向あるな。*
 
-I wonder if all the people in Haggard's house are like that.
+Is everyone in Haggard’s family like that?
 
 *ハッガードの家の人って、皆んなそうなんだろか。*
 
 &nbsp;
 
-I'm going to go to ...... and treat it all at once. I'll treat it all at once.
+“...It can't be helped. I’ll heal you all at once.”
 
 *「……しょうがない。一気に治療しま、す」*
 
-What? Treatment? All at once? What? Here?
+“Huh? Heal? All at once? Here?!”
 
 *「え？治療？一度に？え？ココで？！」*
 
-We need to do something about these kids right now.
+“I need to do something about these kids right away.”
 
 *「この子達、直ぐに何とかしないと」*
 
 &nbsp;
 
-The Field Greater Heel."
+『Field Greater Heal』
 
 *『フィールド・グレーターヒール』*
 
@@ -380,33 +380,33 @@ Furthermore.
 
 *更に。*
 
-Bright of Purge."
+『Bright of Purge』
 
 *『ブライト・オブ・パージ』*
 
-Centered on me, healing light spread throughout the alley.
+A healing light spread throughout the alley centered on me.
 
 *わたしを中心に、癒しの光が路地の中一杯に広がった。*
 
-Suddenly, everyone's injuries are fully healed.
+In an instant, it completely healed everyone’s injuries.
 
 *忽ち、みんなの怪我を完全回復させる。*
 
 &nbsp;
 
-What? Soooo, awesome ......"
+“Huh? A-amazing…”
 
 *「え？す、凄い……」*
 
 &nbsp;
 
-When Karen sees that her peeled fingernails and broken arm are healed, she looks surprised and wriggles her hand with wide eyes.
+When Karen confirmed that her torn nails and broken arms were healing, she opened her eyes wide in surprise and started to wiggle her hands.
 
 *カレンが、剥がれた爪や折れた腕が治っているのを確認すると、驚いた様に目を見開きながら手をニギニギしている。*
 
 &nbsp;
 
-Bright of Purge" is to cure Irving's highly poisonous condition.
+『Bright of Purge』 was to cure Arvin’s severe poisoning.
 
 *『ブライト・オブ・パージ』は、アーヴィンの猛毒状態を治す為。*
 
@@ -414,7 +414,7 @@ And Karen.
 
 *それとカレン。*
 
-I don't know why, but this girl has a funny debuff on her.
+I don’t know why, but this girl seems to have some strange debuff on her.
 
 *何でかわからんがこの子、おかしなデバフがかかってるんだよね。*
 
@@ -422,13 +422,13 @@ I don't know why, but this girl has a funny debuff on her.
 
 &nbsp;
 
-"De, de, de, de! D-B-A-B-A-A-A-A!"
+“D-deme! D-deme baaaan!!”
 
 *「で、でめ゛ぇ！でめ゛ぇばぁあぁ！！」*
 
 &nbsp;
 
-Just when I thought I was relieved, some strange guy started screaming.
+Just when I thought I could breathe easy, a strange guy started shouting.
 
 *これで一安心、と思った所へ変な奴が叫び始めた。*
 
@@ -436,17 +436,17 @@ What is this guy? Is he human?
 
 *何だコイツ？人間か？*
 
-Hmm? DeGrayed Man? Isn't that the ...... guy? Are you saying that these are the hexenbiests I've been tracking?
+Huh? “Degraded Man”? …Not human? Is this what the beasts I detected were?
 
 *ン？『デグレイデッドマン』？……人じゃない？わたしが探知していた魔獣はコイツ等って事？*
 
 &nbsp;
 
-I don't know what it is, but I was thinking that half of the ten magical beast reactions I detected, five of them were gathered here, and two of them were humanoid?
+I thought that half of the ten beast reactions I detected were gathered here, and it turns out two of them were humanoid?
 
 *何か知らんけど、わたしが探知した魔獣反応10匹の内の半分、5匹がココに集まってるなーと思ってたら、その内の2匹は人型だったって事か？*
 
-I should have been more aware of the reaction of the hexenbiest.
+I should have paid more attention to the beast reactions.
 
 *もっとしっかり、魔獣の反応に意識向けておけば良かったか。*
 
@@ -454,65 +454,65 @@ I should have been more aware of the reaction of the hexenbiest.
 
 &nbsp;
 
-But I'm pretty sure that these are the same people who did this to my kids.
+But these guys are definitely the ones who put my kids through hell, without a doubt.
 
 *だが、コイツらがウチの子達を散々な目に遭わせた手合いで、まず間違いは無いだろう。*
 
-But still, you can go to .............
+Still…….
 
 *それにしても…………。*
 
 &nbsp;
 
-"Oh, no!"
+“Shut up.”
 
 *「うっさいな」*
 
 &nbsp;
 
-The guy from earlier comes barreling in, screaming something.
+While shouting something, the previous guy charged in.
 
 *何やら喚きながら、さっきの奴が突っ込んで来る。*
 
-It's so noisy! I don't even understand what they are saying!
+It was so noisy! I couldn’t understand what he was saying at all!
 
 *それが兎に角うるさい！何を言ってるのかも全然分かんないし！*
 
-One of the dogs was coming toward us, so I kicked it toward that "failure.
+I noticed a dog was also coming towards me, so I kicked that “failure” away.
 
 *なんか犬も一匹コチラに向かって来ていたので、その『出来損ない』に向けて蹴り飛ばしてやった。*
 
 &nbsp;
 
-Pappe!"
+“Pakyoppe!”
 
 *「ぱきょぺ！」*
 
 &nbsp;
 
-A kicking dog hits this guy at a speed faster than sound.
+The dog I kicked collided with it at a speed that broke the sound barrier.
 
 *蹴り飛ばした犬が、音を超える速度でソイツにぶち当たる。*
 
-The dog flew straight away and joined that guy and hit the front wall and bounced off.
+The dog flew and crashed into the wall in front, bursting apart.
 
 *そのまま飛んでった犬がソイツと一緒になって、正面の壁にぶち当たって弾けた。*
 
-Results.
+As a result.
 
 *結果。*
 
-The fusion of what looks like a person and what looks like a dog will result in an object that is so unpleasant.
+A creature that looked like a human and a dog fused together, creating a truly disgusting object.
 
 *人らしき物と犬らしき物が融合して、それはそれは気持ちの悪いオブジェが出来上がる事になる。*
 
 &nbsp;
 
-He's in such a state, but he's still moving around, saying "Gebi Gebi" and stuff.
+Even in that state, it was still moving around, making “gepi gepi” sounds.
 
 *あんな状態になってるのに、まだ「げぴげぴ」とか言いながら動いてるよ。*
 
-It's really gross. I'll burn it later.
+Really gross. I’ll burn it later.
 
 *ホントにキモい。後で焼こう。*
 
@@ -522,59 +522,59 @@ It's really gross. I'll burn it later.
 
 &nbsp;
 
-Suddenly, I noticed that the sword blade had fallen at my feet.
+Suddenly, I noticed a blade lying at my feet.
 
 *ふと、足元に刀身が落ちている事に気が付いた。*
 
-I pick it up with a thud.
+I picked it up gently.
 
 *それをソッと拾い上げる。*
 
-It is a short, wooden mock sword.
+It was a short, wooden practice sword.
 
 *短めの、木で出来た模擬剣だ。*
 
 &nbsp;
 
-This is a piece of a wooden sword that Annie was happy to be allowed to belt.
+This was a fragment of the wooden sword that Annie had been so happy to be allowed to wear.
 
 *これはアニーが帯剣を許されたと喜んでいた木剣の破片だ。*
 
-I picked it up and wrapped it in my hand, and I could feel Annie's ch'i wrapping around it.
+As I held it in my hand, I could faintly feel Annie’s ki surrounding it.
 
 *拾い上げたそれを手の中で包んでみれば、アニーの氣がほんのりと纏われている事が伝わって来る。*
 
 &nbsp;
 
-You fought with this one, Annie.
+So you fought with this, Annie.
 
 *コレを使って戦ったんだねアニー。*
 
-I can't believe I was even able to do that before I knew it. ......
+I can’t believe you’ve become capable of such things without me noticing…
 
 *いつの間にか、そんな事まで出来るようになっていたなんて……。*
 
-That's great, Annie. I'll give you lots of praise later.
+You’re amazing, Annie. I’ll praise you a lot later.
 
 *凄いよアニー。後で一杯褒めてあげようね。*
 
 &nbsp;
 
-Carefully and quietly, he put his "Ki" into the Soret in his hand.
+I carefully infused “ki” into it.
 
 *手中のソレに慎重に、静かに『氣』を籠めた。*
 
-He then picks it up with his fingertips as if he were holding a conductor's baton, and with the tip of the baton, he cuts the wind in fine, quick strokes.
+Then, I pinched it as if holding a conductor’s baton and swiftly cut the air with the tip.
 
 *そして指先で指揮棒でも持つ様に摘んで、その先端で細かく素早く風を切る。*
 
-The "Ki" that she was clad in instantly sliced apart the demonic beast that was about to turn on Miss Cordelia and the others.
+The infused “ki” instantly sliced through the beast that was about to attack Lady Cordelia.
 
 *纏った『氣』が、コーディリア嬢達に牙を向けようとしていた魔獣を一瞬で乱切りにした。*
 
 &nbsp;
 
-Her paws seemed to be regenerating, but there was no way I would have missed it, aiming at a girl right after her regeneration!
+It seemed its front legs were regenerating, but there was no way I would let it target a girl right after regenerating!
 
 *前足がグニグニと再生していた様だったが、再生直後に女の子を狙うなど、このわたしが見逃すワケが無かろうが！*
 
@@ -582,121 +582,121 @@ Her paws seemed to be regenerating, but there was no way I would have missed it,
 
 &nbsp;
 
-I've had to dispose of many of the same kind before I came here, and the quickest way to dispose of them is to cut them up or blow them up like this.
+By the way, I had disposed of several of its kind before coming here, but cutting them up like this or making them explode is the quickest way to deal with them.
 
 *因みにココに来るまでに、何匹もコレと同類を処分して来たんだけど、コイツ等はこうやって乱切るか爆ぜさせるのが、一番手っ取り早い処理方法なのだ。*
 
 &nbsp;
 
-They are not very strong, but they have a great regenerative ability.
+They’re not particularly strong, yet their regeneration ability is incredibly high.
 
 *コイツ等は大して強くも無いくせに、再生能力だけはやたらと高い。*
 
-I was curious as to why it regenerated so much, so I read deeply into the etheric information of one of them and noticed that a strange one was in its body.
+I was curious about why they regenerate so much, and when I delved into the ether information of one of them, I noticed something strange inside its body.
 
 *なんでこんなに再生するのか気になって、その内の一匹のエーテル情報を深く読み込んでみたら、変なのがその体内に居る事に気が付いた。*
 
-What would you call it? There was this ...... ouzo ouzo, mozomoso, myriad wriggling entities all over my body.
+What can I say? There were countless wriggling entities all over its body.
 
 *何て言うのかな？全身に、こう……ウゾウゾ、モゾモゾと無数に蠢いてる存在があったんだよね。*
 
-Parasites? Like what?
+Parasites? Something like that?
 
 *寄生虫？みたいな？*
 
-Is he a dog with regenerating bugs all over his body? Is he an infinite dog? I wanted to poke him in the eye.
+Are they keeping regeneration worms all over their body? An infinite dog?! I felt like saying that.
 
 *全身に再生蟲でも飼ってるのか？無限な犬なのか？！と、つっ込みを入れてやりたくなった。*
 
 &nbsp;
 
-I thought that if I could destroy only the bugs, they would not be able to regenerate, so I tried it.
+So, I thought if I could just crush those worm-like things, they wouldn’t be able to regenerate, and I decided to try it.
 
 *ンで、その蟲っぽいのだけ潰せれば、再生は出来なくなるのかなと思い、試してみたのだ。*
 
 &nbsp;
 
-What I tried was an anomaly in "Impact Blaster".
+What I tried was a variant of “Impact Blaster.”
 
 *やってみたのは『インパクト・ブラスター』の変則技。*
 
-It's been tried and true for a long time.
+I had been experimenting with it for a while.
 
 *前々から試行錯誤してたんだよね。*
 
-It is not a surface attack like "Impact Storm" or "Impulse Burst" which can attack a range, but an attack on multiple points.
+Instead of area attacks like “Impact Storm” or “Impulse Burst,” which could hit allies in a chaotic battle, I aimed for multiple points.
 
 *範囲を攻撃出来る『インパクト・ストーム』や『インパルス・バースト』みたいな面の攻撃では無くて、複数の点への攻撃。*
 
 &nbsp;
 
-After all, with this ranged attack, if there are other allies in the range besides the enemy, they will be damaged as well!
+With area attacks, if there are allies within the range, they would take damage too!
 
 *何と言ってもこの範囲攻撃だと、エネミー以外にも範囲の中に味方が居たら、そこにもダメージ与えちゃうからね！*
 
-If we were in a melee in a PT group, it would be too dangerous to use.
+When in a party and things get chaotic, it’s dangerous to use them.
 
 *PT組んでて乱戦なんて事になってたら、危なくて使えやしないのよ。*
 
 &nbsp;
 
-So I've been developing this as one of my skill controls to see if I could hit multiple targeted points.
+So I had been developing a way to hit multiple targeted points as one of my skill controls.
 
 *なので複数の狙った点に当てられないかと、スキルコントロールのひとつとして、ずっと開発をしていたのだ。*
 
 &nbsp;
 
-Thanks to this, I can now tag more than one being at a time if I concentrate.
+Thanks to that, now I can target multiple entities at once when I concentrate.
 
 *おかげで、今では集中をすれば、一度に複数の存在をタゲる事も出来るようになった。*
 
-This time, I was able to hit hundreds of tags in the dog's body.
+This time, I was able to hit several hundred targets within the dog’s body.
 
 *今回は犬の身体の中、数百に及ぶタゲに当てる事が出来た。*
 
 &nbsp;
 
-Maybe if I concentrate more, I'll get a feel for how to raise the number of targets by several orders of magnitude. ......, but to be honest, it's quite tiring. I don't want to do it too much.
+If I concentrate even more, I feel like I could increase the number of targets I can hit by several orders of magnitude… but honestly, it’s quite tiring. I don’t want to do it too much.
 
 *多分、もっともっともーーーーっと集中すれば、タゲる数の桁を何段階も上げられる手応えは掴んでるのだ……けど、正直かなり疲れる。あんまやりたくない。*
 
-I don't think it's that common to be dealing with thousands and thousands of people!
+After all, I don’t think I’ll often face thousands or tens of thousands of targets!
 
 *大体、何千何万とかいう数を相手にするとか、そうそうあるとは思えないしね！*
 
 &nbsp;
 
-I was able to use my skills this time to destroy all those wriggling around inside the dog.
+This time, using my skill, I was able to crush all the wriggling things inside the dog.
 
 *今回スキルを使って、犬の中で蠢くヤツを全部潰す事は出来た。*
 
 &nbsp;
 
-As a result, we were able to kill the dog without regenerating it, but it looked like a badly shredded rag.
+As a result, I managed to take it down without allowing it to regenerate, but it looked like a horrible, tattered rag.
 
 *結果、犬は再生させる事なく仕留める事が出来たけど、見た目は酷いズタズタのボロ雑巾状態。*
 
-Wouldn't it be easier to just cut it off or blow it up from the start? Isn't that just tiring and the worst cosmetics?
+Wouldn’t it have been easier to just cut it up or make it explode from the start? It was exhausting, and the cost-effectiveness was terrible, right?
 
 *あれなら、最初から乱切るか爆ぜさせた方が楽じゃね？疲れるだけで、コスパ最悪じゃね？*
 
-That is how we came to this conclusion.
+That’s what I realized.
 
 *と、そんな風に思い至ったワケなのです。*
 
 &nbsp;
 
-So, the best way to deal with these guys is to cut them up roughly, or blow them up, or ....... Other than that, I think the right way to deal with them is to stain the walls. Duh.
+So, for dealing with these guys, cutting them up or making them explode… I think that’s the correct way to handle them. Yup.
 
 *なのでコイツ等の対処としては、乱切りか、爆ぜさせるか……。他は、壁の染みするのが正しい対処法だと思う。ウン。*
 
 &nbsp;
 
-Oh, and maybe we can use it as charcoal extinguisher.
+Oh, and turning them into charcoal might be an option too.
 
 *あ、あと消し炭にするのもアリかな。*
 
-However, I can't really recommend it in the city, because if a burning magical beast were to run around, it would be quite a problem.
+But if a burning beast runs around in the city, it could cause quite a problem, so I can’t really recommend it.
 
 *でも街中では、燃えてる魔獣が走り回りでもしたら、結構大変な事になると思うので推奨はあんま出来ない。*
 
@@ -704,323 +704,321 @@ However, I can't really recommend it in the city, because if a burning magical b
 
 &nbsp;
 
-So, there is only one ...... left in the place, or one of them.
+With that said, there’s only one more left… no, one beast left.
 
 *そんなワケで、その場に残るのは後1人……いや、1匹か。*
 
-I turn my attention to that last one.
+I turned my gaze to that last one.
 
 *その最後の1匹に目を向ける。*
 
 &nbsp;
 
-Is it you, ......, who did this to my Annie?"
+“Was it you who did this to my Annie…?”
 
 *「ウチのアニーに、こんな事をしたのは……お前、か？」*
 
-"Ji-da-da-da-da-da-da-da-da-da-da-da-da-da!"
+“J-jidanagadda, ah, ahndano, miudidanangda!!”
 
 *「じ、じだながっだンだ、あ゛、あ゛ンだの、み゛う゛ぢだな゛ンで、じだながっだ！！」*
 
-Stop the noise."
+“Stop spewing noise.”
 
 *「雑音垂れ流してんじゃねぇよ」*
 
 &nbsp;
 
-He swings the piece of wooden sword in his hand again.
+I swung the piece of the wooden sword in my hand again.
 
 *手に持った木剣の欠片を再び振るう。*
 
-With a fine wind-cutting sound, Ki's blades cut through the limbs and torso of this guy.
+With the sound of slicing wind, the ki blade shredded its limbs and torso.
 
 *細かく風切る音を響かせて、『氣』のブレードはソイツの手足と胴体部分を乱切った。*
 
 &nbsp;
 
-At the same time, the wooden sword in his hand falls to pieces.
+At the same time, the wooden sword in my hand crumbled and fell apart.
 
 *同時に手の中の木剣がボロリと崩れ落ちる。*
 
-The strength of the material could not withstand the Ki I put into it.
+The material couldn’t withstand the ki I infused.
 
 *わたしが籠めた氣に、素材の強度が耐えられなかったのだ。*
 
-Oh, and by the way, the sword that Irving had was badly mangled. ......
+Oh, speaking of which, the sword Arvin had was also in terrible condition…
 
 *あ、そう言えばアーヴィンが持ってた剣も、酷くボロボロだったな……。*
 
-I can think of a few things. ......
+I had a feeling that I should have thought of that…
 
 *なんか矢鱈と思い当る節があったりしる……。*
 
 &nbsp;
 
-After all this time, it's still important to have equipment that can withstand my power.
+It’s a bit late now, but having equipment that can withstand my power is important.
 
 *今更だけど、やっぱり自分の力に耐えられる装備って重要だよね。*
 
-I'll talk to your uncle about Irving's equipment later.
+I’ll consult with my uncle about Arvin’s equipment later.
 
 *後でアーヴィンの装備について、叔父様に相談しておこう。*
 
 &nbsp;
 
-I told you, didn't I?
+“I told you, didn’t I?”
 
 *「わたしは言ったはずだ、ぞ？」*
 
 &nbsp;
 
-He looks very different, but he is probably the same Fluke I beat up last night.
+Though its appearance has changed significantly, this is probably the Fluke I beat up last night.
 
 *見た目は随分変わっているが、こいつは多分、昨夜わたしがボコったフルークってヤツだ。*
 
-He was definitely a human last night, but now his race name is already "DeGrayed Man" like the guy from earlier.
+It should have definitely been human last night, yet now its species name has changed to “Degraded Man,” just like the previous one.
 
 *昨夜は間違いなく人間だった筈なのに、今はもう種族名がさっきの奴と同じ『デグレイデッドマン』になっている。*
 
-What in the world has happened in the last few hours?
+What on earth happened in these few hours?
 
 *この数時間で、一体何があったというのか？*
 
 &nbsp;
 
-I have no idea, but I honestly don't care about that.
+I have no idea, but honestly, I don’t care.
 
 *全く分からないが、そんな事は正直どうでも良い。*
 
 &nbsp;
 
-The next time he appears in front of Karen, he'll pull his head off ---- and..."
+“If you appear before Karen again, I’ll rip your head off――――”
 
 *「次にカレンの前に現れたなら、その首引き抜く――――と」*
 
 &nbsp;
 
-The limbs and chest down were scattered, turning into pieces of dismembered flesh.
+Its limbs and chest turned into scattered chunks of flesh and flew apart.
 
 *手足や胸元から下が、バラバラの肉片と化して飛び散った。*
 
-From the head down, the remaining head, now a bust, falls into the sea of flesh and blood that he has scattered.
+The remaining head and torso, now resembling a bust, fell into the sea of blood and flesh it had created.
 
 *残った頭から下、もう胸像みたいな状態になったそいつは、自分が散らかした血肉の海にベチャリと落ちる。*
 
 &nbsp;
 
-Aba gyabo gyabo hgy gyabo gw----!!!"
+“Abagiyabogiyahgiygobg――――！！！"
 
 *「あばぎゃぼぎゃぼｈｇｙぎぼｇｗ――――！！！」*
 
 &nbsp;
 
-The man jumps around in a sea of blood, spitting out incomprehensible noises from his mouth.
+While spewing incomprehensible sounds from its mouth, it flailed around in the sea of blood.
 
 *訳の分らん音を口から吐きながら、血の海の中でビタンビタンと跳ね回る。*
 
-Really, it's seriously fearless to be able to move around in this condition!
+Seriously, being able to move around in that state is truly horrifying!
 
 *ホント、こんな状態でも動き回れるって、マジで悍ましいわ！*
 
 &nbsp;
 
-I held him with my foot and squeezed his skull.
+I pressed down on the writhing creature with my foot and gripped its skull tightly.
 
 *わたしはビチビチと動き回るソイツを足で押さえ、その頭蓋骨をガシリと握り込んでやった。*
 
-The iron claw is done with great care so that it does not go squishy in the hand due to excessive force!
+I made sure not to crush it with too much force while applying my iron claw!
 
 *力の入り過ぎで、手の中でグチャリと行かないように十分配慮してのアイアンクローだ！*
 
 &nbsp;
 
-"Giiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii! Giiiiiiiiiidee! "Gee-dee-dee-dee!"
+“Giiigya! Igiiyiiid! Iidiiidii!”
 
 *「ぎぃぎゃ！いぎぃぃい゛でぇ！い゛でい゛でぇぇええぇ！」*
 
 &nbsp;
 
-But this filth makes a loud noise about itty-bitty pain.
+Yet this filth was loudly screaming in pain.
 
 *だというのにこの汚物は、イタイ痛いと大声で騒ぎたてる。*
 
-I am so worried about you! I've been taking such good care of you!
+Seriously! Even though I’m being so considerate!
 
 *まったく！こんなにわたしが気を遣っているというのに！*
 
-What do you think my consideration is? How can you be so insensitive?
+What does it think my consideration is?! It’s incredibly insensitive, isn’t it?!
 
 *わたしの配慮を何だと思っているのだろうか？！無神経にも程があるよ？！*
 
 &nbsp;
 
-When I look at this guy, I feel like I'm being confronted with my own naivete.
+Looking at it makes me feel like I’m being confronted with my own softness.
 
 *コイツを眺めてると、自分の甘さを突き付けられてるような気がして来る。*
 
-There is no doubt that I missed this guy last night, and that is why Annie, Karen, and Miss Cordelia are in such a bad way today.
+There’s no doubt that by letting this guy go last night, I caused Annie, Karen, and Lady Cordelia to suffer such terrible fates today.
 
 *昨夜コイツを見逃してしまったばかりに、今日アニーやカレン、コーディリア嬢達をこんな酷い目に合わせてしまった事は間違いが無い。*
 
-Those beings who harm others with impunity should be dealt with on the spot without hesitation.
+An existence that can harm others without hesitation should be dealt with on the spot without hesitation.
 
 *平気で他人に害を及ぼすような存在は、躊躇う事無くその場で処理するべきなのだ。*
 
-I thought I had learned it well at AMCAM, but I was the one who was slackened by the atmosphere in the city. I can't blame Irving.
+I should have firmly ingrained that in me through Amukamu, yet I had relaxed in the atmosphere of the city. I can’t blame Arvin.
 
 *アムカムでシッカリ身に付いていた筈なのに、街中の空気にわたしこそが弛んでいたのだ。アーヴィンの事など責められない。*
 
-I shudder to think if I had come a little later.
+I shudder to think what would have happened if I had been even a little later.
 
 *来るのがもう少し遅れていたらと思うとゾッとする。*
 
-I am utterly disgusted with my own warmth.
+I’m utterly disgusted with my own softness.
 
 *全く以って、自分の温さに嫌気がさす。*
 
 &nbsp;
 
-Just listening to him yelling as usual, I was getting more and more pissed off, so I just slammed him against the wall in front of me.
+Just listening to this guy’s screams was making me more and more irritated, so I slammed him against the wall in front of me.
 
 *相変わらず叫ぶコイツの声を聞いているだけで、どんどんムカついて来てしょうがないので、そのまま目の前の壁に叩き付けてやった。*
 
 &nbsp;
 
-Gosh!
+BAM!
 
 *ゴッッッ！*
 
 &nbsp;
 
-With a tremendous bang, he flew through the wall and flew straight through a few houses.
+With a tremendous sound, it broke through the wall and flew through several houses.
 
 *と物凄い音を立てて、ソイツは壁を突き抜け、そのまま家を数軒突っ切って飛んで行った。*
 
-Zzzzzz ...... and the houses in front of it are collapsing.
+The houses in front began to crumble with a sound like “zuzuzuzuzu…”
 
 *ズズズズズ……とか言って正面の家々が崩れて行く。*
 
 &nbsp;
 
-Stone walls are more fragile than flesh?
+Huh? Is the stone wall weaker than flesh?
 
 *む、肉よりも石壁の方が脆いだと？*
 
-Is this guy's body much tougher than the guy and the dog from earlier?
+Is this guy’s body much sturdier than the previous ones and the dog?
 
 *コイツ身体は、さっきのヤツや犬よりも随分と丈夫だというのか？*
 
-It's kind of like a natural disaster that happened to the houses. ......
+It looks like a disaster has struck the houses…
 
 *なんか、天災でも起きたかのような家々の惨状だな……。*
 
 &nbsp;
 
-Oh, no! He did it! I told you to calm down!
+“Uwah! You did it! That’s why I told you to calm down!”
 
 *「ぅわっ！やりやがった！だから落ち着けって言ったんだ！」*
 
-What? What? What? What is this?
+“Huh? Huh?! What? What is this?!”
 
 *「え？えぇぇ？！なに？何なのコレ？！」*
 
 &nbsp;
 
-I kind of thought I heard Irving and Karen's voices, but ......, oh well.
+I thought I heard Arvin and Karen’s voices, but… well, whatever.
 
 *何だか、アーヴィンとカレンの声が聞こえた気がしたけど……、まあ良いや。*
 
 &nbsp;
 
-Zgogogogogo, through the dusty debris, and continue on to the one that flew away.
+I moved through the dust and rubble to where the guy had flown.
 
 *ズゴゴゴゴと、粉塵を巻き上げてる瓦礫を抜けて、飛んで行ったヤツの所まで進んで行く。*
 
 &nbsp;
 
-He made a long crater that looked like it had been dug up and buried in the middle of the street at the river's edge.
+He had created a long crater as if it had been dug up and was buried in the middle of the street by the river.
 
 *ヤツは、掘り返した様な長いクレーターを造り、川縁の通りの真ん中あたりで埋まっていた。*
 
-Already, right in front of us is the Maguarat River.
+Right in front of me was the Magu Rat River.
 
 *もう、直ぐ目の前はマグアラット河だ。*
 
 &nbsp;
 
-I grabbed him by the head, which was buried in the ground, and dragged him outside.
+I gripped the head of the guy buried in the ground and dragged him out.
 
 *わたしは地面に埋まるソイツの頭をガシリと掴み、外にズルリと引き摺りだした。*
 
 &nbsp;
 
-"......aa, gape, gopaa ......"
+“...Ah, gape, gopa…”
 
 *「……ぁ、がぺ、ごぱぁ……」*
 
 &nbsp;
 
-When I grabbed its head and let it dangle, the ouzo wriggled and wriggled all over its body, trying to regenerate its flesh.
+When I grabbed his head and hung it, countless wriggling entities were squirming all over its body, trying to regenerate its flesh.
 
 *頭を掴んでぶら下げてみると、ウゾウゾもぞもぞと全身の至る所が蠢いて、肉体を再生させようとしていた。*
 
-It's really gross! The immortality of the body is also quite disgusting.
+This is seriously gross! I’m utterly amazed by its immortal body.
 
 *マジキモいわ！不死身体質にもほとほと呆れるね。*
 
-But you can also visit ......!
+But…!
 
 *でも……！*
 
 &nbsp;
 
-Since the time of mythology, there has been a formula for dealing with immortal opponents."
+“There’s a method to deal with immortals since the mythological era.”
 
 *「神話の時代から、不死身相手の対処法は決まっている」*
 
-I'm going to go to "Aga? kepe......"
+“Ah? Kepe…”
 
 *「あが？けぺ……」*
 
-Burn! Ignis Flame!"
+“Burn! ‘Ignis Flame’!”
 
 *「燃えろ！『イグニス・フレイム』！」*
 
 &nbsp;
 
-For single attack, continuous damage skill for the divination magic job "Arc Wizard".
+A single-target, continuous damage skill of the divine magic class “Arc Wizard.”
 
 *神化魔法職『アークウィザード』の単体攻撃用、継続ダメージスキル。*
 
 &nbsp;
 
-If the magic power is too large, it will burn up in an instant, so the magic is activated by thinning the minute amount of magic power to such an extent that it will burn up in an instant.
+Since too much magical power would burn it up instantly, I finely tuned the magic to a very small amount to cast the spell.
 
 *あまりに魔力が大きいと一瞬で燃え尽きてしまうので、微量な魔力をこれでもかという位細くして魔法を発動させる。*
 
 &nbsp;
 
-'Ng aaaaaaaghgiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiight. --------！！！！！！"
+“Ngahhhhhh――――――――――――――――――――――――――！！！！！！”
 
 *「ンがぁああぁぁああぁぁぎがゃぁああああああぁぁぁぁ――――――――――！！！！！！」*
 
 &nbsp;
 
-A small magical fire, which will never be extinguished until the caged magic power is exhausted, burns the flesh after which it is regenerated alive.
+The small flame of magic, which would never extinguish until the infused magical power ran out, charred its flesh while it was still alive, burning it from behind as it tried to regenerate.
 
 *籠めた魔力が尽きるまで、決して消える事の無い小さな魔法の火が、その肉を生きたまま再生する後から焼き焦がす。*
 
 &nbsp;
 
-He tossed this guy, who was on fire, back onto the gouged out ground.
+I threw the guy engulfed in flames back onto the gouged ground.
 
 *火に包まれたソイツを、抉れた地面に再び放り投げた。*
 
-With a fearless cry, the black smoke of burning flesh rises slowly, like a wolfsbane, toward the autumn sky of Dekenbel.
+With a horrifying scream, the black smoke from the burning flesh slowly rose into the autumn sky of Dekember.
 
 *悍ましい叫びと共に、肉を焼く黒い煙が狼煙のようにゆっくりと、デケンベルの秋の空に向けて立ち昇って行く。*
-
-
 
 &nbsp;
 
@@ -1034,27 +1032,27 @@ Thank you for reading.
 
 &nbsp;
 
-Thank you for pointing out the typo!
+Thank you for pointing out any typos or errors!
 
 *誤字脱字のご指摘、ありがとうございます！*
 
 &nbsp;
 
-Thank you for your buzz and your rating! We are always encouraged!
+Thank you for the bookmarks and ratings! They are always a source of encouragement!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
 
 &nbsp;
 
-This story is believed to be over a million words.
+I believe this story has surpassed one million characters.
 
 *このお話で、100万文字超えだと思われます。*
 
-When I started writing, I had no idea that I would be able to continue this long.
+When I started writing, I never thought I would continue this far.
 
 *書き始めた時は、ここまで続けられるとは全く思っておりませんでした。*
 
-I would like to thank all of you who have been with us to this day.
+It’s all thanks to everyone who has accompanied me until today.
 
 *ひとえに今日までお付き合い頂いている、皆様のおかげでございます。*
 
@@ -1066,7 +1064,6 @@ Thank you very much!
 
 &nbsp;
 
-Thank you very much for your continued support.
+I hope you will continue to accompany me in the future, and I look forward to your support m(_ _)m
 
 *これからもお付き合い頂けます様、どおぞよろしくお願い申し上げますm(_ _)m*
-

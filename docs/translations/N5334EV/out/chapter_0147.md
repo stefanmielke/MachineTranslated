@@ -1,348 +1,348 @@
-# 135 Susie Cloud is Very Angry
+# Chapter 135: Suzy Cloud is Very Angry
 
 ## 135話　スージィ・クラウド大いに憤る
 
-I'm thinking, "What about ......? What about ............? ... Huh? Haaaaaa～～～～～?
+「……What?…………What?! ...Huh?!! Haaaah～～～～～?！！！！」
 
 *「……は？…………は？！・・・はぁ？！！はぁあぁぁ～～～～～っ？！！！！」*
 
 &nbsp;
 
-I can't believe it! I can't believe this guy!
+I can't believe it! I can't believe this guy!!
 
 *信じらんない！信じらんないぞコイツ！！*
 
 &nbsp;
 
-What are you talking about, Irving? Did you just let him go? Did you release it? Did you release it? I don't know what you mean! I don't know what you mean!
+「What are you saying, Arvin?! You just let them go? Released them?! What does that even mean?! I don’t get it, okay?!」
 
 *「アーヴィン何言ってんの？！そのまま逃がした？放流した？！リリースした？！意味ワッカンないンですけど！わっかんないンですけ、どぉおっっ？！！」*
 
 &nbsp;
 
-I'm not going to let you do that! Calm down first!"
+「W-wait, Suzy! First, calm down!」
 
 *「ま、まてスージィ！まずは落ち着け！」*
 
 &nbsp;
 
-'Calm down, will you? Don't you have to explain first? Why don't you do your duty of explanation? Alright! Clench your teeth! I'll hit you first!
+「Calm down?! Shouldn't you explain first?! Fulfill your duty to clarify?! Alright! Grit your teeth! For now, I'm going to punch you once!!」
 
 *「落ち着け？！まずは説明が先でしょうが？！釈明義務を果たしなさいよ？！よぉーーしっ！歯ぁ喰いしばれ！取りあえず一発打ん殴る！！」*
 
 &nbsp;
 
-Mia!!!!"
+「Mia!!」
 
 *「ミアッ！！」*
 
-Sue! Calm down!
+「Su-chan! Calm down!!」
 
 *「スーちゃん！落ち着いて！！」*
 
-Hahaha mupyu! Myu-myu-nu!!!!"
+「Hanyumupyu! Myumyunuu!!」
 
 *「はにゅムぷゅ！みゅみゅヌ！！」*
 
 &nbsp;
 
-I'm going to give Irving a stroke," he said as he stepped forward! Just before he was about to step out, he was quickly caught in a bad meat hold and his movements were blocked!
+Just as I was about to give Arvin a good swipe, I was suddenly caught in a deadlock hold, immobilizing me!
 
 *アーヴィンを一撫でしてやろうか！と足を踏み出す寸前、咄嗟に駄肉ホールドに捕えられ動きを封じられてしまった！*
 
-Oh my God, Irving! You obviously look relieved!
+You scoundrel, Arvin! You clearly look relieved!!
 
 *おのれぃアーヴィンめ！明らかにホッとした顔しやがって！！*
 
-You saved my life!
+You just barely escaped with your life!
 
 *命拾いしやがったな！*
 
 &nbsp;
 
-I give up on moving my feet forward for now, but I will open my mouth!
+For now, I’ll give up on moving my feet, but I will speak!
 
 *取り敢えず足を前へ進めるのは諦めるが、口は開かせて頂く！*
 
-Yes, I'm not moving from this spot! I'm not moving from this spot, though! Mwah!
+Yes! I won’t move from this spot! Munyuu!
 
 *ええ！この場から動きゃしませんけどね！むにゅぅ！*
 
 &nbsp;
 
-If you had just caught him there, the whole thing would have been over!
+「If you had caught them there, everything would have been resolved, right!!」
 
 *「そこで捕まえてれば、全部丸っと解決だった、じゃん！！」*
 
 &nbsp;
 
-Mmmmmm.
+Mumunyu.
 
 *むむにゅむ。*
 
 &nbsp;
 
-I said, "No, you can't, it's too much to catch him there!"
+「It’s impossible! Catching them there was just too much!」
 
 *「無理だって、あそこで捕まえるのは流石に無理があるって！」*
 
-What's so sensible about Irving's behavior? Nyumu!"
+「What are you saying, Arvin? Since when do you talk about common sense? Nyu!」
 
 *「アーヴィンのクセにナニ常識的な事、言ってんの？にゅむ！」*
 
-That's terrible, isn't it?
+「Isn't that harsh?!」
 
 *「酷くね？！」*
 
 &nbsp;
 
-Irving's habit of looking shocked.
+Arvin, of all people, looks shocked.
 
 *アーヴィンのクセに、ショックを受けた様な顔をしおる。*
 
-But I know that it is a performance! I know that it is a performance!
+But I know! I know that it’s just an act!
 
 *だがわたしは知っているゾ！それがパフォーマンスだという事を！*
 
-I don't even think about it, but I know that Bibi has instructed me to keep up appearances just for the sake of appearances! Mmmmmm!
+He doesn’t really feel anything, but he’s trying to maintain appearances, as he learned from Vivi!! Mumumunyu!
 
 *特に何とも思ってもいないクセに、一応外面だけは体裁を整える物だと、ビビに指導を受けている事を！！むむむにゅ！*
 
 &nbsp;
 
-At first I was going to catch him and make him tell me everything. But he blabbered on and on and on. Why should I hold on to him?
+「At first, I thought I’d catch them and make them spill everything. But they started talking freely. There was no reason to keep them captured, right?」
 
 *「最初は捕まえて全部吐かせようと思ってたんだよ。だけど向こうがベラベラ喋ってくれたしさ。捕まえておくだけの理由も無いじゃん？」*
 
 &nbsp;
 
-Mmm, mmm, mmm.
+Nyu, munyunyuu.
 
 *にゅむ、むにゅにゅ。*
 
 &nbsp;
 
-I also remembered that Miss Koh had apparently been keeping tabs on their movements. I wondered if it would be better to let them swim? I thought, "Well, since it's Miss Kohara, what do you think she's going to do about it? I'm sure she's got a background on them anyway.
+「And then, I remembered that it seems the boss had a grasp on their movements. I thought maybe it would be better to let them swim free? Since the boss probably has everything checked out anyway」
 
 *「それにさ、どうも姐御がアイツらの動きを把握してたらしい事を思い出してさ。コイツ等は泳がしておいた方がいいのか？と思ったんだよ。姐御の事だからどうせ裏なんかは取ってるんだろうし」*
 
-Nyum?"
+「Nyu?」
 
 *「にゅむ？」*
 
-I went to the consul general immediately afterward to report the incident, and he promptly sent out the security guards he had prepared."
+「Right after that, when I went to report to the consul general, they immediately sent out the prepared guards.」
 
 *「その後直ぐに総領事に報告に言ったら、用意していた警護の人等を速攻で送り出してたしな」*
 
 &nbsp;
 
-It means we were ready!"
+「So, they were ready!」
 
 *「準備は整っていたって事よ！」*
 
-Bibi?"
+「Vivi?」
 
 *「ビビ？」*
 
 &nbsp;
 
-I am very sorry for the delay in informing you, Miss!"
+「I sincerely apologize for the delayed report, young lady!」
 
 *「ご報告が遅くなり大変申し訳ございませんでしたお嬢様！」*
 
-To AnnaMarie?"
+「Even Anna Mary?」
 
 *「アンナメリー迄？」*
 
 &nbsp;
 
-According to AnnaMarie, not only her uncle, but also the Guard, the Knights of Honor, and even the Dekenberu city defense organization are working on it or something.
+According to Anna Mary, not only my uncle but also the guard team, the knights, and the Dekkenberg city defense organization are all mobilizing.
 
 *アンナメリーの話では、叔父様だけでなく、衛士隊やら、騎士団やらデケンベルの都市防衛組織までもが動いているとか何とか。*
 
-Hmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm ......?
+Hmm, hmm, nyum, hmm……?
 
 *ふむふむにゅむふむ……？*
 
 &nbsp;
 
-"In short, you need the back books and client lists they're involved with, so you're keeping them swimming ...... to get the backstory?"
+「In other words, they’re letting them swim free to gather the under-the-table accounts and customer lists they’re involved with…?」
 
 *「要するに、そいつらの関わっている裏帳簿とか顧客リストとかが必要だから、裏を取る為に泳がせている……、と？」*
 
 &nbsp;
 
-I am sure you know what I am talking about, my lady. And where are the secrets hidden in the multiple hideouts? We must find out.
+「You are correct, young lady. Furthermore, we must also investigate where the secrets are hidden among the multiple hideouts.」
 
 *「ご明察で御座いますお嬢様。更に、複数存在するアジトの何処に機密が隠されているのか？それも探らねばなりません」*
 
 &nbsp;
 
-When I blurted out, "Why don't you just crush that thing from one side ......? AnnaMarie answered with a straight face, "We don't have the manpower.
+I muttered, “They should just crush them all…” and Anna Mary replied with a serious face, “We simply don’t have enough personnel.”
 
 *そんな物は「片っぱしから潰しちゃえば良いのに……」とぼそりと言ったら。「流石に人員が足りません」とアンナメリーに真顔で答えられた。*
 
-Well, you have to go around the city licking the streets, that's true!
+Well, we have to search the entire city, so that makes sense!
 
 *まあ街中を虱潰しにしなきゃいけないんだもの、そりゃそうなんだけどね！*
 
 &nbsp;
 
-In short, this incident was within the expected range, so there was no need for me to be concerned about it. I should be quiet and still.
+In short, this incident was within the predicted range from the start, so I don’t need to worry. It seems I should just stay quiet and behave.
 
 *要するに今回の出来事は、元から予測された想定の範囲内ってヤツだから、わたしは気にする必要はない。大人しく静かにしていなさいって事らしい。*
 
-Fumyu. .......
+Fumyu…….
 
 *ふみゅ……。*
 
 &nbsp;
 
-"So ............, yes, I see. I understand."
+「So…… that’s how it is. I understand now.」
 
 *「そう…………そうです、か。わかりまし、た」*
 
 &nbsp;
 
-I slowly left Mia ...... and went to ......, although I really missed her. I turned toward the exit of the lounge.
+I slowly pulled away from Mia…… and though it’s quite regrettable…… I headed toward the exit of the lounge.
 
 *わたしはミアからゆっくり離れ……実に名残惜しいが……。ラウンジの出口へと足を向けた。*
 
 &nbsp;
 
-Well, I'm off for the night.
+「Well then, I’ll be taking the night off.」
 
 *「では、わたしは今夜はもう休み、ます」*
 
-I'm going to go to ............ Anta. Did you really figure that out?
+「…………Did you really understand?!」
 
 *「…………アンタ。ホントに分かったの？！」*
 
-I understand, okay? Well, good night."
+「I got it, okay? Well then, good night!」
 
 *「分かりました、よ？それじゃ、おやすみぃ」*
 
-""............""
+「「「…………」」」
 
 *「「「…………」」」*
 
 &nbsp;
 
-For some reason, everyone was looking at me with a suspicious look, but I didn't care and hurried to my room.
+For some reason, everyone is looking at me suspiciously, but I hurriedly made my way to my room without caring.
 
 *何故か皆んなが胡乱な目を向けてくるが、わたしは気にせず自分の部屋へと急いで向かうのだ。*
 
 &nbsp;
 
-Well, just because I know what I'm doing doesn't mean I'm not going to do anything about it! Ummm!
+Well, just because I understand what’s going on doesn’t mean I won’t do anything! Um!!
 
 *まあ、何をやっているのかが分かったからと言って、何もしないかと言うとそんな事は無いわけで！ウム！！*
 
 &nbsp;
 
-I see what you mean. So your uncle is also moving.
+I see, my uncle is also on the move.
 
 *なる程ね、叔父様も動かれているという事なんだよね。*
 
-I should say that it is not surprising, since it is cumulative to Annie. ......
+Since it’s affecting Annie as well, it’s only natural, but…….
 
 *アニーにまで累が及んでいるのだから、当然と言えば当然と言うべきなのだが……。*
 
-Then shall we visit your uncle directly here?
+Should I ask my uncle directly?
 
 *ならばここは直接叔父様に伺うか？*
 
 &nbsp;
 
-But I know that I can't visit your mansion at this hour of the night.
+But I know I can’t just drop by the mansion at this hour.
 
 *でもこんな時間に、お屋敷にお邪魔する訳にいかないのは分かっている。*
 
-It is almost 9:00 p.m.
+It’s already around 9 PM.
 
 *大体もう21時になろうと言う時刻だ。*
 
-If I go outside now, I'm totally breaking curfew.
+If I go out now, it would completely break curfew.
 
 *今外に出れば、完全に門限破りだ。*
 
-It's long past curfew, and if I do that, they will think I've snuck out of the dorm.
+Even though curfew has long passed, if I do that, I would be thought to have snuck out of the dorm.
 
 *門限がとっくに過ぎているのに、そんな事をすれば寮を抜け出したと思われる。*
 
 &nbsp;
 
-I'm actually getting out of it!
+I am actually going to sneak out though!
 
 *実際抜け出すんだけどさっ！*
 
 &nbsp;
 
-This would cause unnecessary concern.
+If that happens, it would cause unnecessary worry.
 
 *そうなれば、不必要なご心配をおかけする事になってしまう。*
 
-That's something I'd like to avoid if at all possible. ...... At least for now! Mm!
+I’d like to avoid that…… at least for now! Um!
 
 *それは出来れば避けたい所だ……。少なくとも今は！うむ！*
 
 &nbsp;
 
-Then I'm not going to wait that long for ...... tomorrow in the morning!
+Then I’ll wait until tomorrow morning…… but I don’t have the luxury to wait like that!
 
 *ならば明日あさイチで……って、そんな悠長に待つ気はない！*
 
-That's too late, because I'm planning to move tonight!
+It would be too late, so I plan to act tonight!
 
 *それじゃ遅いから、今夜動くつもりなんだから！*
 
 &nbsp;
 
-What if, by any chance, they attack us in the middle of the night?
+What if, by any chance, there’s an attack in the middle of the night?
 
 *もし万が一、夜中にでも襲撃をされたらどうすんのさ？*
 
-I don't think the security arranged by your uncle would be a setback, but still! There is no need for such a thing.
+I don’t think the security arranged by my uncle would be late, but still! It’s better if there’s nothing at all.
 
 *叔父様が手配をされた警備が後れを取るとは思わないが、それでも！そんなものは無いに越したことは無いのだ。*
 
-Above all, I can't let Karen and the twins be scared any more than they already are.
+More than anything, I can’t let Karen and the twins feel scared any more than they already have.
 
 *なによりも、カレンや双子ちゃん達にこれ以上怖い思いなどさせられない。*
 
-No matter what anyone says, we should turn down our sorrows tonight!
+No matter what anyone says, I should eliminate any worries tonight!
 
 *誰が何と言おうと、今夜中に憂いは断っておくべきなのだ！*
 
-We have to use our strength! That's what they say! So to speak!
+It’s all about taking action! That’s the way to go!!
 
 *実力行使あるのみ！ってヤツよ！謂わば！！*
 
 &nbsp;
 
-I'm not sure what the problem is, but I don't have any information on the other party....
+But the problem is that I have no information about the enemyーー.
 
 *ンでも、相手の情報が皆無なのが問題なんだよねーー。*
 
-If we were to search in the dark in the downtown area or near a slum, I don't think we'd find what we're looking for tonight.
+Even if I search the downtown area or the slums aimlessly, I don’t think I’ll find what I’m looking for tonight.
 
 *闇雲に繁華街とかスラム近辺を探したとして、今夜中に目当てが見つかるとは思えない。*
 
-I'd like to clear the area like I thought before, but that's not going to happen, is it? Bibi's cold eyes are a vision.
+I’d rather just flatten that area like I thought before, but of course, I can’t do that. I can almost see Vivi’s cold gaze in my mind.
 
 *いっその事、前に思った様にあの辺りを更地にしてやりたい所だけど、流石にそういう訳にもいかないもんね。ビビの冷たい目が幻視されてしまう。*
 
-I know, I won't do it. I won't do that!
+I know, I won’t do such a thing!
 
 *わかってますわよ、致しませんわよそんな事は！*
 
 &nbsp;
 
-Well, I don't know what to do. ...... Speaking of which, Irving said that it sounded like you know, "Miss" was in possession of some information? ...... Hmmm.
+Now then, what should I do…… Speaking of which, according to Arvin, it seems that the “boss” had some information?…… Hmm.
 
 *さてさて、どうしたものか……そう言えばアーヴィンの話しだと、例の『姐御』が情報を掴んでいた様な口ぶりだったとか？……ふむ。*
 
-Oh, and could that thing be useful by any chance? I'll give it a shot.
+Oh, and could that also be useful? I think I’ll give it a shot.
 
 *あ、あとアレもひょっとして使えるか？ちょいと当たってみよかな。*
 
@@ -350,61 +350,61 @@ Oh, and could that thing be useful by any chance? I'll give it a shot.
 
 &nbsp;
 
-Now that we've decided on a night out, let's get ready for a little bit.
+Now that I’ve decided on the plan for tonight’s outing, I should get ready.
 
 *さて、夜のお出かけの方針も決まった事だし、ちょいと支度でも整えるか。*
 
-As expected, I can't just wander around in uniform, can I?
+I can’t just wander around in my uniform!
 
 *さすがに制服でうろつく訳にも行かないもんね！*
 
 &nbsp;
 
-The things I brought from the village stand out in their own way, too.
+The things I brought from the village are also quite conspicuous.
 
 *村から持って来た物もそれなりに目立つしなぁ。*
 
-It's impossible to walk around downtown or slums in a flouncy skirt and not be noticed.
+Walking around downtown or the slums in a frilly skirt is just asking for attention.
 
 *ヒラヒラのスカートで繁華街やスラムを歩いて、人目を引くなって方が無理だよね。*
 
-But other than that, all the hunting equipment and such is in AnnaMarie's care. ......
+But all my other hunting gear is with Anna Mary……
 
 *でもそれ以外の狩り装備とかは、全部アンナメリー預かりだし……。*
 
 &nbsp;
 
-............No wonder, it's been a while since I've pulled equipment from my inventory. What do you think would be good?
+……Well, I guess I’ll have to pull out some gear from my inventory for the first time in a while. What would be good?
 
 *…………しょうがない、久々にインベントリから装備を引っ張り出すか。何が良いかな？*
 
 &nbsp;
 
-I guess this is a safe bet. ...... zero rank light equipment "Hard Leather Armor"
+I guess this is the safest choice…… Zero-rank light armor “Hard Leather Armor.”
 
 *やっぱこれが無難かなぁ……ゼロランクの軽装備『ハードレザーアーマー』*
 
-I think this would be, well, less conspicuous.
+With this, I don’t think I’ll stand out too much.
 
 *これならまあ、目立つ事も無いと思うんだ。*
 
-It is made like a mini-skirted one-piece, and the color is an austere moss green, so it is relatively subdued. The thick brick-colored leather belt around the waist is a little point.
+It’s made like a mini-skirt dress, and the color is a subdued moss green, so I think it’s relatively plain. The thick brick-colored leather belt that cinches the waist is a nice touch.
 
 *ミニスカ仕様のワンピっぽい作りで、色は渋めのモスグリーンだから比較的地味だと思う。腰回りを絞める煉瓦色の太い革ベルトが、ちょっとしたポイントだ。*
 
-Two toggle buttons fasten the front.
+The front is secured with two toggle buttons.
 
 *前部を留めるのは2本のトグルボタン。*
 
-It is attached in three places, which is quite cute.
+There are three of them, and they’re quite cute.
 
 *それが3か所付いていて、これが結構カワイイ。*
 
-The feet are short boots with ankle-high lacing. The color is chocolate and the heel is about 5 cm.
+On my feet, I’ll wear short lace-up boots that cover my ankles. The color is chocolate, and the heel is about 5 centimeters?
 
 *足元は、踝が隠れる位の編み上げショートブーツ。色はチョコレートでヒールは5センチくらい？*
 
-And charcoal gray over-knee socks. The absolute area is just a little bit wider.
+And charcoal gray over-the-knee socks. The absolute territory is a little wider.
 
 *そしてチャコールグレイのオーバーニーソックス。絶対領域はちょっとだけ広めだ。*
 
@@ -412,21 +412,21 @@ And charcoal gray over-knee socks. The absolute area is just a little bit wider.
 
 &nbsp;
 
-With this leather equipment, it would not be too noticeable.
+With this leather gear, I shouldn’t stand out too much.
 
 *この革装備ならなら、まあ余り目立たないだろう。*
 
-I'm sure you'll see it around the young lady hunters, won't you?
+I think a young female hunter might notice me?
 
 *若い女ハンター辺りに見てくれるんじゃないだろか？*
 
-I'm sure they won't think I'm a student of the quintessential lady's school, Milia. Duh!
+There’s no way I’d be mistaken for a student of Millia’s elite school. Yup!
 
 *流石にお嬢様学校の、ミリアの生徒と思われる事は無いだろうな。ウン！*
 
 &nbsp;
 
-Well then! I guess I'll start my nightly cleaning!
+Alright! Then I’ll get ready for tonight’s cleaning adventure!
 
 *さて！それじゃコレから、夜のお掃除と洒落込みますかね！*
 
@@ -440,19 +440,19 @@ Well then! I guess I'll start my nightly cleaning!
 
 &nbsp;
 
-Gone!"
+「She’s gone!」
 
 *「消えた！」*
 
-'Vivi! You're really gone!"
+「Vivi-chan! She really disappeared!?」
 
 *「ビビちゃん！ホントに消えたよ！？」*
 
-Mia! Let's hurry up and head to our rooms!"
+「Mia! Let’s hurry to the room!」
 
 *「ミア！急いで部屋へ向かうわよ！」*
 
-Yes!"
+「Okay!」
 
 *「うん！」*
 
@@ -460,57 +460,55 @@ Yes!"
 
 &nbsp;
 
-I knew he wasn't here! ...... through the window!"
+「She’s really not here!…… Did she go out the window?」
 
 *「やっぱり居ない！……窓からか！」*
 
-But it's amazing how quickly you can lose your presence.
+「But it’s surprising, she really disappears without a trace.」
 
 *「でもビックリだね、本当に気配が無くなるんだもん」*
 
-The head minister was right! Suzy is completely obliterated!"
+「Just as the boss said! “Suzy completely erases her presence!”」
 
 *「御頭首が言った通りだったわ！『スージィは気配を完全に消す』って！」*
 
-I'm not going to find this one on my way out, am I?"
+「If she’s escaped, we won’t be able to find her.」
 
 *「これは抜け出しても見付けられないよねぇ」*
 
-I knew there was something fishy about the way he pulled up from the lounge so quickly!"
+「I thought it was suspicious how easily she pulled away from the lounge!」
 
 *「ラウンジから、やけにアッサリ引き上げたから怪しいとは思ってたけど！」*
 
-"I hope I don't do anything, ....... Impossible?"
+「As long as she doesn’t do anything reckless, it should be fine…… but that’s impossible.」
 
 *「何も、やらかさなけりゃ良いんだけどね……。無理か」*
 
-I'm sure you've already done it!"
+「I’m sure she’ll do something reckless!」
 
 *「もう、やらかす確信しかしないわよ！」*
 
 &nbsp;
 
-I'll go to bed in place of Sue-chan to deceive the dormitory supervisor's eyes! I have no choice but to get into bed in place of Sue-chan and fool the dormitory supervisor's eyes!
+「Then! I guess I’ll have to get into bed in Suzy’s place and fool the dorm supervisor!」
 
 *「それじゃ！しょうがないからスーちゃんの代わりにベッドに入って、寮監様の目を誤魔化すねっ！！」*
 
-What are you talking about? You're too tall for me! I'll stay here and you can make your own bed!"
+「What are you saying! You’ll be found out because of your height! I’ll stay, so you take care of my bed!」
 
 *「何言ってんの！アンタじゃ身長的にバレるわよ！アタシが残るから、アンタはアタシのベッド工作お願い！」*
 
-"Oh? Oh, no ......, an opportunity to enjoy Sue's bed ......"
+「Wha?! N-no way…… I finally have a chance to enjoy Suzy’s bed……」
 
 *「ぅえ？！そ、そんな……、折角スーちゃんベッドを堪能する機会……」*
 
-When I come back, I'll have a word or two or three or four! I'll give you a good talking to!"
+「When you come back, I’ll give you a lecture or two or three or four! You’ll hear plenty!」
 
 *「戻って来たら、小言の一つや二つや三つや四つ！タップリ聞かせてやるわ！」*
 
-"Oooooo ......, Sue's warmth oooo ......"
+「Ugh…… Suzy’s warmth……」
 
 *「ぅぐう……、スーちゃんの温もりをぉ……」*
-
-
 
 &nbsp;
 
@@ -524,13 +522,12 @@ Thank you for reading.
 
 &nbsp;
 
-Thank you for pointing out the typo!
+Thank you for pointing out any typos or errors!
 
 *誤字脱字のご指摘、ありがとうございます！*
 
 &nbsp;
 
-Thank you for your buzz and your rating! We are always encouraged!
+Thank you for your bookmarks and evaluations! They always motivate me!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
-

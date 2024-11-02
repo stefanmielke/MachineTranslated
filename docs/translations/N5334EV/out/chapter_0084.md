@@ -2,36 +2,35 @@
 
 ## 二章登場人物
 
-This is my third post today.
+This is the third post of the day.
 
 *本日三つ目の投稿です。*
 
 &nbsp;
 
-Think of it like an end title.
+Please think of it as something like an end title～
 
 *エンドタイトルの様な物と思って下さい～*
-
 
 ----------------
 
 &nbsp;
 
------Chapter 2Characters---- -
+―――――Chapter Two Characters―――――
 
 *―――――二章登場人物―――――*
 
 &nbsp;
 
-0 Susie Cloud
+〇Suzy Cloud
 
 *〇スージィ・クラウド*
 
-Age: 14 years old
+Age: 14
 
 *年齢：14歳*
 
-Attributes: All
+Attribute: All
 
 *属性：全*
 
@@ -39,17 +38,17 @@ Class: Diviner
 
 *クラス：占者*
 
-Grade 8, adopted daughter of the Cloud family
+【Grade 8 Rank・Adopted Daughter of the Cloud Family】
 
 *【学年8段位・クラウド家養女】*
 
 &nbsp;
 
-0 Howard Cloud
+〇Howard Cloud
 
 *〇ハワード・クラウド*
 
-Age: 62 years old
+Age: 62
 
 *年齢：62歳*
 
@@ -61,21 +60,21 @@ Class: Warlord
 
 *クラス：ウォーロード*
 
-Cloud family patriarch
+【Head of the Cloud Family】
 
 *【クラウド家家長】*
 
 &nbsp;
 
-0 Sonia Cloud
+〇Sonia Cloud
 
 *〇ソニア・クラウド*
 
-Age: 58 years old
+Age: 58
 
 *年齢：58歳*
 
-Attributes: Water
+Attribute: Water
 
 *属性：水*
 
@@ -83,17 +82,17 @@ Class: Star Shooter
 
 *クラス：スターシューター*
 
-[Howard's wife].
+【Howard's Wife】
 
 *【ハワードの妻】*
 
 &nbsp;
 
-0elrose glop
+〇Elrose Grop
 
 *〇エルローズ・グロップ*
 
-Age: 59 years old
+Age: 59
 
 *年齢：59歳*
 
@@ -105,17 +104,17 @@ Class: Marshal Commander
 
 *クラス：マーシャルコマンダー*
 
-[Cloud family servant (former Amcam House housekeeper)
+【Servant of the Cloud Family (Former Housekeeper of Amcam House)】
 
 *【クラウド家使用人（元アムカムハウス・ハウスキーパー）】*
 
 &nbsp;
 
-0 Gilberto Gamgee
+〇Gilberto Gamzy
 
 *〇ジルベルト・ギャムジー*
 
-Age: 72 years old
+Age: 72
 
 *年齢：72歳*
 
@@ -123,7 +122,7 @@ Attribute: Wind
 
 *属性：風*
 
-Race: Glassfoot
+Race: Grassfoot
 
 *種族：グラスフット*
 
@@ -131,17 +130,17 @@ Class: Night Raider
 
 *クラス：ナイトレイダー*
 
-Cloud Household Servants
+【Servant of the Cloud Family】
 
 *【クラウド家使用人】*
 
 &nbsp;
 
-0 Annemarie Byros
+〇Anna Mary Bylos
 
 *〇アンナメリー・バイロス*
 
-Age: 19 years old
+Age: 19
 
 *年齢：19歳*
 
@@ -153,17 +152,17 @@ Class: Trickster
 
 *クラス：トリックスター*
 
-Cloud Household Servants
+【Servant of the Cloud Family】
 
 *【クラウド家使用人】*
 
 &nbsp;
 
-0 Conrad Burok.
+〇Conrad Blouk
 
 *〇コンラッド・ブロウク*
 
-Age: 69 years old
+Age: 69
 
 *年齢：69歳*
 
@@ -171,25 +170,25 @@ Attribute: Fire
 
 *属性：火*
 
-Class: Preceding Hercury Road
+Class: Former Herculean Lord
 
 *クラス：先代ハーキュリーロード*
 
-[Former patriarch of the Burok family
+【Former Head of the Blouk Family】
 
 *【ブロウク家前家長】*
 
 &nbsp;
 
-0 Jacob Evans
+〇Jacob Evans
 
 *〇ジェイコブ・エバンス*
 
-Age: 55 years old
+Age: 55
 
 *年齢：55歳*
 
-[Chief Butler, Amcam House]
+【Butler of Amcam House】
 
 *【アムカムハウス執事長】*
 
@@ -197,37 +196,37 @@ Age: 55 years old
 
 &nbsp;
 
-0 August Dulles
+〇August Dales
 
 *〇オーガスト・ダレス*
 
-Age: 52 years old
+Age: 52
 
 *年齢：52歳*
 
-Attributes: Water
+Attribute: Water
 
 *属性：水*
 
-Class: Brain Road
+Class: Brain Lord
 
 *クラス：ブレインロード*
 
-The head of the village of Amkam, the head of the first group, and the patriarch of the three Dulles families.
+【Village Head of Amcam・Leader of the First Squad・Head of the Dales Family】
 
 *【アムカム村村長・第一班班長・御三家ダレス家家長】*
 
 &nbsp;
 
-0 Silence croquis
+〇Silence Klocky
 
 *〇サイレンス・クロキ*
 
-Age: 48 years old
+Age: 48
 
 *年齢：48歳*
 
-Attributes: fire, earth, wind, nothing
+Attribute: Fire・Earth・Wind・Void
 
 *属性：火・地・風・無*
 
@@ -235,61 +234,61 @@ Class: Soul Lord
 
 *クラス：ソウルロード*
 
-The second group leader, the Gosan family, the Kuroki family patriarchs.
+【Leader of the Second Squad・Head of the Klocky Family】
 
 *【第二班班長・御三家クロキ家家長】*
 
 &nbsp;
 
-0 Alphonse Beers
+〇Alphonse Bias
 
 *〇アルフォンス・ビーアス*
 
-Age: 51 years old
+Age: 51
 
 *年齢：51歳*
 
-Attributes: Earth, Wind, Water
+Attribute: Earth・Wind・Water
 
 *属性：地・風・水*
 
-Class: Wiseman
+Class: Wise Man
 
 *クラス：ワイズマン*
 
-[Team leader of Team 3, patriarch of the Gosanbeas family]
+【Leader of the Third Squad・Head of the Bias Family】
 
 *【第三班班長・御三家ビーアス家家長】*
 
 &nbsp;
 
-0 Harry Haggard.
+〇Harry Haggard
 
 *〇ハリー・ハッガード*
 
-Age: 47 years old
+Age: 47
 
 *年齢：47歳*
 
-Attributes: Fire, Wind
+Attribute: Fire・Wind
 
 *属性：火・風*
 
-Class: Battlelord
+Class: Battle Lord
 
 *クラス：バトルロード*
 
-The fourth group leader, the Haggard family patriarch.
+【Leader of the Fourth Squad・Head of the Haggard Family】
 
 *【第四班班長・ハッガード家家長】*
 
 &nbsp;
 
-0 Frank Long
+〇Frank Long
 
 *〇フランク・ロング*
 
-Age: 44 years old
+Age: 44
 
 *年齢：44歳*
 
@@ -301,17 +300,17 @@ Class: Command Master
 
 *クラス：コマンドマスター*
 
-[Team leader of Team 5, patriarch of the Long family]
+【Leader of the Fifth Squad・Head of the Long Family】
 
 *【第五班班長・ロング家家長】*
 
 &nbsp;
 
-0 Gary Meyers
+〇Gary Myers
 
 *〇ゲイリー・メイヤーズ*
 
-Age: 41 years old
+Age: 41
 
 *年齢：41歳*
 
@@ -323,29 +322,29 @@ Class: Sword Master
 
 *クラス：ソードマスター*
 
-[Tenth squad leader, patriarch of the Meyers family]
+【Leader of the Tenth Squad・Head of the Myers Family】
 
 *【第十班班長・メイヤーズ家家長】*
 
 &nbsp;
 
-0 Richard Mathieson
+〇Richard Mathison
 
 *〇リチャード・マティスン*
 
-Age: 39 years old
+Age: 39
 
 *年齢：39歳*
 
-Attributes: wind, water, fire, earth
+Attribute: Wind・Water・Fire・Earth
 
 *属性：風・水・火・地*
 
-Class: Akashic Road
+Class: Akashic Lord
 
 *クラス：アカシックロード*
 
-Head of the 12th Group, Matthieson family patriarch.
+【Leader of the Twelfth Squad・Head of the Mathison Family】
 
 *【第十二班班長・マティスン家家長】*
 
@@ -357,11 +356,11 @@ Head of the 12th Group, Matthieson family patriarch.
 
 &nbsp;
 
-0 Alia Burok.
+〇Aria Blouk
 
 *〇アリア・ブロウク*
 
-Age: 24 years old
+Age: 24
 
 *年齢：24歳*
 
@@ -373,51 +372,51 @@ Class: Battle Master
 
 *クラス：バトルマスター*
 
-Group rank: 10th
+Rank: 10th
 
 *団位：10th*
 
-[Team Aria Leader].
+【Team Aria Leader】
 
 *【チームアリア・リーダー】*
 
 &nbsp;
 
-00lta Lindeman.
+〇Ilta Lindman
 
 *〇イルタ・リンドマン*
 
-Age: 22 years old
+Age: 22
 
 *年齢：22歳*
 
-Attributes: None, earth
+Attribute: Void・Earth
 
 *属性：無・地*
 
-Class: Teaching Officer
+Class: Cleric
 
 *クラス：教司官*
 
-Group rank: 8th
+Rank: 8th
 
 *団位：8th*
 
-Aria team.
+【Member of Team Aria】
 
 *【チームアリア所属】*
 
 &nbsp;
 
-0 Ketty Forest
+〇Keti Forest
 
 *〇ケティ・フォレスト*
 
-Age: 21 years old
+Age: 21
 
 *年齢：21歳*
 
-Attributes: wind, water, fire, earth
+Attribute: Wind・Water・Fire・Earth
 
 *属性：風・水・火・地*
 
@@ -425,21 +424,21 @@ Class: Summoner
 
 *クラス：召喚術師*
 
-Group rank: 7th
+Rank: 7th
 
 *団位：7th*
 
-Aria team.
+【Member of Team Aria】
 
 *【チームアリア所属】*
 
 &nbsp;
 
-00 Millie Barrett.
+〇Millie Barrett
 
 *〇ミリー・バレット*
 
-Age: 19 years old
+Age: 19
 
 *年齢：19歳*
 
@@ -451,29 +450,29 @@ Class: Hunter
 
 *クラス：ハンター*
 
-Group rank: 4th
+Rank: 4th
 
 *団位：4th*
 
-Aria team.
+【Member of Team Aria】
 
 *【チームアリア所属】*
 
 &nbsp;
 
-0Caron Cournot
+〇Kalon Clunow
 
 *〇カロン・クルノー*
 
-Age: 19 years old
+Age: 19
 
 *年齢：19歳*
 
-Class: Bird
+Class: Bard
 
 *クラス：バード*
 
-Group rank: 2nd
+Rank: 2nd
 
 *団位：2nd*
 
@@ -487,15 +486,15 @@ Group rank: 2nd
 
 &nbsp;
 
-0 Colin Saunders
+〇Colin Saunders
 
 *〇コリン・ソンダース*
 
-Age: 15 years old
+Age: 15
 
 *年齢：15歳*
 
-Attributes: water, wind, earth
+Attribute: Water・Wind・Earth
 
 *属性：水・風・地*
 
@@ -503,21 +502,21 @@ Class: Diviner
 
 *クラス：占者*
 
-[Grade 9 dan, eldest daughter of the Saunders family]
+【Grade 9 Rank・Eldest Daughter of the Saunders Family】
 
 *【学年9段位・ソンダース家長女】*
 
 &nbsp;
 
-0 Dana McCain
+〇Dana McCain
 
 *〇ダーナ・マッケイン*
 
-Age: 15 years old
+Age: 15
 
 *年齢：15歳*
 
-Attributes: Wind, Earth
+Attribute: Wind・Earth
 
 *属性：風・地*
 
@@ -525,21 +524,21 @@ Class: Lancer
 
 *クラス：ランサー*
 
-[Grade 9 dan, second daughter of the McCain family].
+【Grade 9 Rank・Second Daughter of the McCain Family】
 
 *【学年9段位・マッケイン家次女】*
 
 &nbsp;
 
-0 Willie Hodgson
+〇Willy Hodgson
 
 *〇ウィリー・ホジスン*
 
-Age: 15 years old
+Age: 15
 
 *年齢：15歳*
 
-Attributes: fire, water, wind
+Attribute: Fire・Water・Wind
 
 *属性：火・水・風*
 
@@ -547,21 +546,21 @@ Class: Mage
 
 *クラス：メイジ*
 
-Grade 9, second son of the Hodgson family.
+【Grade 9 Rank・Second Son of the Hodgson Family】
 
 *【学年9段位・ホジスン家次男】*
 
 &nbsp;
 
-0 Beatrice Croquis
+〇Beatrice Klocky
 
 *〇ベアトリス・クロキ*
 
-Age: 13 years old
+Age: 13
 
 *年齢：13歳*
 
-Attributes: fire, earth, wind, nothing
+Attribute: Fire・Earth・Wind・Void
 
 *属性：火・地・風・無*
 
@@ -569,21 +568,21 @@ Class: Novice
 
 *クラス：ノービス*
 
-[Grade 8 dan, eldest daughter of the Kuroki family]
+【Grade 8 Rank・Eldest Daughter of the Klocky Family】
 
 *【学年8段位・クロキ家長女】*
 
 &nbsp;
 
-00 Mia Mathieson
+〇Mia Mathison
 
 *〇ミア・マティスン*
 
-Age: 14 years old
+Age: 14
 
 *年齢：14歳*
 
-Attributes: earth, water, wind
+Attribute: Earth・Water・Wind
 
 *属性：地・水・風*
 
@@ -591,21 +590,21 @@ Class: Mage
 
 *クラス：メイジ*
 
-[Grade 8 dan, eldest daughter of the Mathisons]
+【Grade 8 Rank・Eldest Daughter of the Mathison Family】
 
 *【学年8段位・マティスン家長女】*
 
 &nbsp;
 
-0 Irving Haggard
+〇Irvin Haggard
 
 *〇アーヴィン・ハッガード*
 
-Age: 14 years old
+Age: 14
 
 *年齢：14歳*
 
-Attributes: fire, wind, no
+Attribute: Fire・Wind・Void
 
 *属性：火・風・無*
 
@@ -613,21 +612,21 @@ Class: Swordsman
 
 *クラス：ソードマン*
 
-[Grade 8 dan, third son of the Haggard family].
+【Grade 8 Rank・Third Son of the Haggard Family】
 
 *【学年8段位・ハッガード家三男】*
 
 &nbsp;
 
-0 Lombard Broek.
+〇Lombard Blouk
 
 *〇ロンバート・ブロウク*
 
-Age: 14 years old
+Age: 14
 
 *年齢：14歳*
 
-Attributes: Earth, Water
+Attribute: Earth・Water
 
 *属性：地・水*
 
@@ -635,7 +634,7 @@ Class: Lumberjack
 
 *クラス：ランバージャック*
 
-[Grade 8 dan, third son of the Burok family]
+【Grade 8 Rank・Third Son of the Blouk Family】
 
 *【学年8段位・ブロウク家三男】*
 
@@ -643,89 +642,89 @@ Class: Lumberjack
 
 &nbsp;
 
-0 Alan Edgarra
+〇Alan Edgala
 
 *〇アラン・エドガーラ*
 
-Age: 13 years old
+Age: 13
 
 *年齢：13歳*
 
-[Grade 7 rank].
+【Grade 7 Rank】
 
 *【学年7段位】*
 
 &nbsp;
 
-0Bell Nap Long
+〇Belnapp Long
 
 *〇ベルナップ・ロング*
 
-Age: 13 years old
+Age: 13
 
 *年齢：13歳*
 
-[Grade 7 rank].
+【Grade 7 Rank】
 
 *【学年7段位】*
 
 &nbsp;
 
-0 Carl Giacobini
+〇Carl Giacobini
 
 *〇カール・ジャコビニ*
 
-Age: 13 years old
+Age: 13
 
 *年齢：13歳*
 
-[Grade 7 rank].
+【Grade 7 Rank】
 
 *【学年7段位】*
 
 &nbsp;
 
-girl
+Girls
 
 *女子*
 
-0Helena Slater
+〇Helena Slater
 
 *〇ヘレナ・スレイター*
 
-Age: 13 years old
+Age: 13
 
 *年齢：13歳*
 
-[Grade 7 rank].
+【Grade 7 Rank】
 
 *【学年7段位】*
 
 &nbsp;
 
-0 Mary Frank
+〇Mary Frank
 
 *〇メアリー・フランク*
 
-Age: 13 years old
+Age: 13
 
 *年齢：13歳*
 
-[Grade 7 rank].
+【Grade 7 Rank】
 
 *【学年7段位】*
 
 &nbsp;
 
-0 Fiorina Atlee
+〇Fiorina Atlee
 
 *〇フィオリーナ・アトリー*
 
-Age: 12 years old
+Age: 12
 
 *年齢：12歳*
 
-[Grade 6 rank].
+【Grade 6 Rank】
 
 *【学年6段位】*
 
@@ -733,15 +732,15 @@ Age: 12 years old
 
 &nbsp;
 
-00 Marsh Cowsbert.
+〇Marsh Cowsbart
 
 *〇マーシュ・カウズバート*
 
-Age: 91 years old
+Age: 91
 
 *年齢：91歳*
 
-Attributes: Fire, Earth
+Attribute: Fire・Earth
 
 *属性：火・地*
 
@@ -753,17 +752,17 @@ Class: Former Highlander
 
 *クラス：元ハイランダー*
 
-Director of the "Cauzbert Workshop."
+【Head of the Cowsbart Workshop】
 
 *【『カウズバート工房』工房長】*
 
 &nbsp;
 
-0Marybelle Cowsbert.
+〇Maribelle Cowsbart
 
 *〇マリーベル・カウズバート*
 
-Age: 28 years old
+Age: 28
 
 *年齢：28歳*
 
@@ -771,21 +770,21 @@ Race: Dwarf
 
 *種族：ドワーフ*
 
-[Daughter of Marsh, clerk at "Cowsbert's Workshop"]
+【Clerical Position at the Cowsbart Workshop・Daughter of Marsh】
 
 *【『カウズバート工房』事務職・マーシュの娘】*
 
 &nbsp;
 
-0Cecily Eleanor
+〇Cecily Eleanor
 
 *〇セシリー・エレノア*
 
-Age: 59 years old
+Age: 59
 
 *年齢：59歳*
 
-Attributes: water, wind
+Attribute: Water・Wind
 
 *属性：水・風*
 
@@ -797,7 +796,7 @@ Class: Former Blade Hunter
 
 *クラス：元ブレードハンター*
 
-[Owner of "Late Afternoon (Apres Midi)"]
+【Owner of 'Afternoon (Apre Midi)'】
 
 *【『昼下がり（アプレミディ）』店主】*
 
@@ -805,35 +804,35 @@ Class: Former Blade Hunter
 
 &nbsp;
 
---Research Mission--
+――Investigation Delegation――
 
 *――調査使節団――*
 
 &nbsp;
 
-00 Cedric Meyer
+〇Cedric Meyer
 
 *〇セドリック・マイヤー*
 
-Age: 39 years old
+Age: 39
 
 *年齢：39歳*
 
-Attributes: Water
+Attribute: Water
 
 *属性：水*
 
-[Captain of the Twelfth Mobile Heavy Cavalry, Thousand Men, Battalion Commander of the Messenger Corps].
+【Captain of the Twelfth Mobile Heavy Cavalry Division・Commander of the Delegation】
 
 *【第十二機動重騎士団千人隊長・使節団大隊長】*
 
 &nbsp;
 
-0 Kyle Irvine
+〇Kyle Irvine
 
 *〇カイル・アーバイン*
 
-Age: 27 years old
+Age: 27
 
 *年齢：27歳*
 
@@ -841,17 +840,17 @@ Attribute: Wind
 
 *属性：風*
 
-[First centurion and deputy commander of the mission]
+【First Hundred Captain・Deputy Commander of the Delegation】
 
 *【筆頭百人隊長・使節団副隊長】*
 
 &nbsp;
 
-0 Magritte Gauthe.
+〇Magritte Gauche
 
 *〇マグリット・ゴーチェ*
 
-Age: 26 years old
+Age: 26
 
 *年齢：26歳*
 
@@ -859,17 +858,17 @@ Attribute: Earth
 
 *属性：地*
 
-[Centurion and advance detachment commander.
+【Hundred Captain・Advance Unit Leader】
 
 *【百人隊長・先遣部隊部隊長】*
 
 &nbsp;
 
-00Djimon Reetzmann.
+〇Jimon Reitzman
 
 *〇ジモン・リーツマン*
 
-Age: 25 years old
+Age: 25
 
 *年齢：25歳*
 
@@ -877,35 +876,35 @@ Attribute: Earth
 
 *属性：地*
 
-Team Leader of Team 1, Advance Unit
+【Leader of Squad 1・Advance Unit】
 
 *【1班班長・先遣部隊】*
 
 &nbsp;
 
-0 Laisa Ulunova
+〇Raisa Ulunova
 
 *〇ライサ・ウルノヴァ*
 
-Age: 22 years old
+Age: 22
 
 *年齢：22歳*
 
-Attributes: Water
+Attribute: Water
 
 *属性：水*
 
-Team Leader of Team 2, Advance Unit
+【Leader of Squad 2・Advance Unit】
 
 *【2班班長・先遣部隊】*
 
 &nbsp;
 
-0 Tony Easton
+〇Tony Easton
 
 *〇トニー・イーストン*
 
-Age: 22 years old
+Age: 22
 
 *年齢：22歳*
 
@@ -913,17 +912,17 @@ Attribute: Fire
 
 *属性：火*
 
-Team Leader of Team 3]
+【Leader of Squad 3】
 
 *【3班班長】*
 
 &nbsp;
 
-0Norman Lance
+〇Norman Lance
 
 *〇ノーマン・ランス*
 
-Age: 28 years old
+Age: 28
 
 *年齢：28歳*
 
@@ -931,35 +930,35 @@ Attribute: Wind
 
 *属性：風*
 
-Team leader of Team 4, War Spear Escort Unit.
+【Leader of Squad 4・War Spear Escort Unit】
 
 *【4班班長・戦槍護衛部隊】*
 
 &nbsp;
 
-0 Lisa Tuttle.
+〇Lisa Tuttle
 
 *〇リサ・タトル*
 
-Age: 24 years old
+Age: 24
 
 *年齢：24歳*
 
-Attributes: water, no
+Attribute: Water・Void
 
 *属性：水・無*
 
-Team Leader of Team 5, Medical Captain]
+【Leader of Squad 5・Sanitation Team Leader】
 
 *【5班班長・衛生隊長】*
 
 &nbsp;
 
-0 Cornell Wallich
+〇Cornell Wallrich
 
 *〇コーネル・ウォーリッチ*
 
-Age: 28 years old
+Age: 28
 
 *年齢：28歳*
 
@@ -967,17 +966,17 @@ Attribute: Earth
 
 *属性：地*
 
-[Team 6 leader, firm commander]
+【Leader of Squad 6・Fortification Team Leader】
 
 *【6班班長・堅固隊長】*
 
 &nbsp;
 
-0 Luke Trevor
+〇Luke Trevor
 
 *〇ルーク・トレバー*
 
-Age: 25 years old
+Age: 25
 
 *年齢：25歳*
 
@@ -985,43 +984,43 @@ Attribute: Earth
 
 *属性：地*
 
-Team leader of Team 7.
+【Leader of Squad 7】
 
 *【7班班長】*
 
 &nbsp;
 
-0 Casey Guinness
+〇Casey Guinness
 
 *〇ケイシー・ギネス*
 
-Age: 21 years old
+Age: 21
 
 *年齢：21歳*
 
-Attributes: Wind, Water
+Attribute: Wind・Water
 
 *属性：風・水*
 
-[Team 2 members]
+【Member of Squad 2】
 
 *【2班隊員】*
 
 &nbsp;
 
-0Fred Loring
+〇Fred Rolling
 
 *〇フレッド・ローリング*
 
-Age: 32 years old
+Age: 32
 
 *年齢：32歳*
 
-Attributes: Earth, Fire
+Attribute: Earth・Fire
 
 *属性：地・火*
 
-Chief Maintenance Officer
+【Chief of Maintenance】
 
 *【整備主任】*
 
@@ -1031,33 +1030,33 @@ Chief Maintenance Officer
 
 &nbsp;
 
-00nosoli kasbal
+〇Nosori Kasbar
 
 *〇ノソリ・カスバル*
 
-Age: 75 years old
+Age: 75
 
 *年齢：75歳*
 
-Attributes: wind, water, earth
+Attribute: Wind・Water・Earth
 
 *属性：風・水・地*
 
-[Magical Biology
+【Magical Biology】
 
 *【魔法生物学】*
 
 &nbsp;
 
-0 Morris Baltasar
+〇Morris Balthasar
 
 *〇モリス・バルタサル*
 
-Age: 75 years old
+Age: 75
 
 *年齢：75歳*
 
-Attributes: Earth, Fire
+Attribute: Earth・Fire
 
 *属性：地・火*
 
@@ -1065,21 +1064,21 @@ Race: Dwarf
 
 *種族：ドワーフ*
 
-Structural geology
+【Structural Geology】
 
 *【構造地質学】*
 
 &nbsp;
 
-0 Seiwa Eagle Melchio
+〇Seiwashi Melchio
 
 *〇セイワシ・メルチオ*
 
-Age: 75 years old
+Age: 75
 
 *年齢：75歳*
 
-Attributes: All
+Attribute: All
 
 *属性：全*
 
@@ -1087,21 +1086,21 @@ Race: Sun Elf
 
 *種族：サンエルフ*
 
-[Magickal Mechanics (Doctor of Magickal Engineering)
+【Magical Dynamics (Doctor of Magical Engineering)】
 
 *【魔導力学（魔導工学博士）】*
 
 &nbsp;
 
-0 Joseline Joslin
+〇Joseline Joslan
 
 *〇ジョスリーヌ・ジョスラン*
 
-Age: 25 years old
+Age: 25
 
 *年齢：25歳*
 
-Attributes: No, water, wind
+Attribute: Void・Water・Wind
 
 *属性：無・水・風*
 
@@ -1109,7 +1108,7 @@ Race: Half-Elf
 
 *種族：ハーフエルフ*
 
-Assistant Seiwaashi.
+【Assistant to Seiwashi】
 
 *【セイワシ助手】*
 
@@ -1117,43 +1116,43 @@ Assistant Seiwaashi.
 
 &nbsp;
 
-0 Cameron Fourier
+〇Cameron Fourier
 
 *〇キャメロン・フーリエ*
 
-Age: 41 years old
+Age: 41
 
 *年齢：41歳*
 
-[Head of the Research Mission, Assistant Deputy Director of the Northern Area Deipara Task Force, National Disaster Preparedness Committee (a.k.a. Mission Representative)]
+【Deputy Director of the National Disaster Response Committee's Northern Department's Deipara Response Office (Commonly known as the Delegation Representative)】
 
 *【国家災害対策委員会北部方面デイパーラ対策室副室長代理補調査使節団団長（通称・使節団代表）】*
 
 &nbsp;
 
-0Connor Clark
+〇Connor Clark
 
 *〇コナー・クラーク*
 
-Age: 37 years old
+Age: 37
 
 *年齢：37歳*
 
-[Deputy Chief of Mission].
+【Deputy Commander of the Delegation】
 
 *【使節団副官】*
 
 &nbsp;
 
-0 Jules Nard
+〇Jules Narl
 
 *〇ジュール・ナール*
 
-Age: 28 years old
+Age: 28
 
 *年齢：28歳*
 
-[Cameron Houllier, private escort]
+【Cameron Fourier's Private Guard】
 
 *【キャメロン・フーリエ私設護衛】*
 
@@ -1165,7 +1164,7 @@ Age: 28 years old
 
 &nbsp;
 
-0 Hulbert East
+〇Halbert East
 
 *〇ハルバート・イースト*
 
@@ -1173,21 +1172,21 @@ Attribute: Earth
 
 *属性：地*
 
-True Vampire
+・True Vampire
 
 *・トゥルーヴァンパイア*
 
-[Immortal General Halbert]
+【Undying General Halbert】
 
 *【不死将軍ハルバート】*
 
 &nbsp;
 
-0 Marina
+〇Marina
 
 *〇マリーナ*
 
-Attributes: Earth, Water
+Attribute: Earth・Water
 
 *属性：地・水*
 
@@ -1195,35 +1194,35 @@ Race: Moon Elf
 
 *種族：ムーンエルフ*
 
-Elder Vampire
+・Elder Vampire
 
 *・エルダーヴァンパイア*
 
-[Halbert and his family].
+【Halbert's Follower】
 
 *【ハルバート眷属】*
 
 &nbsp;
 
-0 Electra
+〇Electra
 
 *〇エレクトラ*
 
-Attributes: Fire, Wind
+Attribute: Fire・Wind
 
 *属性：火・風*
 
-Elder Vampire
+・Elder Vampire
 
 *・エルダーヴァンパイア*
 
-[Halbert and his family].
+【Halbert's Follower】
 
 *【ハルバート眷属】*
 
 &nbsp;
 
-0 Joel.
+〇Joel
 
 *〇ジョエル*
 
@@ -1231,11 +1230,11 @@ Attribute: Wind
 
 *属性：風*
 
-Elder Vampire
+・Elder Vampire
 
 *・エルダーヴァンパイア*
 
-[Halbert and his family].
+【Halbert's Follower】
 
 *【ハルバート眷属】*
 
@@ -1245,15 +1244,13 @@ Elder Vampire
 
 &nbsp;
 
-0 Clarimonde.
+〇Clarimond
 
 *〇クラリモンド*
 
-True Vampire
+・True Vampire
 
 *・トゥルーヴァンパイア*
-
-
 
 &nbsp;
 
@@ -1265,11 +1262,10 @@ Thank you for reading!
 
 &nbsp;
 
-I also wrote a postscript to the activity report.
+I have also written something like an afterword in the activity report.
 
 *活動報告に　あとがき的な物も書いております。*
 
-If you like, you can take a peek at it as well.
+If you like, please take a look at that too<m(__)m>
 
 *よろしければ、そちらも覗いてやってください<m(__)m>*
-

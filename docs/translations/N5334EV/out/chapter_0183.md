@@ -1,88 +1,88 @@
-# 171 - Brawl Tavern
+# Episode 171: Brawl at the Tavern
 
 ## 171話　乱闘酒場
 
-I guess it's .......
+……I wonder what this is all about.
 
 *……なんだろね。*
 
-I can't help but wonder if anyone would fall for such a transparent trick. I can't help but wonder, but according to Bibi and Rudri, it's not a problem because the low-level people in this town are all short-sighted.
+I can't help but think, is there really anyone who would fall for such an obvious trick? But according to Bibi and Mr. Rudori, the low-level thugs in this town are all short-sighted, so there's no problem.
 
 *こんな見え透いた手に引っかかるヤツなんて居るのかしらん？と思わずにはいられないけど、ビビやルドリさんに言わせれば、この街の下っ端は短絡的なヤツばかりだから問題無いと言う。*
 
-Hmmm...is that how it's supposed to be?
+Hmm, is that really how it is?
 
 *う～～む、そんなモンなのだろか？*
 
 &nbsp;
 
-I cut the meat pie on the table into bite-size pieces, feeling embarrassed at the trifecta I had just played out.
+Feeling a bit embarrassed by the farce I just enacted, I cut the meat pie on the table into bite-sized pieces.
 
 *わたしは今繰り広げた三文芝居に気恥ずかしさを感じながら、テーブルの上のミートパイを一口サイズに切り分ける。*
 
-And as I was graciously bringing it to my mouth, Algernon suddenly came running up to the table.
+As I delicately bring one to my mouth, suddenly Algernon jumps up onto the table.
 
 *そしてそれをお上品に口元へ運んでいると、突然アルジャーノンがテーブルの上へと駆け上がって来た。*
 
 &nbsp;
 
-Then he starts urging Bibi to share his food with him, saying something like, "Cu-cu-cu-cu.
+And while saying "Kyukyu," he starts urging Bibi to share some food.
 
 *そして「キュキュッ」とか言いながら、ビビに料理のご相伴を催促し始める。*
 
 &nbsp;
 
-Have you been exploring the area somewhere?
+I wonder if he went exploring somewhere around here?
 
 *どっかその辺を探索でもして来たんだろか？*
 
-Algernon's white fur was a little dingy, and Bibi took out a handkerchief, wet it a little, and wiped his body.
+Bibi takes out a handkerchief, dampens it a bit, and wipes Algernon's slightly dirty white fur.
 
 *ちょっと薄汚れていたアルジャーノンの白い毛並みを、ビビが取り出したハンカチを少し濡らし、その身体を拭いてあげている。*
 
-Well, this neighborhood, including this bar, is not a very flattering place.
+Well, this tavern and the surrounding area can't be described as clean, to say the least.
 
 *まあ、この酒場を含めてこの近辺は、お世辞にも綺麗な場所とは言えないからね。*
 
-It's no wonder that if they slip into even the smallest of crevices, they quickly become flimsy and dirty.
+If he slipped into a little crevice, it's no surprise he'd get dirty in no time.
 
 *ちょっとした隙間にでも潜り込んだら、あっという間に薄汚れちゃうのも無理は無い。*
 
 &nbsp;
 
-As Bibi wiped his back and stretched out his back comfortably, Saleina picked up a nut from the plate that had come as a snack and gently held it out in front of Algernon.
+Seeing the small animal stretch its back happily while being wiped by Bibi, Ms. Sareina picks up a nut from the plate of snacks she brought and gently offers it to Algernon.
 
 *ビビに背中を拭かれて気持ち良さそうに背筋を伸ばす小動物に、サレイナさんがおつまみとして来ていたお皿から、ナッツを1つ摘まみ上げ、アルジャーノンの前にそっと差し出した。*
 
-Arjanon turned his attention to it, tilted his head slightly, and with a "squeak," received the nut with his little paw and began chomping on it in place.
+Algernon looks at it, tilts his head slightly, and with a "Kikyu," takes the nut with his tiny front paws and starts nibbling on it right there.
 
 *アルジャンーノンはそれに目を向けると小さく首を傾げ、「キキュッ」と鳴いてそのナッツを小さな前足で受け取り、ポリポリとその場で齧り始めた。*
 
 &nbsp;
 
-Well, well! Well!"
+"Well, well! Well!!"
 
 *「まぁ、まあ！まあ！！」*
 
 &nbsp;
 
-Seeing Algernon, Saleina, who handed him the nuts, shouted with a prodigal look on her face.
+Seeing Algernon, Ms. Sareina's face melts with delight as she exclaims.
 
 *そのアルジャーノンを見て、ナッツを渡したサレイナさんが顔を蕩けさせて声を上げる。*
 
 &nbsp;
 
-Bibi wipes her body, and Algernon squeals "Kyu-kyu-kyu" as if he is talking to her.
+Algernon then chirps something like "Kyukukyuu" as if talking to Bibi, who is still wiping him down.
 
 *更に身体を拭くビビに、「キュキュキュ」と何やら語りかけでもする様に鳴くアルジャーノン。*
 
-Seeing this, even Namiena's face was even more prodigal.
+Seeing this, even Ms. Namiena's face starts to soften.
 
 *その様子を見て、更にナミエナさんまで顔を蕩かせていた。*
 
 &nbsp;
 
-He's still the same little animal that the ladies love to receive.
+As always, he's a small animal that women adore.
 
 *相変わらず女性に受けの良い小動物だよ。*
 
@@ -92,37 +92,37 @@ He's still the same little animal that the ladies love to receive.
 
 &nbsp;
 
-"Hello, mister! You're in good shape, aren't you? Hey!
+"Hey there, buddy! Living the good life, huh?! Hey!"
 
 *「よう旦那！イイご身分だな？！オイ！」*
 
 &nbsp;
 
-A rude and rude voice, which ruined such a peaceful space, was unkindly hurled at our table.
+A rude and boorish voice suddenly shatters the peaceful atmosphere, carelessly thrown toward our table.
 
 *そんな穏やかな空間をぶち壊す無粋で粗暴な声が、わたし達のテーブルに向け無遠慮に投げかけられた。*
 
 &nbsp;
 
-"Can your husband handle himself?"
+"Can you handle it all by yourself, buddy?"
 
 *「旦那1人で身体持つのかよ？」*
 
-"How about we take one or two of them back here? You know what?
+"How about we take one or two off your hands? Huh?!"
 
 *「1人か2人、コッチで引き取ってやろうか？なぁ？！」*
 
-"It doesn't matter if we're all here. Ha-ha-ha!
+"It doesn't even have to be all of them, you know? Gahaha!"
 
 *「別に全員だってイイんだぜ？ギャハハ！」*
 
 &nbsp;
 
-Sure enough, some thug-like men got involved with Mr. Roderick.
+As expected, some thug-like men started to bother Mr. Roderick.
 
 *案の定、ロデリックさんにチンピラ風の男共が絡んで来たのだ。*
 
-It's exactly what we've been waiting for!" and everyone's eyes silently light up.
+It was as if they were saying, "We've been waiting for this!" with all their eyes quietly shining.
 
 *まさに「待ってました！」と言う感じで、全員の目が静かに光る。*
 
@@ -130,275 +130,275 @@ It's exactly what we've been waiting for!" and everyone's eyes silently light up
 
 &nbsp;
 
-You know what I mean. Sue! You never mess with me! Okay?
+"You understand, right? Su! You absolutely must not get involved! Got it?!"
 
 *「分かってるよね？スー！アンタは決して手を出すんじゃないわよ！良い？！」*
 
-I know.
+"Y-Yes, I understand!"
 
 *「わ、分かってますぅ」*
 
 &nbsp;
 
-Bibi gives me a small reminder in my ear, to which I respond with a small nod.
+I nod in response to Bibi, who whispers a warning in my ear.
 
 *耳元で小さく念を打つビビに、わたしも小さく頷いて答える。*
 
-I was so surprised to see one of the men standing next to Mia and dropping his lowly gaze to it.
+I noticed one of the men standing next to Mia, casting a lewd gaze in her direction.
 
 *男の一人がミアの横に立ち、下卑た視線をそこへ落としているのが目に入ったからね。*
 
-I was about to make a move, but of course I knew it. Of course I know that! Of course I know that!
+That's why Bibi was trying to restrain me, but of course, I know better. Yes! I know!
 
 *わたしが動きそうなのを察して制してきたワケなのだが、勿論わたしだって心得ている。ええ！心得ていますよ？！*
 
 &nbsp;
 
-"Hey, you. Who are you trying to mess with my kid when you said no?"
+"Hey, you! Who do you think you're trying to lay your hands on my girl without asking?"
 
 *「おい貴様。誰に断ってウチの子に手を出そうとしてるんだ？」*
 
 &nbsp;
 
-Mr. Rudry "GATARI!" and gets up from his chair and drops his dusky voice over the top on the guy who was trying to reach Mia in a disgusting way.
+Mr. Rudori stands up from his chair with a "Gatari!" and drops a heavy voice on the guy who was reaching out to Mia inappropriately.
 
 *ルドリさんが「ガタリ！」と椅子から立ち上がり、ミアにいやらし気な手を伸ばそうとしていた奴に、ドスの効いた声を上から落とす。*
 
-The man stops moving for a moment, but another man steps in front of Mr. Rudri.
+The man freezes for a moment, startled by the voice, but another guy steps forward, closing the distance to Mr. Rudori.
 
 *その声に男は一瞬ビクリと動きを止めるが、別の男がズイっとルドリさんの前へと足を運ぶ。*
 
 &nbsp;
 
-Then he contorts his dirty face, full of stubble, into a thin smile, and cuts his mensch at Mr. Rudri.
+With a dirty face covered in stubble, he smirks and tries to intimidate Mr. Rudori.
 
 *そして、無精髭だらけの汚れた顔を薄ら笑いで歪め、ルドリさんに対してメンチを切る。*
 
-He has surprisingly good nerve, even though Mr. Rudri is more than a head taller than him.
+Despite being a head taller than Mr. Rudori, he has some guts.
 
 *身長は頭一つ以上ルドリさんの方が大きいのに、意外といい度胸だ。*
 
-In front of the man's eyes, the tip of Mr. Rudri's vicious chest armor is at almost zero distance from him!
+Right in front of him, the tip of Mr. Rudori's fearsome chest armor is almost at zero distance!
 
 *その男の目の前には、ルドリさんの凶悪胸部装甲の先端部分が、ほぼゼロ距離の位置にある！*
 
 &nbsp;
 
-The man grinned even more disgustedly and raised his mouth, revealing yellow teeth.
+The man grins lewdly, showing his yellow teeth.
 
 *男は更にニヤリと嫌らしく口元を上げ、黄色い歯を見せた。*
 
 &nbsp;
 
-I don't care if you're the one who has to deal with it. What? Hey."
+"I wouldn't mind if you wanted to take me on, you know? Huh? Hey."
 
 *「別にお前ェが相手してくれてもいいんだぜ？え？おい」*
 
 &nbsp;
 
-He grabbed the overwhelming mass of Mr. Rudri, who was looming right in front of him, without any hesitation!
+He brazenly tries to grab Mr. Rudori's overwhelming mass right in front of him!
 
 *そのまま目の前にそそり迫るルドリさんの圧倒的な質量を、あろう事か無遠慮にも鷲掴みにしやがったのだ！*
 
 &nbsp;
 
-Oh, this guy's a dick. ......
+Ah, this guy is done for...
 
 *あ、コイツちんだな……。*
 
 &nbsp;
 
-We watched the situation with a sense of tension that stung like a sharp needle.
+We watch the scene, feeling a sharp tension in the air.
 
 *わたし達はその様子を、キンキンに刺さる様な緊張感を感じつつ静観する。*
 
-I thought I heard an auditory hallucination of Mr. Rudri's palsy making a loud, loud noise that reached me.
+I could almost hear the sound of Mr. Rudori's mouth muscles tightening.
 
 *ルドリさんの口角筋がビキリと盛大に音を立てた様な幻聴がココまで届いた気がした。*
 
-In reality, however, Mr. Rudri is there with a predator's smile that fishes out his mouth viciously.
+But in reality, there he is, grinning like a ferocious predator.
 
 *しかし実際には、凶悪に口元を釣り上げる肉食獣の笑みを浮かべたルドリさんがそこにいる。*
 
-The fangs in its mouth, glistening and showing off, are truly horrifying and disastrous.
+The fangs glistening in his mouth look truly ominous and terrifying.
 
 *ギラリと光って見せ付ける口の中の牙が、実に禍々しくて恐ろしい。*
 
 &nbsp;
 
-You're the one who started it, remember?
+"You were the one who threw the first punch, remember?"
 
 *「始めに手ぇ出したのは、て前ぇだからな？」*
 
-What?
+"What?!"
 
 *「がっ？！」*
 
 &nbsp;
 
-Mr. Rudri had grabbed the man in front of him by the face with no action and without feeling any initial movement.
+Without any action, Mr. Rudori grabs the man's face effortlessly.
 
 *ルドリさんが目の前にいた男をノーアクションで、何の初動も感じさせずにその顔面を鷲掴みにしていた。*
 
-Grabbing the man's head in an eagle grip, Mr. Rudri lifted it all the way to nearly the ceiling!
+Holding the man's head, Mr. Rudori lifts him up close to the ceiling!
 
 *男の頭を鷲掴みにしたルドリさんは、その頭を一気に天井近くまで持ち上げた！*
 
-Amazing! Hands, huge! Arms, so long! That's a half-giant!
+Wow! His hands are huge! His arms are long! Just as expected from a half-giant!
 
 *スゴ！手ぇ、デカッ！腕、長っ！さすがハーフジャイアント！*
 
 &nbsp;
 
-Grabbing the man by the head, Mr. Rudri threw him without hesitation toward the other thugs who were frozen in place!
+Still holding the man's head, Mr. Rudori throws him toward the other thugs who are frozen in place without any hesitation!
 
 *頭を掴んだままルドリさんは、その男を固まっている他のチンピラ共へ向けて何の躊躇いも無く投げ付けた！*
 
 &nbsp;
 
-"Geez!"
+"Ugh!"
 
 *「ぅぎぁ！」*
 
-Wow!"
+"Whoa!"
 
 *「うわ！」*
 
-What the hell?
+"What the?!"
 
 *「なんだ？！」*
 
-You! You son of a bitch!
+"You! You bastard!!"
 
 *「この！てめぇぇ！！」*
 
 &nbsp;
 
-Wow! Are you okay? You didn't lose your neck?
+Whoa! Is he okay? Did his neck not snap off?
 
 *うわ！ダイジョブか？首もげなかったか？*
 
-Well, I don't really care if it's a bit of a mess.
+Well, I wouldn't really care if it did.
 
 *まあ、もげても別に気にしないが。*
 
 &nbsp;
 
-The men involved in the take were a group of four.
+For now, the men who approached us were a group of four.
 
 *取り合えず絡んできた男達は4人組だった。*
 
-Rudri threw one of them at the remaining three.
+Mr. Rudori threw one of them toward the remaining three.
 
 *ルドリさんはそのうちの1人を、残る3人に向かい投げ付けたのだ。*
 
 &nbsp;
 
-But only two people took that direct hit.
+But only two of them took the direct hit.
 
 *でもその直撃を受けたのは2人だけ。*
 
-The remaining one stepped toward Mr. Rudri, yelling.
+The last one, shouting angrily, stepped forward toward Mr. Rudori.
 
 *残る1人は怒鳴りながらルドリさんに向けて足を踏み出した。*
 
-But then Mr. Saleina picked up a cane that was propped up on his chair.
+But at that moment, Ms. Sareina grabbed the staff she had leaned against her chair.
 
 *だがそこでサレイナさんが自分の椅子に立てかけていた杖を手に取った。*
 
 &nbsp;
 
-It is the magical medium she uses. It is a long wand as tall as she is.
+It was her magical medium. A long staff that was about her height.
 
 *それは彼女の使う魔法媒体。自分の身長ほどもある長い杖だ。*
 
-With it, he lightly knocks on the floor. At the same time, instantly call out the magic name.
+She lightly tapped it on the floor and instantly called out the name of the spell.
 
 *それを持って軽くコツンと床を打つ。同時に魔法名を瞬時にコールする。*
 
-It is a 'quick sleep' spell.
+It was the spell "Quick Sleep."
 
 *それは『クイックスリープ』の呪文。*
 
-The man who came at him was defenseless and flopped down on the floor on the spot.
+The approaching man fell to the floor, defenseless.
 
 *向かって来た男は無防備に、その場でバタリと床にぶっ倒れた。*
 
 &nbsp;
 
-I thought the same thing when we were dealing with the magical beasts on the road, but I knew that Ms. Sareena was a very skilled spellcaster.
+I thought the same when we were dealing with magical beasts on the way here, but Ms. Sareina is indeed a skilled spellcaster.
 
 *道中で魔獣を相手にしていた時も思ったけど、やっぱりサレイナさんは中々に凄腕の呪文使いだ。*
 
 &nbsp;
 
-The other men who had been rolled were on their feet surprisingly quickly.
+The other men who had been knocked down were surprisingly quick to get back up.
 
 *転がされた他の男達は、意外と早く立ち上がっていた。*
 
-One of them immediately jumped on Mr. Rudri, but the difference in reach was so overwhelming that the man was grabbed in the face again, far in front of his own line of sight. He was in the same situation as the first guy. Can't he learn?
+One of them immediately lunged at Mr. Rudori, but the reach difference was overwhelming, and he was once again caught by the face before he could even close the distance. He was experiencing the same fate as the first man. Does he have no learning ability?
 
 *そのうちの1人がすぐ様ルドリさんへ飛び掛かって行ったけど、リーチの差は圧倒的で、男は自分の間合いの遥か手前でまたも顔面を掴まれてしまった。最初の男と同じ目にあってる。学習能力無いんだろか？*
 
 &nbsp;
 
-Another one goes toward Mr. Rudri to go around. Is this guy moving surprisingly well?
+Another one tried to circle around to Mr. Rudori. This one was surprisingly agile.
 
 *更にもう1人が回り込むようにルドリさんに向かう。コイツは意外といい動きをしてるか。*
 
-But for that guy, Namiena quickly picked up the kite shield she had left by her chair, stuck it out and slammed it down.
+However, Ms. Namiena quickly grabbed the kite shield that had been next to her chair and thrust it forward to strike.
 
 *しかしそいつには、ナミエナさんが自分の椅子の脇に置いてあったカイトシールドを素早く手に取り、それを突き出し叩き付けた。*
 
-The man who was hit by the shield flew to the wall about four or five meters away, smashed the table there, and scattered the food spread on it around the area.
+The man hit by the shield flew about 4 to 5 meters away, crashing into a table and scattering the food that had been spread out on it.
 
 *シールドでぶっ叩かれたれた男は、そのまま4～5メートル程先の壁際までぶっ飛び、そこに置かれたテーブルをぶち割って、上に広げられていた料理を辺りに飛び散らせる。*
 
-It flew away at a great speed, but is it that thing? Did Namiena use a "shield bash" for her shield job?
+He flew away with incredible force, but I wonder? Did Ms. Namiena use the shield bash of the shield class?
 
 *凄い勢いで飛んで行ったけど、アレかな？ナミエナさんは盾職の『シールドバッシュ』でも使ったかな？*
 
 &nbsp;
 
-The man who was first thrown off the table finally got up and threw a mug from a nearby table at Mr. Rudri.
+The first man who had been thrown finally stood up and hurled a mug that was on a nearby table at Mr. Rudori.
 
 *最初に投げ飛ばされた男が漸く立ち上がり、近くのテーブルに乗っていたジョッキをルドリさん目がけて投げ付けて来た。*
 
-Not only mugs, but forks, plates, balls, and anything else on the table were thrown at us one after another!
+Not just the mug, but forks, plates, bowls, and everything else on the table were thrown one after another!
 
 *ジョッキだけじゃない、フォークやら、皿やら、ボールやら、テーブルに乗っている物を次々と投げ着けて来る！*
 
-Kids fighting?
+Is this a children's fight?!
 
 *子供の喧嘩か？！*
 
 &nbsp;
 
-I am sure he is hesitant to approach Mr. Rudri because he was grabbed in the face earlier.
+He must be hesitating to approach Mr. Rudori after having his face grabbed earlier.
 
 *きっとさっき顔面を掴まれたんで、ルドリさんに近付くのを躊躇ってるんだろうな。*
 
-Then why don't they just sassily run away, but they don't ...... run away, do they?
+Then he should just run away, but... he doesn't.
 
 *ならサッサと逃げれば良いのにと思うんだけど……逃げないんだよねぇ。*
 
 &nbsp;
 
-Namiena-san is knocking down various flying objects with her shield from one side to the other.
+Everything flying toward Mr. Rudori is being swatted away by Ms. Namiena with her shield.
 
 *飛んで来る色んな物は、片っ端からナミエナさんがシールドで叩き落としている。*
 
-Is that a brilliant move, like a tennis player returning a volley?
+It's almost like a tennis player returning volleys with graceful movements?!
 
 *それはさながら、テニスプレーヤーがボレーでも返す様な華麗な動き？！*
 
-All of the things we are knocking off are things that were almost reaching Mr. Roderick.
+Most of the things being swatted away were aimed at Mr. Roderick.
 
 *叩き落としているのはみんな、ロデリックさんに届きそうになっていた物ばかりなんだけどね。*
 
 &nbsp;
 
-Meanwhile, the guy who was throwing stuff around like a kid got taco-knocked over by the other patrons sitting at his table. Well, that's what happens.
+Meanwhile, the man who was throwing things like a child was being beaten up by the other customers sitting at that table. Well, that was bound to happen.
 
 *一方、子供みたいに物を投げてた男は、そのテーブルに座ってた他の客達にタコ殴りにされた。ま、そうなるよね。*
 
@@ -406,79 +406,79 @@ Meanwhile, the guy who was throwing stuff around like a kid got taco-knocked ove
 
 &nbsp;
 
-The second man, who had been grabbed by Mr. Rudri by the face, has his whole body flaccid with dalliance for some time.
+The second man who had his face caught by Mr. Rudori had somehow gone completely limp.
 
 *ルドリさんに顔面を掴まれていた二人目の男は、いつの間にやら全身がダランと弛緩している。*
 
-Oh, man, he's out of it. No wonder.
+Ah, he's already lost consciousness. It's no surprise.
 
 *ああ、ありゃもう意識が飛んでるな。無理も無い。*
 
-It is a thing that doesn't look like it can breathe, with its face completely in the palm of your hand.
+His face was completely engulfed in Mr. Rudori's hand, making it impossible for him to breathe.
 
 *掌の中に顔がすっぽり入っていて、とても息が出来るようには見えないモノね。*
 
 &nbsp;
 
-But then someone tackles Mr. Rudri from behind.
+But then, someone from behind tries to tackle Mr. Rudori.
 
 *でもそんなルドリさんに対して、後ろからタックルをかましてくる奴がいる。*
 
-I guess he tried to pull me down with his momentum, but our Mr. Rudri didn't seem to be freaked out.
+They must have thought they could take him down with momentum, but Mr. Rudori doesn't budge at all.
 
 *勢いで引き倒そうとしたんだろうけど、当のルドリさんはビクともしていない。*
 
 &nbsp;
 
-Oh, and another guy tackled me with great force!
+Oh, another guy is charging in with a tackle!
 
 *あ、更に男がもう1人、凄い勢いでタックルかまして来た！*
 
-Oh, he was kicked off easily.
+Ah, he was easily kicked away.
 
 *あ、簡単に蹴り飛ばされた。*
 
 &nbsp;
 
-The kicked man is blown away, crashing into a wall and even smashing the table beneath it.
+The kicked man flew away and crashed into the wall, smashing the table underneath it.
 
 *蹴られた男はそのまま吹っ飛び、壁に激突してその下のテーブル迄粉砕する。*
 
 &nbsp;
 
-Immediately after the kick, Mr. Rudri had landed a heavy elbow strike on the back of the man who was holding on to him.
+Immediately after kicking, Mr. Rudori brought down a heavy elbow strike onto the back of the man who was clinging to him.
 
 *ルドリさんは蹴りを入れた直後には、しがみ付いている男の背中に重い肘打ちを打ち下ろしていた。*
 
-The man who had been holding on leaks a sound like a squashed frog and slumps to the floor.
+The man who was clinging to him let out a sound like a squashed frog and collapsed to the floor.
 
 *しがみ付いていた男は、潰れたカエルみたいな音を洩らして床にへばり付く。*
 
-And as if to add insult to injury, he had a (?) in his hand. I threw the guy at the guy who kicked him and crushed the table.
+Then, as if to add insult to injury, Mr. Rudori threw the man he was holding at the one who had kicked the table.
 
 *そしてついでと言わんばかりに手に持っていた（？）男を、蹴り飛ばしてテーブルを潰した奴に向けて投げつけた。*
 
 &nbsp;
 
-Furthermore, a man with a chair swung it over his head and brought it down on Mr. Rudri.
+Another man, holding a chair, swung it down toward Mr. Rudori.
 
 *更に椅子を持った男が、その椅子を振り被ってルドリさん目がけて降り下ろす。*
 
-But Mr. Rudri lightly brushes it off with his left hand, as if chasing a small insect, and then continues by thrusting the bottom of his right palm into the man's chest.
+However, Mr. Rudori lightly swatted it away with his left hand as if swatting a fly, and then thrust his right palm into the man's chest.
 
 *しかしルドリさんは、それを小虫でも追う様に左手で軽く払い除け、続けざまに右の掌底を男の胸元に突き入れる。*
 
-A dull thud echoed around the area! The man was blown away by the wall with a dull thud.
+With a dull thud, the sound echoed, and the man flew away toward the wall.
 
 *ズン！と鈍い音を辺りに響かせ、男はそのままやはり壁目がけて吹き飛んだ。*
 
 &nbsp;
 
-Muso already!
+He's unstoppable!
 
 *もう無双！*
 
-Mr. Rudri Warriors!
+Mr. Rudori is invincible!!
 
 *ルドリさん無双！！*
 
@@ -488,53 +488,53 @@ Mr. Rudri Warriors!
 
 &nbsp;
 
-But why?
+But why is that?
 
 *だがどういうワケだろ？*
 
-The first thugs who came to me were a group of four, I believe. But now there are three or four of them surrounding Mr. Rudri.
+The initial group of thugs was supposed to be four. Yet now, there are only about three or four men surrounding Mr. Rudori.
 
 *最初絡んで来たチンピラは4人組だった筈だ。だが今現在ルドリさんを囲んでいる輩は3～4人居る。*
 
-Besides that, there are a couple of guys throwing something at me from around.
+In addition, there are several others throwing things from the sidelines.
 
 *それ以外にも、周りから何かを投げ付けている連中が何人も居る。*
 
-But even when something is about to hit me, Rudri-san is no-look, and he's ducking, and Namiena-san is usually knocking it off.
+But even when something seems like it will hit him, Mr. Rudori dodges it without looking, and most of it is being swatted away by Ms. Namiena.
 
 *でも、何かが当たりそうになっても、ルドリさんはノールックで躱しているし、大体はナミエナさんが叩き落しているんだけどね。*
 
-In addition to knocking things off, Namiena also uses her shield to shield bash the occasional guy who runs into her with it.
+Besides swatting things away, Ms. Namiena also occasionally uses her shield bash to knock away anyone trying to charge in.
 
 *ナミエナさんは物を叩き落とす以外にも、その盾で時々突っ込んでくる奴をシールドバッシュで弾き飛ばしていたりする。*
 
 &nbsp;
 
-If you include those who are knocked out like that, the number is not just 10. Clearly, the number is increasing.
+Considering the number of people who have been knocked out, it clearly exceeds ten. The number is definitely increasing.
 
 *そんなこんなでノックアウトされている連中を含めると、その数は10人どころではない。明らかに増えている。*
 
-If I'm not mistaken, about half of the people in this bar are involved in the brawl.
+If things go poorly, it might be that half of the people in this tavern are participating in the brawl.
 
 *下手をしたら、この酒場に居る半数ぐらいの連中が乱闘に参加してるんじゃなかろか？*
 
 &nbsp;
 
-In case you're wondering, the guys who are knocked out and rolling around are being restrained by a magic called "restringing" by Ms. Salaina.
+By the way, those who have been knocked out and are lying around are being restrained by Ms. Sareina using a magic called "Resting."
 
 *因みにノックアウトされて転がってる奴らは、サレイナさんが『レストリング』という魔法で拘束している。*
 
-This is a 'wood attribute' magic that restrains the opponent with ivy, which Mia also uses often. Seeing Ms. Saleina instantly activate the magic, she muttered to herself, "Wow. From Mia's point of view, I guess that Ms. Saleina's magic ability is still quite good.
+This is a wood-type magic that binds the opponent with vines, which Mia often uses. I murmured "Amazing" when I saw Ms. Sareina instantly activate the magic. From Mia's perspective, it seems that Ms. Sareina's magical prowess is quite impressive.
 
 *これは、ミアも良く使っている蔦で相手を拘束する『木属性』の魔法だ。サレイナさんが瞬時に魔法を発動させているのを見て「凄い」と呟いていた。ミアから見てもやはり、サレイナさんの魔法の実力はかなりの物なのだろう。*
 
 &nbsp;
 
-And to top it all off, he even put a "sleep" on her and healed her wounds.
+Moreover, as if to add insult to injury, she layers on "Sleep" and even heals any wounds they have.
 
 *しかもダメ押しとばかりに『スリープ』を上掛けし、更には出来た傷まで治してあげていてる。*
 
-I was impressed by the thoroughness of his aftercare, even though he was dealing with a rogue.
+Despite dealing with worthless opponents, I can't help but be impressed by how thorough her aftercare is.
 
 *ロクデナシ相手だというのに、何ともアフターケアまでしっかりした方だなと感心することしきりだ。*
 
@@ -542,83 +542,83 @@ I was impressed by the thoroughness of his aftercare, even though he was dealing
 
 &nbsp;
 
-Shucks, the store is in a top-to-bottom brawl. It's a bigger mess than I thought it would be.
+However, the inside of the tavern is in a state of chaotic brawl. It's turning into a bigger commotion than I expected.
 
 *しっかし、お店の中は上を下への乱闘状態。思った以上の大騒ぎになっている。*
 
 &nbsp;
 
-But what? Since the sexual misconduct against Mr. Rudri is the origin of this project, I don't see any problem with it!
+But well? Since it all started with a sexual assault against Mr. Rudori, I guess there’s no real problem, right?!
 
 *けどまあ？ルドリさんに対する性犯罪行為が発端なワケだから、特に問題無いかな？！*
 
-I don't care if we exterminate them or crush them all!
+I wouldn’t mind exterminating these guys, even if I crush them all!
 
 *こ奴らを殲滅しても、全部潰し捲っても別にかまわんよね！*
 
-It's really the execution of justice, isn't it?
+It's truly the execution of justice!
 
 *まさに、正義執行だものね！*
 
 &nbsp;
 
-Just as I was getting a little bit excited, something unfashionable came flying at our table.
+Just as I was feeling a bit pumped up inside, something serious came flying toward our table.
 
 *てな感じで、ちょっとばかりわたしの中で盛り上がっていた所に、洒落にならないモノがわたし達のテーブル目がけ飛んで来た。*
 
 &nbsp;
 
-That is a knife of sorts, no matter how you look at it.
+It was clearly some kind of knife.
 
 *それはどう見てもナイフの類い。*
 
-Slow-indager.
+A thrown dagger.
 
 *スローインダガーだ。*
 
-It was flying straight for Roderick's neck.
+It was flying straight toward Mr. Roderick's neck.
 
 *それが真っ直ぐロデリックさんの首元めがけて飛んで来ていたのだ。*
 
 &nbsp;
 
-I popped one of the nuts in my hand with my fingertips to give to Algernon.
+I flicked one of the nuts I was holding for Algernon with my fingertip.
 
 *わたしはアルジャーノンに上げる為に、手に持っていたナッツを1つ指先で弾いた。*
 
-It hits the flying object in an instant.
+It hit the flying object in an instant.
 
 *それは一瞬で飛来物に直撃する。*
 
-The nut itself popped and disappeared, but the dagger changed its trajectory dramatically.
+The nut itself shattered and disappeared, but the dagger's trajectory changed dramatically.
 
 *ナッツ自体は弾けて消えたが、ダガーは軌道を大きく変えた。*
 
-Furthermore, the next moment the dagger changed its trajectory, Namiena-san knocked it down with her shield.
+In the next moment, Ms. Namiena swatted it away with her shield.
 
 *更にダガーが軌道を変えた次の瞬間には、ナミエナさんがシールドでそれを叩き落す。*
 
-Namiena's reaction time is also quintessential.
+Ms. Namiena's reaction speed is impressive.
 
 *ナミエナさんの反応速度も流石だ。*
 
 &nbsp;
 
-Right rear, about 6 meters. Behind a pillar.
+"Right rear, about six meters. Behind the pillar."
 
 *「右後方、凡そ6メートル。柱の陰」*
 
-Algernon!"
+"Algernon!"
 
 *「アルジャーノン！」*
 
-Kikkuk!"
+"Kikyu!"
 
 *「キキュッ！」*
 
 &nbsp;
 
-I tell Bibi the location of the person to whom I released a small, quick shot.
+I quickly conveyed the location of the opponent to Bibi in a small, swift manner.
 
 *わたしがビビに、小さく素早く放った相手の場所を伝える。*
 
@@ -628,11 +628,9 @@ At the same time, Bibi gives instructions to Algernon.
 
 &nbsp;
 
-Hom-hom-hom, looks like you really caught on.
+Hmm, it seems like we really did get a bite.
 
 *ほむほむ、どうやらホントに釣れたっぽいぞ。*
-
-
 
 &nbsp;
 
@@ -644,7 +642,6 @@ Thank you for reading.
 
 &nbsp;
 
-Thank you for your buzz and your rating! We are always encouraged!
+Thank you for your bookmarks and ratings! They are always a great motivation for me!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
-

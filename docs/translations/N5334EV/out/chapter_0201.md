@@ -1,4 +1,4 @@
-# 189 A Call from the President
+# Chapter 189: A Summons from the Chairman
 
 ## 189話　理事長からのお呼び出し
 
@@ -8,251 +8,251 @@
 
 &nbsp;
 
-I had a safe delivery."
+"I've safely welcomed the birth."
 
 *「無事に出産を迎えたよ」*
 
-What? What did you just say?"
+"What? What did you just say?"
 
 *「は？今なんて？」*
 
-"Alaska and having grandchildren: ............"
+"At around thirty, I've become a grandparent..."
 
 *「アラサーにして、孫が出来た件…………」*
 
-No, no, no, no, no, no, no, no, no, no, no, no, no, no, no! No, no, no! Wait, wait, wait, wait, wait! I haven't heard from you in a year! No, no, no, no, no, no, no, no, no, no, no, no! No! It's true that we became parents when we were teenagers, but...? We did?
+"What?! No, no, no! Wait, wait, wait, wait, wait!! It's been a year since we last contacted each other, and you just drop this bomb?! I mean, sure, we became parents in our teens, but still?!"
 
 *「ちょぉっ？！いや、いやいや！待って待って待って待って待って！！1年ぶりの連絡なのにブッ込みエグない？！いや！確かにわたし達も10代で親にはなったけど！なったけど？！」*
 
-First, calm down."
+"First, calm down."
 
 *「まずは落ち着け」*
 
-Why are you so calm?
+"Why are you so calm?!"
 
 *「何でアナタは落ち着いてるのよ？！」*
 
-We've already been down that road."
+"I've already passed that stage."
 
 *「既にその道は通り過ぎている」*
 
-"Ahhhhhh ～～～～............. So, this is why you haven't heard from me?"
+"Haahhh... So, that's why you haven't contacted me until now?"
 
 *「はぁあぁぁ～～～～…………。そう、これが言い出せなくて今迄連絡が無かった訳ね？」*
 
-No, it's not just ......, but .......
+"No, that's not the only reason, but..."
 
 *「いや、決して……それだけでは、無いんだけれど……ね」*
 
-Who's on the other side?
+"Who's the other party?"
 
 *「相手は？」*
 
-Ahhhhh, Mr. Henry and this ...... second son."
+"Ahhh, it's the second son of the Haggard family."
 
 *「あ～～～、ヘンリーさんとこの……次男」*
 
-Haggard! So it's the Haggards after all!
+"Haggard, huh?! So it really is the Haggard family!!"
 
 *「ハッガードね！結局ハッガード家なワケね！！」*
 
-...... I had him groomed last week."
+"...He got married last week."
 
 *「……先週婿入りして貰った」*
 
-What did your fathers say?
+"What did your in-laws say?"
 
 *「義父さん達はなんて？」*
 
-'He was surprised at first, but generally pleased. We have a good heir ......."
+"They were surprised at first, but overall they are happy. They think a good heir has been born..."
 
 *「最初は驚いてたけど概ね喜んでいる。良い跡取りが出来た……と」*
 
-I'm going to go to ...... so. Huh. ～～～～～....... That's right! Koch world? Country? Then it's not uncommon for kids to become parents at the age of 15-6!"
+"...I see. Haahhh... That's right! In this world? Country? It's not uncommon for kids to become parents at 15 or 16!"
 
 *「……そう。はぁ～～～～～……。そうよね！コッチの世界？国？じゃ15～6歳で親になる子、珍しくないもんね！」*
 
-'Well, ......, yes. I know."
+"Well... that's true. It is, but..."
 
 *「まあ……、そうだな。そうなんだけどな」*
 
-But, it's unsupervised."
+"But, that's a lack of supervision."
 
 *「でも、監督不行き届き」*
 
 &nbsp;
 
-No, I have nothing more to say back to you ......, I have one more thing to report!"
+"I have no words to say... or rather, there's another report to make!"
 
 *「いや、もう返す言葉も……と言うか、報告がもう一つあってな！」*
 
-He's trying to change the subject.
+"You're trying to change the subject."
 
 *「話題変えようとしてる」*
 
-No, no! This is another thing I was going to report from the beginning! Schools! We built a school!"
+"No, no! This was something I planned to report from the start! A school! I started a school!"
 
 *「いやいや！これも最初から報告する予定の事で！学校！学校を作ったんだよ！」*
 
-"Not icky ...... again? Surely you've talked about that before."
+"Suddenly... but then again, we have talked about it before."
 
 *「またイキナリ……でもないのか。確かに前からそんな話はしてたよね」*
 
-We found a good place. We found a good place, and the temple has agreed to fund a full-fledged educational institution, which is now under the jurisdiction of the temple government.
+"I found a good location. It's currently under the jurisdiction of the temple, but with our funding, they became enthusiastic about creating a proper educational institution."
 
 *「良い場所が見つかってね。今は神殿庁管轄なんだけど、此方からの資金提供で本格的な教育機関を作る事に神殿側も乗り気になってくれたんだよ」*
 
-You did a good job of convincing him.
+"You really persuaded them well."
 
 *「良く説得したわね」*
 
-We have decided to invest in equipment so that we can train priests as well. They need money and manpower to train their successors. Besides, we have always had a desire to educate the general public.
+"We decided to invest in the facilities so that priest training could also be conducted. They need both funds and manpower for successor training. Plus, they originally had an interest in education for the public."
 
 *「神官教育も併せて行えるように設備投資も此方が持つ事にしたんでね。向こうも後継者育成は資金も人手も必要だからな。それに元々、市井に対する教育への意欲もあった」*
 
-Where is it?"
+"Where is it located?"
 
 *「どこにあるの？」*
 
-It is a small village of less than 50 households called "De Kembel Village. It is located in the south of the Alconnen territory. It used to be the home of a viscount who was the bastard son of the Alconnen family.
+"It's in a small village called Dekkenbel, which has less than 50 households. It's located south of the Alconnen territory. It was the site of the viscount's mansion, who was a bastard child of the Alconnen family."
 
 *「デケンベル村って言って５0世帯も無い小さな村。アルコンネン領の南にある。アルコンネン家の庶子だった子爵家屋敷があった場所なんだ」*
 
-What about the location? There's nothing but wilderness around there, is there?"
+"How's the location? Isn't that area mostly wilderness?"
 
 *「場所的にどうなの？あの辺って周り荒野ばかりよね？」*
 
-We plan to build a north-south road around it. Above all, the Maguarat River flows at the foot of the city. We can make it a distribution center using the river.
+"We plan to develop a road that runs north and south, centered around there. More importantly, the Maguarat River flows at the foot of the mountain. It can become a center for distribution using the river."
 
 *「南北に通る街道をそこを中心に整備する予定だ。何よりマグアラット河が麓に流れてる。河を利用した流通の中心地にも出来る」*
 
-Well, I guess that means we're on our way.
+"I see, so you have a plan in place."
 
 *「成程、目処は立ってるって事ね」*
 
 &nbsp;
 
-One more thing. This is something that came out of a big aristocratic stronghold we took down a while ago. ......"
+"One more thing. A little while ago, we destroyed a major stronghold of the noble faction, and something came up..."
 
 *「もうひとつ。少し前に貴族派の大きな拠点を潰した時に出て来た物なんだが……」*
 
-I'm sorry! Are you still taking the initiative to do something dangerous?
+"Wait! Are you still taking risks on your own?!"
 
 *「ちょっと！まだ自分から率先して危ない事をやってるの？！」*
 
-No, no! That's not true, okay? We've hedged our bets, we've got the right people on board, and we've planned this carefully!"
+"N-no! That's not it?! I properly considered risk hedging and gathered personnel, and the plan was carried out cautiously!"
 
 *「い、いや！そんな事は無い、ぞ？！ちゃんとリスクヘッジを考えて人員も揃えたし計画も慎重に進めた！」*
 
-...... you weren't hurt, were you?"
+"...You haven't been injured, right?"
 
 *「……怪我はして無いのね？」*
 
-I didn't!"
+"Nope!"
 
 *「してない！」*
 
-I'm good with ......." Just don't get yourself involved in anything dangerous! Understood?"
+"...Then that's good. Just be sure not to get involved in dangerous things on your own! Understood?"
 
 *「……なら良いわ。くれぐれも自分から危ない事には首を突っ込まない！わかった？」*
 
-"............ got it."
+"...........Understood."
 
 *「…………わかった」*
 
-'.................. Huh, well, okay. So what did you come up with?"
+"..............Haah, well, that's fine. So, what came up?"
 
 *「………………はぁ、まあいいわ。で、何が出て来たの？」*
 
-I've got a lot of things to talk about, but here's the first one. I asked the High Elf who accompanied me to translate it. Let me hear what Tin has to say."
+"Various things came up, but first, this. I had a high elf translate it. Please let me know your thoughts."
 
 *「色々出て来たが、先ずはこれだ。同行したハイエルフに訳して貰った。スズの意見を聞かせてくれ」*
 
-Tell me anyway."
+"Just tell me."
 
 *「とりあえず教えて」*
 
-He said, "O thou who art about to enter the chasm, if thou art wise, lift up thy victory in mercy. The glory of the world is a beautiful circle around a cup filled with forgiveness and lamentation. Fire and water give birth to emptiness, and with the earth a rainbow. Only he who holds the golden key at the end of the rainbow shall have the door opened to him.
+"'To those who seek the void, if you possess wisdom, raise victory with mercy. Its glory shall become a beautiful ring, surrounding a cup filled with forgiveness and lament. Fire and water give birth to the void, and together with the earth, obtain the rainbow. Only those who hold the golden key at the end of the rainbow shall have that door opened.' Do you understand?"
 
 *「『狭間に至らんとする者よ、知恵あるならば慈悲を以って勝利を掲げよ。その栄光は美しき円環となり、許しと嘆きに満たされた盃を囲む。火と水は虚を生み、大地と共に虹を得る。虹の果てに金の鍵を持つ者のみ、その扉は開かれん』わかるか？」*
 
-I thought you were going to start talking about poetry out of the blue! What the heck is this? What the hell is this?
+"I thought you suddenly started reciting poetry! What the heck is that?!"
 
 *「いきなりポエムを語りだされたかと思ったわよ！なんのこっちゃ！よ！」*
 
-They say it is a copy of an inscription written in Batin on an ancient Bastium stone monument excavated about 100 years ago."
+"It seems to be a copy of an inscription written in Batin language on an ancient Bastium stone tablet that was excavated about a hundred years ago."
 
 *「100年程前に発掘された、古代バスティウムの石碑にバティン語で書かれた碑文の写しだそうだ」*
 
-What is your view, Mr. High Elf?"
+"What is the high elf's opinion?"
 
 *「ハイエルフさんの見解は？」*
 
-He said, "I think it's a description of something to do with the Creator God, but he doesn't even know what it indicates."
+"I believe it relates to the creation god, but they don't know what it signifies."
 
 *「創世神に関わる記述だと思うが、それが何を示しているのかまでは分からないそうだ」*
 
-'I wonder if there's an attribution in there? I kind of think so."
+"I wonder if it includes discussions about attributes? That's what I vaguely think."
 
 *「属性の話が入ってるのかな？とは何となく思うけどね」*
 
-We don't know for sure either way," he said. But more importantly, the stuff we've confiscated here is in bad shape."
+"Either way, the current situation is that we don't know anything for sure. More importantly, the items we seized here are dangerous."
 
 *「どちらにしても、ハッキリとした事は分からないのが現状だ。それよりも此処で押収したブツがヤバイ」*
 
-What now? Don't tell me it's an evil egg?"
+"What now? Please don't say it's the egg of an evil god or something!"
 
 *「今度は何？邪神の卵とか言わないでよ？」*
 
-It was a high-purity mana crystal. The structure of the crystalline body was not an ordinary one. What's more, what is caged in it is no ordinary magic power. That is pure divine power. It is definitely a 'divine treasure. There are five of them in all. They were stored with great care."
+"It's a high-purity mana crystal. The structure of the crystal was not normal. Moreover, the magic contained within is not ordinary either. That is pure divine power. Without a doubt, it's a 'divine treasure.' There are five types in total, and they were stored securely."
 
 *「高純度のマナクリスタルだ。結晶体の構造が普通の物じゃなかった。しかも籠められているものも普通の魔力じゃない。あれは純粋な神力。間違いなく『神宝』だ。それが全部で5種。厳重に保管されていたよ」*
 
-"Whoa, whoa, whoa, whoa, whoa, whoa, whoa, whoa, whoa, whoa, whoa, whoa, whoa. What is that? What does that mean?"
+"Wait, wait, what is that? What does it mean?"
 
 *「ちょっとちょっとナニそれ？どういう事？」*
 
-I decided to leave it with the Temple Authority. I decided to entrust it to the Temple Office. After all, it is a sacred treasure belonging to the five goddesses. It may have been taken from the ruins of some old temple.
+"We can't handle it here, so we decided to entrust it to the temple. After all, it's a divine treasure belonging to the five goddesses. It might have been taken from some ancient temple ruins."
 
 *「こちらでは手に余るのでね。神殿庁に預ける事にした。何しろ五柱の女神に属する神宝だ。どこか旧時代の神殿遺跡から持ち出された物かもしれないからな」*
 
-Yes, that would be the right thing to do. But what are they after, anyway?
+"Yes, that would be the right thing to do. By the way, what are they after?"
 
 *「そうね、そうするのが間違い無いでしょうね。それにしても、連中の狙いはなに？」*
 
-'Cause the main culprits are no longer with us. "The main culprits are no longer with us," he said. "Either way, it has to do with the inscription. That's what the High Elves think.
+"The main culprits are no longer around. Either way, the high elf suspects it might be related to the inscription."
 
 *「主犯格達はもう居ないからな。どちらにしても碑文に関係してるのではないか？と言うのがハイエルフの見立てだ」*
 
-I don't feel so good. Take it easy, Thor."
+"I don't have a good feeling about this. Don't push yourself too hard, Thor."
 
 *「余り良い感じは受けないわね。無理はしないでよトール」*
 
-'Oh, and you watch out, too. The survivors of the aristocratic faction of those ...... are still plotting."
+"Yeah, you be careful too. The remaining members of the noble faction are still scheming."
 
 *「ああ、お前も気を付けろ。連中……貴族派の生き残りは、まだまだ画策を続けている」*
 
-I know. We have more things to protect each other!"
+"I understand. We both have more to protect now!"
 
 *「分ってるわ。お互い守るものが増えているしね！」*
 
-That's what I'm talking about. ...... each other."
+"That's right. ...We both do."
 
 *「そういう事だ。……お互い、な」*
 
-...... well, ganbare grandpa."
+"......Well, good luck, grandpa."
 
 *「……まあ、ガンバレおじいちゃん」*
 
-"Wait a minute! If you say that, I'll--"
+"Wait! If you say that, then you—"
 
 *「ちょ！それ言ったら、おま――」*
 
-What? What?
+"What?! What did you say?!"
 
 *「は？！なんて？！」*
 
-.................. no, it's nothing, it's ......."
+"...........Nothing... at all..."
 
 *「………………いえ、なんでもない……です」*
 
@@ -266,45 +266,45 @@ What? What?
 
 &nbsp;
 
-That morning, I was called out of the blue.
+That morning, I suddenly received a summons.
 
 *その日の朝、突然お呼び出しを頂いた。*
 
-It is also said to have come directly from the school's chairman, Mr. Chancellor.
+Moreover, it was said to be directly from the chairman of the academy.
 
 *それも、学園理事長様、直々のものだと言う。*
 
 &nbsp;
 
-What is that? It was a complete surprise to me!
+What is that?! It's like a bolt from the blue!
 
 *何ソレ？！正に寝耳に水！*
 
-It's a little too sudden, and I'm a bit jumpy from this morning!
+It's just too sudden, and I'm freaking out from the morning!
 
 *ちょっとイキナリ過ぎて、朝からビビリまくりなんですけど！*
 
 &nbsp;
 
-If the dorm supervisor came to your dorm room first thing in the morning on the first day of the week and told you to go to the chancellor's office before class, that would normally freak you out, right?
+On the first morning of the week, when the dormitory supervisor came to my room and told me to go to the chairman's office before class, of course, I was scared!
 
 *週明けの朝イチで寮室に寮監様がやって来て、授業前に理事長室へ行く様に言われたら、そりゃ普通ビビるわよね？！*
 
-Karen, my roommate, smiled at my shivering and said, "Don't worry, she's a sweet person.
+Karen, who shares a room with me, smiled at my panic and said, "He's a kind person, so it'll be fine."
 
 *同室のカレンは、慄くわたしに笑顔を向けながら「優しい人だから大丈夫だよ」と言って来た。*
 
-What is it? Does Karen know about the chancellor?
+What? Does Karen know the chairman?
 
 *何だ？カレンは理事長の事知ってるのか？*
 
 &nbsp;
 
-Karen pushed me out of the room with a questioning look on her face.
+Karen pushed my back, urging me to leave the room quickly.
 
 *カレンは訝しむわたしの背中を押して、サッサと部屋から追い出した。*
 
-Well, if Karen says it's okay, I guess there's nothing to worry about. ......, the question is why were you called?
+Well, if Karen says it'll be fine, then it probably is, but... the problem is why I was called here.
 
 *まぁ、カレンが大丈夫言うなら心配無いんだろうけど……、問題は何で呼ばれたかなんだよねー。*
 
@@ -314,85 +314,85 @@ I have no idea.
 
 &nbsp;
 
-............ No. Really? Not at all?
+.........Wait, is that really true? Do I have no idea at all?
 
 *…………いや、本当か？全く無いか？*
 
-Have I done anything wrong?
+Did I do anything wrong?
 
 *わたしゃ何もやらかしてないか？*
 
 &nbsp;
 
-Thinking back, just the day before yesterday, are we destroying valuable historical sites? I also feel .......
+Now that I think about it, just the day before yesterday, did I destroy a valuable historical site? ...I feel like I did.
 
 *思えばつい一昨日、貴重な史跡を破壊している？……気もする。*
 
-Did you make a crater in the cobblestones of the city with your maid cos a while back? I also feel .......
+A little while ago, did I create a crater in the cobblestones of the town while dressed as a maid? ...I feel like I did.
 
 *ちょっと前にはメイドコスで街の石畳にクレーター作った？……気もする。*
 
-And right after that! A section of the city reduced to rubble? I also feel ......!
+And right after that! Did I turn a corner of the town into rubble? ...I feel like I did!
 
 *しかもその直後！街の一角を瓦礫にした？……気もする！*
 
-And just before that, he went AWOL and played human soccer or something? ...... also seems to be a good place to start!
+And just a bit before that, did I sneak out and play human soccer? ...I feel like I did?!
 
 *そんでそれよりちょい前には、無断外出の上、人間サッカーとかをかましてる？……気もしるっ？！*
 
 &nbsp;
 
-YABBA!
+Oh no!!
 
 *ヤッッバ！！*
 
-It's not like he's "doing it", is it?
+This isn't just "I messed up," is it?!
 
 *『やらかしてる』なんてもんじゃ無いんじゃん？！*
 
-Hey, hey! What are you doing?
+Hey! What am I doing?!
 
 *ちょっとぉ！何やってんのよ自分んン！*
 
 &nbsp;
 
-This is not some kind of absolution event, is it?
+Could this be some kind of judgment event?!
 
 *コレってまさか断罪イベント的なヤツではあるまいね？！*
 
-Wheeee!
+Yikes!!
 
 *うひぃ〜〜〜！*
 
-I wonder if Bibi or anyone else would like to go with me!
+I wish Bibi would come with me!
 
 *ビビとか一緒に行ってくれないかしらん！*
 
-What, go alone?
+Huh? Go alone, you say?
 
 *え？1人で行けって？*
 
-Oooh yaaaah~~~.............
+Ughhhh...
 
 *ぅにゃやゃあぁ〜〜〜…………。*
 
 &nbsp;
 
-I was scared to death by myself.
+For now, I panicked all by myself.
 
 *取り敢えず1人で盛大にビビリ倒した。*
 
-Nevertheless, we came to a building called "Onyashiki," which is separate from the main school building, where the Chancellor's office is located. ......
+Even so, I came to the building called "The Mansion," which is separate from the main school building, where the chairman's office is located...
 
 *それでも理事長室があると言う、本校舎とは別の『御屋敷』と呼ばれる建物へとやって来たわけで……。*
 
 &nbsp;
 
-This place is literally a former nobleman's mansion that has been renovated.
+This place is literally a remodeled mansion of a former noble.
 
 *ココは文字通り、元お貴族様のお屋敷を改装したものなだそうな。*
 
-It is a two-story stone mansion, and I understand that it is a rather grand building, but I don't have the luxury to appreciate its massive architecture at the moment.
+It's a stone two-story mansion, and while I can tell it's quite an extravagant building, I don't have the luxury to appreciate its heavy architectural style at this moment.
 
 *石造りの二階建てのお屋敷で、かなり豪勢な建造物なのは分かるんだけど、今のわたしにはその重厚な建築様式に感じ入るだけの余裕などは欠片も無い。*
 
@@ -400,201 +400,201 @@ It is a two-story stone mansion, and I understand that it is a rather grand buil
 
 &nbsp;
 
-I fearfully went in front of the heavy front door, where I found a butler-like, romance-gray, dandy uncle waiting for me. After confirming my name, the butler opened the door and led me inside.
+Nervously, I approached the heavy front door, and a dandy gentleman with romance-gray hair, resembling a butler, was waiting. The butler confirmed my name and opened the door, guiding me inside.
 
 *恐る恐る重みのある玄関扉の前で行けば、執事然としたロマンスグレーでダンディなおじ様が待っていた。執事様はわたしの名前を確かめると扉を開けて、中へと案内してくれる。*
 
-When you go through the door, you will find yourself in the entrance hall of a large, picturesque mansion.
+As I stepped through the door, I found myself in a large entrance hall that looked like something out of a painting.
 
 *扉を潜るとそこは絵に描いたような大きなお屋敷の玄関ホール。*
 
-Again, is this a stunt to put pressure on me?
+Is this also a pressure-inducing setup for me?!
 
 *ここでも、わたしにプレッシャーをかける演出か？！*
 
 &nbsp;
 
-As we were led further in, we found ourselves in front of a massive door that looked like the office of the owner of the building.
+As I followed the butler deeper inside, I arrived at a heavy door that looked like the office of the mansion's master.
 
 *更に案内されるままに奥へと進めば、いかにも館主の執務室といった体の重厚な扉の前。*
 
-The butler knocked on the door and said, "You have arrived," and a voice echoed from inside, "Please come in.
+The butler knocked on the door and said, "You may enter," and a voice echoed from within, saying, "Let her in."
 
 *執事様が扉をノックして、「いらっしゃいました」と声をかければ「入って頂きなさい」と中から響く声。*
 
-There is already a lot of tension at this point!
+The tension at this point was off the charts!
 
 *もうこの時点での緊張感がハンパ無い！*
 
 &nbsp;
 
-Once again, the butler opened the door and led us inside, and as you could see, it was a nobleman's office!
+When the butler opened the door and led me inside, it was indeed an office that looked like it belonged to a noble!
 
 *改めて執事様が扉を開いて中へと導かれれば、やはり見るからにお貴族様の執務室！*
 
 &nbsp;
 
-'Hi, I'm glad you're here. We've been waiting for you."
+"Ah, I'm glad you came. I've been waiting for you."
 
 *「やあ、よく来てくれたね。待っていたよ」*
 
 &nbsp;
 
-I was told by the large, stately office desk in front of me that I was in charge of the office.
+A voice came from behind a large, imposing desk, filled with presence.
 
 *と、正面に置かれた大きくて重厚感ハンパ無い執務机から、張りのあるお声が掛けられた。*
 
-There is a large window behind the desk, and although I could make out a figure sitting there, the backlight did not allow me to see the face clearly.
+There was a large window behind the desk, and I could see the silhouette of the person sitting there, but I couldn't see their face due to the backlight.
 
 *その執務机の後ろにはデッカイ窓が在り、そこに座る人影は分かるが、逆光でそのお顔までは良く見えない。*
 
 &nbsp;
 
-I'm Susie Cloud, at your service. It is an honor to meet you.
+"I am Suzy Cloud, here at your summons. It is an honor to meet you."
 
 *「お呼びに預かりましたスージィ・クラウド、です。お目にかかれて光栄でござい、ます」*
 
 &nbsp;
 
-As I greeted him with a deep bow, I felt the person sitting at the desk get up from his chair.
+I bowed deeply and greeted, and I sensed the person behind the desk standing up.
 
 *そのまま深く礼をして挨拶をさせて頂くと、机に座られていた方が椅子から立ち上がった気配がする。*
 
-I'm going to get some kind of punishment here! Will they give me some kind of punishment here?
+Oh no! Are they going to announce some kind of punishment here?!
 
 *う！ココでなにか処分とかを言い渡されちゃうのか？！*
 
-Oh no! I'm getting even more nervous! I can't look up!
+Yikes! My tension is skyrocketing! I can't lift my face!
 
 *ヤバイ！緊張が更にマシマシになりゅ！顔が上げらんねぇぇ！*
 
 &nbsp;
 
-You look as good as ever. I'm glad to see you're not tired from your work."
+"You still look lively as ever. It's good to see you haven't shown signs of fatigue from work."
 
 *「相変わらず元気そうだ。仕事の疲れは出ていなさそうで何よりだよ」*
 
-"Oh, I'm sorry?"
+"Th-thank you?"
 
 *「お、恐れ入りま、す？」*
 
 &nbsp;
 
-Hmm? Did you get a workout unexpectedly?
+Huh? Did they just express concern for me?
 
 *ん？思わず労われた？*
 
-Huh? Did I say "as usual"? Did I meet you somewhere?
+Wait, did they say "as ever"? Have we met somewhere before?
 
 *あれ？「相変わらず」とか言った？どっかでお会いしたっけ？*
 
-I mean, I've heard that ...... voice somewhere? I think I've heard it somewhere before.
+And this voice... it feels familiar...
 
 *てか、どっかで聞いた事ある……声？のような気が。*
 
-While I was thinking about that, I heard light footsteps approaching.
+As I was lost in thought, light footsteps approached.
 
 *そンな事を考えてる間も、軽ろやかな足音が近付いて来る。*
 
-Every time that sound gets closer, the question mark increases in my head.
+With each step, more question marks popped up in my mind.
 
 *その音が近づいて来る度に、頭の中でクエスチョンマークがポンポンと増える。*
 
 &nbsp;
 
-Just look up and come this way, please."
+"First, please raise your head and come over here."
 
 *「取りあえず顔を上げて、こちらへどうぞ」*
 
-Thank you very much.
+"Ah, thank you?"
 
 *「あ、ありがとうございま、す？」*
 
 &nbsp;
 
-When I looked up, the person was standing by the sofa in the office, beckoning me to come over here.
+When I lifted my head, the person was standing next to a sofa in the office, beckoning me to come over.
 
 *顔を上げるとその方は、執務室内に設置されているソファーの脇に立ち、こちらへおいでとわたしを手招きしていた。*
 
-As I sat down on the sofa as invited, the butler was asking the master of this room, "What would you like to drink?
+As I sat on the sofa as invited, the butler asked the master of the room, "What would you like to drink?"
 
 *誘われるままにソファーへ座ると、執事様がこの部屋の主様に「お飲み物は如何いたしましょうか」と聞いている。*
 
-The person said, "I'll have a coffee, please. Would you have preferred milk tea ...... for her?" I replied, "Please, sir," in response to the question.
+The person replied, "I'll have coffee. Is milk tea alright for her?" I responded, "Yes, please."
 
 *その方は、「コーヒーを頼む。彼女にはミルクティー……で良かったかな？」と問われたので、「お願い致します」と答えをお返した。*
 
 &nbsp;
 
-When I sat down on the sofa and faced him, I could tell that he was still young. The word "Chancellor" conjures up images of a man with a white beard and a certain amount of age on his face. Like Howard's dad!
+As I sat on the sofa facing them, I could tell the chairman was still quite young. When I think of the word "chairman," I imagine someone with a white beard who has aged a bit, like Howard's dad!
 
 *ソファーに座って向き合うと、理事長様はまだお若い事がよく分かる。『理事長』と言う言葉のイメージだと、白いお髭でも蓄えたそれなりに年輪を刻まれた方を想像していた。ハワードパパみたいなね！*
 
-But it wasn't, and he was probably still in his 30s?
+But that wasn't the case; they were probably still in their thirties?
 
 *でもそんな事は無く、多分まだ30代くらい？*
 
 &nbsp;
 
-His chestnut-colored hair is neatly coiffed with a hairdressing product, and he wears a suit of good quality.
+They had neatly styled chestnut hair and were wearing a high-quality suit.
 
 *栗色の髪を整髪剤て綺麗に整え、質の良そうのスーツを身に付けておられる。*
 
-Her slightly droopy gray eyes are very gentle and .......
+Their slightly droopy gray eyes looked very gentle...
 
 *少し垂れ気味の灰色の目はとても優しげで……。*
 
-......? Those eyes?
+...Huh? Those eyes?
 
 *……ン？この目？*
 
 &nbsp;
 
-No, I want to thank you for your hard work the day before yesterday. We were very surprised by the results, which exceeded our expectations."
+"Well, you must have been tired the day before yesterday. We were quite surprised by the results, which exceeded our expectations."
 
 *「いや、一昨日はお疲れさまだったね。想定以上の成果で我々は大変驚かされたよ」*
 
 &nbsp;
 
-The Chancellor sipped from the cup served before him and then cut him off like that.
+The chairman took a sip from the cup placed in front of them and started the conversation like that.
 
 *理事長様は、目の前に出されたカップに口を付けてから、そんな風に切り出された。*
 
 &nbsp;
 
-"Oh, I'm right, aren't I?"
+"Oh, was it?"
 
 *「あ、そでしたでしょう、か？」*
 
-Of course. "Of course," he said, "not only did we recover a lot of important evidence, but we also captured Ghol, the leader of the organization, and even destroyed it, which no one could have imagined. "It was an accomplishment that no one could have imagined, not only the recovery of numerous pieces of serious evidence, but also the capture of the leader, Ghol, and even the destruction of his organization.
+"Of course! No one could have imagined not only the recovery of numerous significant evidence but also the capture of the leader, Goul. Moreover, the complete destruction of that organization was beyond anyone's imagination."
 
 *「当然だよ。まさか数多の重大な証拠品の回収のみならず、首領たるゴゥルの捕縛。あまつさえその組織の壊滅など、誰も想像だに出来なかった成果だからね」*
 
 &nbsp;
 
-Hmmm...I still recognize these eyes.
+Hmm, I definitely recognize those eyes.
 
 *う〜〜む、やっぱりこの目に見覚えがあるな。*
 
-And this voice is also available at .......
+And this voice too...
 
 *それにこの声も……。*
 
-Where? Where was it?
+Where have I seen or heard this before?
 
 *どこだ？どこでだっけ？*
 
 &nbsp;
 
-The tension that had existed up to that point was nowhere to be found.
+All the tension I had felt earlier seemed to vanish.
 
 *それまであった緊張感などどこへやら。*
 
-As I was eagerly trying to turn over my buried memories, I suddenly noticed a vase of flowers on the table.
+As I desperately tried to dig through my buried memories, I suddenly noticed a vase placed on the table.
 
 *埋もれている自分の記憶をひっくり返そうと躍起になっていると、ふとテーブルの上に置かれている花瓶が目に入った。*
 
-I was aware of the fragrance of the flowers that wafted over me.
+I became aware of the fragrance of the flowers wafting through the air.
 
 *漂って来るその花の香に気が付いたからだ。*
 
@@ -604,121 +604,119 @@ Roses.
 
 *薔薇だ。*
 
-In that vase were lovely white and pink roses.
+The vase held cute white and pink roses.
 
 *その花瓶には、可愛らしい白やピンクの薔薇の花が活けてあるのだ。*
 
 &nbsp;
 
-Nice work, huh?"
+"Beautiful, aren't they?"
 
 *「いい出来だろ？」*
 
-Roses this time of year?
+"Roses at this time of year?"
 
 *「この時期に薔薇です、か？」*
 
-They were grown in the green house. I don't think they compare at all to the ones in my garden."
+"They were grown in a greenhouse. Compared to the ones in the garden, I think they are just as good."
 
 *「グリーンハウスの中で育てた物だよ。庭の子達と比べても、全く遜色は無いと思うんだ」*
 
 &nbsp;
 
-The chairman of the board noticed where I was looking and came to me and said so.
+The chairman noticed my gaze and said that.
 
 *理事長様は、わたしの視線の先に気が付いてそう言って来た。*
 
-Yes, I know, now is not the time for a garden rose garden. If there is, it will be something grown in a greenhouse.
+That's right; it's not the season for the rose garden now. If there are any, they would have to be grown in a greenhouse.
 
 *そうだよね、今は庭の薔薇園は時期じゃないものね。あるとしたら温室で育てた物になる。*
 
-Oh yeah, roses. ...... A rose garden. .......
+So, roses... a rose garden...
 
 *そうか薔薇ねぇ……。薔薇園かぁ……。*
 
-Hm? The rose garden?
+Huh? A rose garden?
 
 *うん？薔薇園？*
 
 &nbsp;
 
-The 'old man' in the rose garden!"
+"The gardener of the rose garden, 'big brother'!!"
 
 *「薔薇園の庭師の『おにいさん』！！」*
 
-'Oh? Didn't you notice?"
+"Oh? You didn't notice?"
 
 *「おや？気が付いていなかった？」*
 
 &nbsp;
 
-If you look closely again, that's right! It's the "big guy" who is the gardener in the rose garden, isn't it? This guy!
+Upon closer inspection, it was indeed the "big brother" who was the gardener of the rose garden! This person!!
 
 *改めてよく見ればそうだよ！薔薇園の庭師をしてる『おにいさん』じゃないか！この人！！*
 
-Why are you here, this "big guy"?
+What are they doing here, this "big brother"?!
 
 *何でこんなトコに居んの、この『おにいさん』？！*
 
-What? The chairman of the board?
+Huh? The chairman?!
 
 *え？理事長？！*
 
 &nbsp;
 
-'Oh no, I recognized Karen at first glance. I thought you would recognize me right away too. ............ Ha-ha-ha! I guess it didn't work out that way!"
+"Well, Karen noticed right away. I thought you would figure it out quickly too... Ahahaha! But it seems that wasn't the case!"
 
 *「いやぁ～、カレンは一目で気が付いたからね。君も直ぐに分かると思っていたんだけど…………。あっははは！そうは行かなかったみたいだね！」*
 
 &nbsp;
 
-Gunnnnnnnnn......I certainly am unworthy of myself for not noticing it right away, but the sight of you smiling happily is strangely frustrating!
+Grrr... I feel a bit frustrated that I didn't notice right away, but their cheerful laughter is oddly annoying!
 
 *ぐぬぬぬぬ……確かに直ぐに気付かなかった自分が不甲斐ないが、楽しそうに笑うそのお姿が妙に悔しい！*
 
-But! When I first came here, I was so scared that I was going to be condemned! I was so nervous about being condemned that I didn't have time to check your face. ......
+But! When I first came here! I was so nervous about being judged that I didn't have the luxury to check their face... I mean, I couldn't!
 
 *でも！此処へ来た当初は！断罪を言い渡されるのかビクビクしてたのだから、お顔を確認する余裕なんて無かったワケで……ワケで！*
 
-Aren't you laughing a little too much?
+Are they laughing too much?
 
 *ちょっと笑い過ぎでないですの？*
 
 &nbsp;
 
-Nuh ....... The butler also looked like he was having a good time.
+Ugh... The butler also has a face that says, "What a hassle."
 
 *ぬぅ……。執事の方も、やれやれといった顔をしておられる。*
 
-Could it be that I'm being played?
+Could it be that I'm being toyed with?
 
 *コレってもしかして遊ばれている？*
 
 &nbsp;
 
-Now, enough of the shenanigans, let's get down to business.
+"Now, let's move on from the playful banter to the main topic."
 
 *「さて、戯れはこのくらいにして本題に移ろうか」*
 
 &nbsp;
 
-I knew I was being played!
+I was definitely being toyed with!
 
 *やっぱり遊ばれていたぁ！*
 
 &nbsp;
 
-In fact, I'd like to ask you to escort me."
+"Actually, I would like to ask you for a bodyguard request."
 
 *「実は君に、護衛依頼をお願いしたいと考えている」*
 
 &nbsp;
 
-The Chancellor, after taking a sip of coffee, cut him off like that.
+After taking a sip of coffee, the chairman started the conversation like that.
 
 *理事長様は、コーヒーを一口飲んだ後、そんな風に切り出してきた。*
-
-
 
 &nbsp;
 
@@ -730,7 +728,6 @@ Thank you for reading.
 
 &nbsp;
 
-Thank you for your buzz and your rating! We are always encouraged!
+Thank you for your bookmarks and evaluations! They are always a source of encouragement!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
-

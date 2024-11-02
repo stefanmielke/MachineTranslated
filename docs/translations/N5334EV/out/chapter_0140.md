@@ -1,288 +1,288 @@
-# 128 Fluke's Clog
+# Chapter 128: Fluke's Tantrum
 
 ## 128話　フルークの地団駄
 
-Fuck! Fuck!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!"
+“Damn it!! Damn it!!!”
 
 *「クソが！！くっそがっっ！！！」*
 
 &nbsp;
 
-The large desk is kicked repeatedly, and Fluke swears, his well-toned face contorted. The thick, ornately decorated office desk shakes and clatters several times each time.
+Fluke kicked the large desk repeatedly, his well-groomed face contorting as he cursed. The thick, lavishly decorated desk shook and made noise each time.
 
 *大ぶりの机を何度も蹴り上げ、フルークがその整った顔を歪めて悪態をつく。豪華な装飾を施した厚みのある執務机が、その度に何度も揺れては音を出す。*
 
 &nbsp;
 
-Don't fuck with me! You fucking brat!
+“Don’t mess with me!! You damn brat!!!”
 
 *「ふっざけんじゃねぇぞ！！クソ餓鬼が！！！」*
 
 &nbsp;
 
-Why is there a brat like that?
+What the hell is that dangerous brat doing here!?
 
 *なんだってあんなヤバそうな餓鬼が居やがる！*
 
-What the hell is that guy?
+What is he!?
 
 *何なんだアイツは！？*
 
-If Koch had pulled out a knife, he would have been absolutely killed.
+If I had drawn my knife, I would have definitely been done for.
 
 *コッチがナイフを抜いたら絶対にやられていた。*
 
-That son of a bitch was trying to get me to pull the knife out from the beginning!
+That bastard was provoking me to draw my knife from the very beginning!
 
 *あの野郎、俺がナイフを抜くように最初から煽って来やがったんだ！*
 
-You gotta be kidding me! You son of a bitch!
+This isn’t a joke! Damn it!!
 
 *冗談じゃ無ぇぞ！チクショウめ！！*
 
 &nbsp;
 
-Don't let them get to you so easily, you scum! You scum!"
+“Don’t let yourselves get taken down so easily, you worthless scum!”
 
 *「テメェらも簡単にやられてんじゃねぇよ！このクズ共がっ！」*
 
-Hi! I'm sorry."
+“Y-yes! I’m sorry!”
 
 *「ひぃ！す、すいません」*
 
 &nbsp;
 
-He grabbed a glass on the desk and threw it at the men lying flat around the desk in an irritated manner.
+Grabbing a glass from the desk, he threw it at the men who were bowing around the desk in irritation.
 
 *机の上に乗っているグラスを掴むと、苛立った様に机周りで平伏している男達に投げつけた。*
 
-A thick glass hit one man on the head, scattering amber liquid and sizable ice cubes around the area and creating a stain on the long-haired carpet.
+The thick glass hit one man on the head, scattering amber liquid and larger ice cubes around, staining the long-haired carpet.
 
 *厚みのあるグラスが1人の男の頭に当たり、琥珀色の液体と大きめの氷が辺りに散らばって、毛足の長い絨毯に染みを作った。*
 
 &nbsp;
 
-What's going on with the janitor over there? Why isn't he there?
+“What’s going on with that manager over there?! Why isn’t he here?!!”
 
 *「あそこの管理人はどうなってる？！なんで居ねぇ？！！」*
 
-I was, maybe, because you said you had a shipment last week ......"
+“W-well, I heard there was a shipment last week…”
 
 *「た、多分、先週は出荷があったと言っていたんで……」*
 
-I thought you'd be in and out of the racetrack by now ......"
+“I thought he might be hanging around the racetrack…”
 
 *「今頃はレース場に入り浸ってるかと……」*
 
-"Rubbish! Kuso! I don't care who it is! Get that old hag out of here! Now! Go! You motherfucker!
+“You scum! Damn it!! I don’t care who! Bring that old man or woman here!!! Right now! Go!! You bastard!!!”
 
 *「屑がっ！クッソ！！誰でもいい！あのジジィババァを連れて来い！！！今すぐだ！行け！！このヤロウ！！！」*
 
 &nbsp;
 
-With a yell from Fluke, the four men who had been lying flat on the floor went to the door in their own rush and left with a flurry of footsteps.
+With Fluke’s shouting, the four men who had been bowing on the floor rushed to the door, their footsteps echoing in a hurry as they left.
 
 *フルークの怒鳴り声と共に、床に平伏していた4人の男が我先にとドアに向かい、慌ただしく足音を響かせて出て行った。*
 
 &nbsp;
 
-Parker!
+“Parker!!”
 
 *「パーカー！！」*
 
-Hey, hey!
+“Y-yes!!!”
 
 *「へ、へい！！！」*
 
 &nbsp;
 
-The young man standing by the door, his face paling from Fluke's sword fight, suddenly shakes and straightens his posture at the call.
+A young man standing pale-faced next to the door, startled by Fluke’s outburst, jumped and straightened his posture at the sudden call.
 
 *ドアの横でフルークの剣幕に顔を青褪めさせて立っていた若い男が、突然の呼びかけに、ビクリと盛大に身体を震わせ姿勢を正す。*
 
 &nbsp;
 
-"Hey, Parker, go get the twin kids from the shelter."
+“Parker, you bring those twin brats from the facility here.”
 
 *「パーカーてめぇ、施設の双子のガキを連れて来い」*
 
-What? Oh, me?"
+“W-what? Me?”
 
 *「え？お、俺がですか？」*
 
-You son of a bitch! Don't you get it? Don't you understand what I'm saying? Do you not understand what I'm saying?
+“This damn thing!! Of course it’s you?! Don’t you understand what I’m saying?!! Huh?!!”
 
 *「このクソが！！あったりめぇだろうがっ？！オレがそう言ってんのが分んねぇのか？！！ああ？！！」*
 
-Hiccup! I'm so sorry!
+“Yikes! I-I’m so sorry!!!”
 
 *「ひっ！も、申しわけありません！！！」*
 
 &nbsp;
 
-He kicks the desk as hard as he can, and the heavy desk moves slightly with a violent noise.
+Kicking the desk hard, the heavy desk moved slightly with a loud noise.
 
 *思い切り机を蹴り上げ、重量のある机が激しい音と共に僅かに動く。*
 
-At the sound, Parker was startled and quickly turned his head.
+At that sound, Parker instinctively flinched and covered his head.
 
 *その音にパーカーは、ビクリと咄嗟に頭を抱える。*
 
 &nbsp;
 
-Parker had never seen Fluke express so much anger.
+This was the first time Parker had seen Fluke show such rage.
 
 *パーカーは、フルークがこれほどの怒りを露にする所を始めて見た。*
 
-Parker was a familiar face to him, always dressed in good clothes, surrounded by women, and surrounded by his generous brother.
+He was used to seeing Fluke in nice clothes surrounded by women, acting like a generous older brother.
 
 *いつも良い服を着て女達に囲まれ、気前の良い兄貴分の姿が、パーカーには見慣れた顔だった。*
 
-Still, he used women for business and used them up with impunity and turned them into money. Parker, too, had seen many women disappear in this way. To Fluke, women are nothing more than tools.
+Even so, he used women for business and casually discarded them for money. Parker had seen many women disappear like that. To Fluke, women were nothing more than tools.
 
 *それでも、女を商売に使い、平気で使い潰して金に換える。パーカーも、そうして消えて行った女を何人も見ていた。フルークにとっては女は、道具以外の何物でもないのだ。*
 
-I also knew that he was a bad person if I made him angry.
+He understood that Fluke was someone dangerous when angered.
 
 *怒らせればヤバい人だと言うのも分かっていた。*
 
-I shudder just to think of the woman who tried to escape and the rampage that ensued when she directly shagged the man who took her out.
+Just remembering how he had violently dealt with the man who had tried to take a woman away made him shiver.
 
 *逃げようとした女と、連れ出した男を直接シメた時の暴れ方は、思い出すだけで震えが来る。*
 
-In the end, Parker was never told what happened to the two after that, but as far as he was concerned, it was easy to imagine that it was not a good thing.
+In the end, he hadn’t heard what happened to those two afterward, but it was easy to imagine it wasn’t anything good.
 
 *結局、その後二人がどうなったのかをパーカーは聞かされていないが、碌な事になっていないのは容易に想像がついた。*
 
 &nbsp;
 
-Now, I could not have imagined a moment ago that the wrath of that terrible fluke would be directed at me in this way.
+Now, the terrifying Fluke’s anger was directed at him, something he couldn’t have imagined just a little while ago.
 
 *今、その恐ろしいフルークの怒りが、こうして自分に向くなど、ちょっと前には想像も出来なかった。*
 
 &nbsp;
 
-You know what? Do you know how much it cost me to get you and your loaned soldiers out of jail because of your mismanagement? Aah!
+“Listen up! Do you have any idea how much it cost to get you and the soldiers I lent out of the detention center because of your screw-up? Huh?!!”
 
 *「イイか？お前の不始末で、テメェと、貸し出した兵隊を留置所から出すのに幾らかかったと思ってんだ？ああ？！！」*
 
-I'm sorry!
+“I-I’m sorry!”
 
 *「す、すいません！」*
 
-I told you we're short on staff! You're making me spend extra time and money! You son of a bitch! Help yourself! You rag and scrap!
+“I told you we’re short on manpower!! You made me spend unnecessary time and money! You damn thing!! Be a little useful! You worthless piece of trash!!”
 
 *「ただでさえ人手不足だって言ってんだろが！！余計な手間と金かけさせやがって！このクソが！！ちったぁ役に立て！この襤褸カスが！！」*
 
-Also! I'm sorry!
+“I-I’m so sorry!!”
 
 *「も！申し訳ありません！！」*
 
-I'll put two or three guys on you who are available. Listen, make sure you bring them in before the sun goes down! You understand? Before the sun goes down!
+“I’ll send 2 or 3 guys who are free. Listen, you must bring them back before sunset! Got it?! Before sunset!!”
 
 *「手が空いているヤツ2～3人は付けてやる。いいか、陽が沈む前には必ず連れて来い！分かったか？！陽が沈む前だ！！」*
 
-Yes!
+“Y-yes!”
 
 *「は、はい！」*
 
-"If you know what you're doing, get out of here! You're a fucking retard!
+“If you understand, then get the hell out of here! You slowpoke!!!”
 
 *「分ったンならトットと行けぇ！このノロマがっ！！！」*
 
-Is! Yes!!!!"
+“Y-yes!!!”
 
 *「は！はい！！！」*
 
 &nbsp;
 
-Parker left the room in a great hurry, his feet caught in the carpet.
+Parker hurriedly left the room, tripping over the carpet.
 
 *パーカーが、絨毯に足を取られながら大慌てで部屋を出て行った。*
 
-Staring at the thick door through which the men had left in a great hurry, Fluke clicked his tongue loudly and swore at no one.
+Fluke clicked his tongue loudly, glaring at the thick door the men had rushed out of, cursing under his breath to no one in particular.
 
 *男達が大慌てで出て行った厚手のドアを睨みつけながら、フルークは大きく舌打ちをして、誰に言うでもなく悪態をつく。*
 
 &nbsp;
 
-It's really frustrating.
+It was truly frustrating.
 
 *実に苛立たしい。*
 
-Originally, I had planned to forcefully take her away today and enjoy myself as much as possible.
+Originally, he had planned to forcibly take that girl away today and enjoy himself to the fullest.
 
 *本来であれば、今日そのまま強引にあの娘を連れ去って、思う存分楽しむつもりでいたのだ。*
 
-So what is this?
+What the hell is this mess?!
 
 *それがなんだこの有様は？！*
 
-It was as if I had been having fun with my minions during the day, envisioning the pleasures of the night.
+It felt like a lie that he had been daydreaming about tonight’s pleasures and celebrating with his subordinates during the day.
 
 *昼間、夜の楽しみを思い描き、手下共と浮かれていた事が嘘のようだ。*
 
-It's all because of that brat!
+All of this was because of that brat!!
 
 *それもこれも全部あの餓鬼のせいだ！！*
 
 &nbsp;
 
-In a fit of rage, he stomped the floor as hard as he could.
+In anger, he stomped hard on the floor.
 
 *怒りに任せ、思い切り床を踏みつけた。*
 
-Thud! and a vibration is felt in the area.
+The thud reverberated around him.
 
 *ドスン！と辺りに振動が伝わる。*
 
 &nbsp;
 
-Being able to play with the girls in Milia is something that would not normally be possible.
+To be able to play with a student from Miria was something that was normally unthinkable.
 
 *ミリアの女生徒で遊べるなど、普通では考えられない事だ。*
 
-The story goes that even the colorful street people in Dekenberger have never taken them on.
+Even the people from Dekkenberg's red-light district said they had never dealt with them.
 
 *デケンベルの色街の連中でさえ、相手にした事は無いと言う話だ。*
 
-In fact, they are even evasive about messing with Milia's students.
+In fact, they seemed to avoid getting involved with Miria’s students altogether.
 
 *むしろ、連中はミリアの生徒に手を出す事を、忌避している節もある。*
 
-It came tumbling down from the other side.
+Yet, that girl had come rolling into his lap.
 
 *それが、向こうから転がり落ちて来たのだ。*
 
-For Fluke, there is no reason to stay out of it.
+For Fluke, there was no reason not to take action.
 
 *フルークにとって、手を出さない理由が無い。*
 
 &nbsp;
 
-And just when I was finally going to get that today, that brat!
+And just when he was finally about to get his hands on her, that brat had to show up!!
 
 *それが今日やっと手に入るって時にあの餓鬼が！！*
 
 &nbsp;
 
-A heavy vibration echoes around the area again as it is trampled on.
+Stomping again, the heavy vibrations echoed around.
 
 *踏みつけられ、再び重い振動が辺りに響く。*
 
 &nbsp;
 
-But I also understand that there is a part of me that is frightened when I remember those eyes.
+However, he also understood that he was trembling at the memory of that gaze.
 
 *だが、あの目を思い出すと怯む自分が居る事も理解している。*
 
-That is even more annoying.
+That made him even more frustrated.
 
 *それが尚の事腹立たしい。*
 
 &nbsp;
 
-Shit! Fuck! and Fluke continues to stomp the floor with all his might, over and over again.
+Damn it! Damn it!! Fluke continued to stomp on the floor with all his might.
 
 *クソが！クソが！！とフルークは、何度も何度も床を力の限り踏みつけ続ける。*
 
@@ -290,11 +290,9 @@ Shit! Fuck! and Fluke continues to stomp the floor with all his might, over and 
 
 &nbsp;
 
-Downstairs, Parker, following Fluke's instructions to gather people, looked up, his face colorless, at the top of his head, which continued to echo with a heavy sound.
+Downstairs, Parker was gathering people according to Fluke’s orders, looking up at the heavy sounds echoing above him, his face drained of color.
 
 *階下では、フルークの指示に従い人を集めるパーカーが、重い音を響き続かせる頭の上を、顔の色を無くしながら見上げていた。*
-
-
 
 &nbsp;
 
@@ -306,7 +304,6 @@ Thank you for reading.
 
 &nbsp;
 
-Thank you for your buzz and your rating! We are always encouraged!
+Thank you for your bookmarks and evaluations! They are always a great encouragement!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
-

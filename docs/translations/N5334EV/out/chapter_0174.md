@@ -1,132 +1,132 @@
-# 162 Episode 162 Bouncers.
+# Chapter 162: Bouncer
 
 ## 162話　バウンサー
 
-From all over the place, people were giving me stares.
+From all around, rude and scrutinizing gazes are being cast.
 
 *そこら中から、ジロジロと不躾な視線が投げ掛けられる。*
 
-This is a bar in the middle of nowhere.
+This is clearly a rundown tavern, as if to say it all.
 
 *ここは、如何にもと言いたげな見るからに場末の酒場の中だ。*
 
-I know it doesn't look like such a place.
+I know that it is not a place suited for someone like me.
 
 *そんな場所に似つかわしく無いのはわかっている。*
 
-After all, this is not a place where such a pretty maiden would come with her.
+After all, this is not a place where such a delicate maiden would come.
 
 *なんと言っても、こんな可憐な乙女が連れ立って来る場所では無いワケで。*
 
 &nbsp;
 
-More importantly, they are not dressed in girlish attire right now, such as Milia uniforms and dresses.
+However, right now, I am not dressed in a cute outfit like a school uniform or a dress.
 
 *もっとも今は、ミリアの制服やドレスとかの女の子らしい装いでいるわけでは無い。*
 
-They wear light leather gear when they go exploring in the forest.
+I am clad in light leather gear for exploring the forest.
 
 *森へ探索に入る時の革の軽装備を身に纏っているのだ。*
 
-They are our battle uniforms so to speak, so they shouldn't be floating around in a place like this!
+In other words, this is our combat outfit, so I shouldn't stand out in a place like this!
 
 *言わばわたし達の戦闘服な訳だから、こんな場所でも浮いてはいない筈！*
 
-And yet! If all these beautiful girls walk together, it may be inevitable that they will stand out.
+Even so! When such beautiful girls walk together, it is only natural that they attract attention.
 
 *それでも！こんな美少女達が揃って歩けば、目立ってしまうのは必然かもしれない。*
 
 &nbsp;
 
-In any case, all around us, whether we looked to the right or left, were a bunch of sweltering bastards!
+After all, everyone around here, whether I look to the right or left, is nothing but rough-looking brutes!
 
 *なにしろ、辺りにいるのは右を向いても左を見ても、どいつもこいつもむくつけき野郎共ばかり！*
 
-Hmm? Are there women in the group? ...... There are some women, aren't there?
+Huh? Are there women here too? …There are a few women, right?
 
 *ン？女性も居ることはいるのか？……何人か女の人いるよね？*
 
 &nbsp;
 
-Are you sure you're okay with women being in such a crude place?
+Is it really okay for women to be in such a coarse place?
 
 *女性がこんな粗野な所に居て平気なのか？*
 
-In fact, it smells like coco!
+It actually smells here!
 
 *実際ココ臭いし！*
 
-The smell of alcohol and the smell of the bastards was really disgusting.
+The stench of alcohol and men is overwhelmingly suffocating.
 
 *ホントにお酒の匂いと野郎の匂いで、むさっ苦しい事この上ないのだ。*
 
 &nbsp;
 
-If there were beautiful girls walking around smelling good in the midst of all this, it would be bound to attract attention, wouldn't it?
+If beautiful girls are walking around while exuding a nice fragrance, it’s no wonder they catch people's eyes!
 
 *そんな中を良い匂いを振りまく美少女達が歩いていたら、そりゃ人目も引いちゃうってものよね！*
 
 &nbsp;
 
-"Hey, are you sure you're in the right place? This ain't the place for you ladies, is it?"
+"Hey, are you sure you’re in the right place? This isn't somewhere for young ladies like you."
 
 *「よう、来るとこ間違っちゃいねぇか？此処はお嬢ちゃん達が来る様な場所じゃねぇぜ？」*
 
 &nbsp;
 
-A man with his elbows on a round standing table as he passed by grinned and spoke to me.
+A man leaning on a round standing table as we pass by grins and speaks to us.
 
 *通り過ぎた丸いスタンディングテーブルに肘を付いた男が、ニヤニヤとしながら言葉をかけて来た。*
 
 &nbsp;
 
-I'm not going to say anything bad. Come over here and play with me, and I'll give you a good show."
+"I'm not saying anything bad. If you come over here and keep me company, I'll show you a good time."
 
 *「悪い事ぁ言わねぇ。コッチ来て俺の相手すりゃ、イイ目見させてやるぜ」*
 
 &nbsp;
 
-Oops! Here we are at the temp dialogue!
+Oh! Here comes the cliché line!
 
 *おぉっと！来ちゃいましたかテンプレ台詞！*
 
-The Adventurers' Guild was not what I imagined, so I never met them! So this is where I've come to!
+The Adventurers' Guild was different from what I imagined, so I never got to encounter it, but here it is!
 
 *冒険者組合は想像したのと違ってたから、ついぞ出会えなかったけど！こんな所で来ちゃいましたかー！*
 
-Oh no, no, no, no, I'm in trouble!
+Oh dear, this is quite the predicament!
 
 *いやいやぁーー、参っちゃったなぁ!*
 
 &nbsp;
 
-Why do you look so happy?
+"Why do you look so happy?!"
 
 *「何でアンタ嬉しそうな顔してんのよ？！」*
 
-"What? I didn't, shhh?"
+"Eh? I'm not, am I?"
 
 *「え？してない、しぃ？」*
 
-Really, you look so excited, don't you?"
+"Seriously, you have such an excited face?"
 
 *「ホント、凄いワクワク顔だよ？」*
 
-"Well, I don't think so, do you?"
+"I-I don't think that's true, though?"
 
 *「そ、そんな事は、無いと思う、けどぉ？」*
 
 &nbsp;
 
-Unyuu! Is your face grinning by itself?
+Ugh! Is my face smiling on its own?!
 
 *うにゅう！顔が勝手にニヤケている？！*
 
-No, no, no! Let's be cool, let's be cool!
+No, no! I need to stay cool!
 
 *イカンいかん！クールに行こうぜクールに！*
 
-I am a cool beauty!
+I am a cool beauty!!
 
 *わたしはイケてるクールビューティー！！*
 
@@ -138,31 +138,31 @@ I am a cool beauty!
 
 &nbsp;
 
-So, what brings us to this seedy bar: .......
+So, why are we at this rundown tavern, you ask…?
 
 *でだ、何でわたし達がこんな場末の酒場へ来ているかといえば……。*
 
-The story goes back to a day ago, yesterday weekend afternoon.
+Let’s go back to yesterday, to the afternoon of the weekend.
 
 *話は一日前、昨日の週末の午後に戻る。*
 
-After taking my dress measurements, I went to the Adventurers' Guild, where Cu Emel was waiting for me.
+After quickly finishing the fitting for the dress, we headed to the Adventurers' Guild where Kuu Emel was waiting.
 
 *あれよあれよという間にドレスの採寸を済ませた後に行ったのは、クゥ・エメルさんが待つ冒険者組合。*
 
-There, he gave a brief explanation of the specialized department, "Bouncer.
+There, she gave a brief explanation about the specialized department, "Bodyguard."
 
 *そこでは専門部署、『用心棒』について簡単な説明をしてくれた。*
 
 &nbsp;
 
-The Bouncer Association is an organization that is contracted to protect and eliminate dangerous creatures.
+"The 'Bodyguard Association' is an organization that undertakes the protection of targets and the elimination of dangerous creatures."
 
 *「『用心棒協会』は、対象の警護や危険生物の排除などを請け負っている組織で御座います」*
 
 &nbsp;
 
-Could it be, by any chance, that you are referring to work that AMCAM's team is undertaking outside of AMCAM?
+Could it be that this refers to the work that the Amukamu team undertakes outside of Amukamu?
 
 *それはひょっとして、アムカムのチームがアムカムの外で請け負っている仕事の事ではないでしょうか？*
 
@@ -172,155 +172,153 @@ I see?
 
 &nbsp;
 
-"If a team from AmCam works outside of AmCam, they must contract work from the Bouncer Association through this Adventurers' Guild!"
+"When the Amukamu team operates outside of Amukamu, they need to take on jobs from the Bouncer Association through this Adventurers' Guild!"
 
 *「アムカムのチームはアムカム外で活動する場合、この冒険者組合を通じてバウンサー協会から仕事を請け負う必要があるのよ！」*
 
 &nbsp;
 
-Bibi adds a supplementary explanation.
+Bibi adds this as a supplementary explanation.
 
 *と、ビビが補足で説明を入れてくれる。*
 
-It is said that this is a covenant that was agreed upon between Amcam and the state a long time ago.
+It seems that this was an agreement made long ago between Amukamu and the country.
 
 *なんでもその昔、アムカムと国とが取り決めた約定なのだとか。*
 
 &nbsp;
 
-Come to think of it, the term "covenant with the state" was mentioned by Papa Howard from time to time.
+Speaking of which, I remember Howard Papa occasionally mentioning the term "agreement with the country."
 
 *そういえば「国との約定」という言葉、時々ハワードパパは口にされていたな。*
 
-I had never heard of the intricacies, but I had heard that the government and AMCAM have a mutually supportive relationship.
+I had never heard the complicated details, but I had heard that Amukamu and the country have a mutually supportive relationship.
 
 *込み入った話はお聞きした事はなかったけど、国とアムカムは相互互助の関係にあるとは聞いていた。*
 
-He also said that it is a decision made because of the special nature of Amcam.
+It seems to be a rule due to the uniqueness of Amukamu.
 
 *アムカムの特殊性故の決め事なのだとも。*
 
-Papa Howard said, "Everything is for Amcam to live with Irosio.
+Howard Papa said, "Everything is for Amukamu, which lives in harmony with Iloshio."
 
 *ハワードパパは「全てはイロシオと共に生きるアムカムの為」と仰っていた。*
 
 &nbsp;
 
-But I didn't know about the bouncer. You could have told me sooner!
+But I didn't know about the Bouncer. They could have told me sooner!
 
 *でも、バウンサーの事は知らなかったな。もっと早く教えてくれてもいいのに！*
 
 &nbsp;
 
-You looked like you knew about the Adventurers' Guild from the very beginning!
+"Because you looked like you understood all about the 'Adventurers' Guild' from the start!"
 
 *「だってアンタ、最初から『冒険者組合』の事分かってるような顔してたじゃない！」*
 
-"Oh, ......, that's..."
+"Ugh... well, that’s..."
 
 *「ぅ……そ、そりは」*
 
-I was talking to Bibi and asking her if it's okay that she didn't ask me anything. I was talking to Bibi, you know?"
+"You looked puzzled at times, but since you didn't ask anything, I thought it was okay? I was talking with Bibi about that, you know?"
 
 *「途中で首をかしげてる風だったけど、何も聞いてこなかったから良いのかなぁ？ってビビちゃんと話してたんだよ？」*
 
-For now, we decided to let him swim until he hears something!"
+"For now, I decided to let you swim until you asked something!"
 
 *「とりあえずは、何か聞いてくるまでは泳がせる事にしたのよ！」*
 
-Coo!"
+"Ugh!!"
 
 *「くぅ！！」*
 
 &nbsp;
 
-Was it being toyed with, too?
+Was I being toyed with?!
 
 *も、弄ばれていた？！*
 
-Both Bibi and Mia are smooching their mouths off! Tsk tsk tsk!
+Bibi and Mia both have smirks on their faces! Damn it!!
 
 *ビビもミアも、口元がニヨニヨしてるよ！チクソーー！*
 
-I'm so frustrated and embarrassed to think that it was my fault for getting spilled on the word "Adventurers' Guild" in the first place. ...... Contikuso!
+I feel embarrassed and frustrated, thinking it’s my fault for getting flustered just from the word Adventurers' Guild… Damn it!!
 
 *そもそもが冒険者組合という単語でのぼせてしまった自分のせいかと思うと、悔しいやら恥ずかしいやらで……。コンチクソーー！*
 
-Does this mean that the Adventurers' Union's trap is working soberly even here? Kuh!
+Is the trap of the Adventurers' Guild working subtly even here?! Ugh!!
 
 *冒険者組合の罠が、こんなところにまで地味に効いているという事か？！くぅぅぅ！！*
 
 &nbsp;
 
-Cu Emel, who had no idea of my inner agony, further explained to me that in order to register with the bouncer association, I first had to become a D-rank general member of the Adventurers' Guild, which allows me to work in a specialized department.
+Unaware of my inner turmoil, Kuu Emel continued to explain that in order to register with the Bouncer Association, we first needed to become D-rank general members who can take on jobs in the specialized department at the Adventurers' Guild.
 
 *そんなわたしの内面での悶えなど知りようも無いクゥ・エメルさんが、バウンサー協会に登録するにはまず冒険者組合で、専門部署の仕事を受けられるDランクの一般会員になる必要があったのだと更に説明を続けられた。*
 
-So Bibi was in a hurry to get up the ranks as soon as possible.
+That's why Bibi was urging us to rank up quickly.
 
 *だからビビは、早くランクアップしなくてはと急かしていたそうな。*
 
 &nbsp;
 
-Furthermore, Cu Emel even prepared the necessary documents for registration.
+Furthermore, Kuu Emel had even prepared the necessary documents for registration.
 
 *更にクゥ・エメルさんは、登録に必要な書類まで用意してくれていた。*
 
 &nbsp;
 
-First of all, a certification document showing that the applicant is D-ranked.
+First, a certificate proving that we are D-rank.
 
 *まずは、Dランクである事を示す証明書類。*
 
-A letter of introduction from the union that says the identity is authentic.
+A letter of introduction from the guild, stating that our identity is verified.
 
 *身元が確かな物だと言う組合からの紹介状。*
 
-And they need something to prove their status.
+And we also need something to prove our identity.
 
 *そしてその身分を証明する物が必要なのだとか。*
 
-We were told that we only needed to present Milia's student handbook, although we were supposed to submit a list of our citizenship.
+Originally, it seems we would need to submit a citizen's certificate, but we can simply present our student handbook from Miria.
 
 *本来は市民表などを提出するらしいのだけど、わたし達はミリアの生徒手帳を提示すれば済むらしい。*
 
-I'm told that this student handbook of the Milia Castel Eye boarding school has that much social credibility.
+This student handbook from Miria Castle Eye Boarding School carries enough social credibility.
 
 *この、ミリアキャステルアイ寄宿学校の生徒手帳には、それだけの社会的な信用があるのだそうな。*
 
-Come to think of it, I remember when I registered for this adventurers' union, all I had to do was show my student handbook.
+Come to think of it, registering at this Adventurers' Guild was also done just by presenting the student handbook.
 
 *そう言えばこの冒険者組合の登録も、生徒手帳の提示だけで済んでたんだっけね。*
 
 &nbsp;
 
-Please take these documents to their office. The entrance is here on the street, and also at ............"
+"Now, please take these documents to the office of the other party. The entrance is at the front facing the street, and also..."
 
 *「では此方の書類を先方の事務所にお持ちください。入り口は通りに面した此方と、それと…………」*
 
 &nbsp;
 
-Cu Emel handed me the documents he had put together and showed me the location of the bouncer association, pointing to a map he had put out on the counter.
+Kuu Emel handed us the compiled documents and pointed to the map she laid out on the counter, showing us the location of the Bouncer Association.
 
 *クゥ・エメルさんは纏めてくれた書類を手渡してくれると、カウンターに出した地図を差しながら、バウンサー協会の場所を教えてくれた。*
 
-The association is apparently located in the civic district.
+It seems the association is located in the civic district.
 
 *協会はどうやら市民街の方にあるらしい。*
 
 &nbsp;
 
-When you arrive at the reception desk, you will be subject to a simple physical examination. Please dress lightly on the day of your visit.
+"I think there will be a simple physical ability test during the reception. Please come in light clothing on the day."
 
 *「受け付け時には、簡単な身体能力検査があると思います。当日は身軽な服装でおいで下さい」*
 
 &nbsp;
 
-So today, after the date had changed, the three of us went out to the Bouncer Association.
+And so, with the date having changed to today, the three of us set out for the Bouncer Association.
 
 *そんなこんなで日付が変わった今日、3人でバウンサー協会へと繰り出して来たわけなのだ。*
-
-
 
 &nbsp;
 
@@ -332,7 +330,6 @@ Thank you for reading.
 
 &nbsp;
 
-Thank you for your buzz and your rating! We are always encouraged!
+Thank you for your bookmarks and evaluations! They are always a great encouragement!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
-

@@ -1,4 +1,4 @@
-# 157 Sweet and Pumpkin
+# Chapter 157: Sweetness and Pumpkin
 
 ## 157話　甘々と南瓜
 
@@ -8,143 +8,143 @@
 
 &nbsp;
 
-'Tall-kun: ...... Tall-kun! Answer! ...... Thor! Thor! Hey! Please! Answer me!
+"Tor-kun... Tor-kun! Answer me!... Tor! Tor!! Hey! Please! Respond to me!!"
 
 *「トール君……トール君！答えて！……トール！トール！！ねぇ！お願い！返事をしてよ！！」*
 
-"It's ............ okay ...... tin. I'm fine, don't worry."
+"........I'm fine... Suzu. It's okay, don't worry."
 
 *「…………大丈夫だ……スズ。大丈夫、心配するな」*
 
-Good! Thor, Thor! Are you hurt? Are you okay to move now?
+"That's great!! Tor, Tor! Are you hurt?! You can move now, right?!"
 
 *「良かった！！トール、トール！怪我は？！もう動いても平気なのね？！」*
 
-I'm fine. It wasn't a deep wound. ...... The wound is already closed."
+"I'm fine. It wasn't a serious injury... The wound has already closed."
 
 *「大丈夫だ。深手って程じゃなかった……。傷ももう塞がってる」*
 
-"Are you sure? You're sure you're okay?"
+"Really? You're really okay?"
 
 *「ホントに？本当に大丈夫なのね？」*
 
-I'm fine, don't worry. The boy is safe.
+"I'm fine, no need to worry. That child is safe too."
 
 *「大丈夫だ心配ない。あの子も無事だ」*
 
-......Good, that was really good."
+"......I'm glad, really glad."
 
 *「……よかった、本当に良かった」*
 
-I left him with his stepfather and stepmother. You don't have to worry anymore."
+"I left that child with my stepfather and stepmother. There's no need to worry anymore."
 
 *「あの子は、義父さんと義母さんに預けて来た。もう心配無い」*
 
-I'm talking about you now! I said please don't do anything rash!"
+"Right now, it's about you! I told you not to do anything reckless!!"
 
 *「今はアナタの事よ！お願いだから無茶はしないでって言ったじゃない！！」*
 
-But now the Alconnen family, which has exploited Amkham for so many years, is no more."
+"But with this, the Alconnen family, which has been exploiting Amukamu for many years, is finished."
 
 *「だが、これでアムカムを長年に渡って搾取して来たアルコンネン家も、もう終わりだ」*
 
-Still!
+"Even so!!"
 
 *「それでも！！」*
 
-Alconnen is the second largest faction of the aristocracy after Valdemonte. This will make your move a lot easier."
+"Alconnen is a major faction of the nobility, second only to Baldermonte. This will make things much easier for you."
 
 *「アルコンネンは、バルデモンテに次いで、貴族派の大派閥だ。これでお前も動きが大分楽になる」*
 
-...... that's true though!"
+"......That's true, but!"
 
 *「……それはそうだけど！」*
 
-Your shadow warriors were reaching their limits. We had no choice but to do it here in time."
+"Your shadow double was reaching its limit. It was time to act here."
 
 *「お前の影武者も限界が来ていた。時期的にも此処でやるしか無かったんだよ」*
 
-But! So what if something happens to you ......!
+"But! If something happens to you... what will I do!!"
 
 *「でも！それでアナタに何かあったら……どうするのよ！！」*
 
-I don't care about me. Are you all right, Tin? Are you okay to move your body now?"
+"Don't worry about me. Are you okay, Suzu? Can you move your body now?"
 
 *「オレの事はいい。お前は大丈夫なのかスズ？もう身体を動かしても平気なのか？」*
 
-I'm fine. I'm fine! I'm fine! You need to take better care of yourself!
+"I'm fine. I'm okay! So! You need to take better care of your own body!!"
 
 *「わたしは平気。わたしは大丈夫！だから！アナタは自分の身体の事をもっと気遣って！！」*
 
-"......, as long as you're safe, that's all that matters."
+"......As long as you're safe, that's enough."
 
 *「……お前が無事ならそれで良い」*
 
-"............ idiot, idiot!"
+"............You idiot, idiot!"
 
 *「…………ばか、ばか！」*
 
-...... "This time, I screwed up. I was careless. I should have been more careful. ...... Sorry for worrying you."
+"......This time, I messed up. I was careless. I should have been more cautious... I'm sorry for worrying you."
 
 *「……今回は、オレがヘマをした。迂闊だった。もっと慎重にするべきだった……心配かけて済まない」*
 
-I'm not going to do it again! Do that right away and ............ really, don't do anything reckless anymore. Please."
+"Geez! You always do that... Really, don't do anything reckless anymore. Please."
 
 *「もう！直ぐにそうやって…………本当に、もう無茶はしないで。お願い」*
 
-"...... yeah. I promise, no more recklessness."
+"......Yeah. I promise, I won't do anything reckless anymore."
 
 *「……ああ。約束する、もう無茶はしない」*
 
-It's true ...... I promise!"
+"Really... It's a promise!"
 
 *「本当だよ……約束だからね！」*
 
-...... someday, someday, I'll take that girl back there."
+"......Someday, someday I'll take that child and come back to you."
 
 *「……いつか、いつかあの子を連れて、またそっちへ行くよ」*
 
-"............ yeah."
+"............Yeah."
 
 *「…………うん」*
 
-So can I leave the rest to you so you can do that?"
+"So, can I leave the rest to you so that I can do that?"
 
 *「だから、そう出来るように、後は任せても良いか？」*
 
-I'm here for that! I'll take care of it!"
+"Yeah, that's why I'm here! Leave it to me!"
 
 *「うん、その為にわたしはココに居るんだから！わたしに任せて！」*
 
-All right, I'll leave it to Tin. ......
+"Got it, I'll leave it to Suzu..."
 
 *「分った、スズに任せる……」*
 
-Yeah, I'm in charge! I'm in charge!"
+"Yeah! Leave it to me!"
 
 *「うん！任された！」*
 
-I'm going to go to ...... and see if I can take a break for a bit." ...... for a little bit."
+"......Can I rest a little?......Just a little."
 
 *「……少しだけ、休んでも良いかな？……少しだけ」*
 
-'Good one Thor. Get some rest. ......"
+"That's fine, Tor. Take your time to rest..."
 
 *「良いよトール。ゆっくり休んで……」*
 
-Someday ...... someday, the three of us will cross that sea together."
+"Someday... someday, let's cross that sea together, the three of us."
 
 *「いつか……いつかさ、あの海を3人で渡ろう」*
 
-Yeah, yeah." Thor! You'll make it across! Someday the three of us will ...... be on that boat."
+"Yeah, yeah! Tor! We'll definitely be able to cross! Someday, the three of us... on that ship."
 
 *「うん、うん！トール！きっと渡れるよ！いつか3人で……あの船に乗せて」*
 
-"...... oh, someday."
+"......Yeah, someday."
 
 *「……ああ、いつか」*
 
-"...... yeah, someday."
+"......Yeah, someday."
 
 *「……うん、いつか」*
 
@@ -164,151 +164,151 @@ Yeah, yeah." Thor! You'll make it across! Someday the three of us will ...... be
 
 &nbsp;
 
-The main cafeteria is quite busy again today.
+Today, the dining hall is quite lively.
 
 *今日も大食堂は中々の盛況具合だ。*
 
-Today, which is Saturday in the original world, all students spend the afternoon free.
+Today, which corresponds to Saturday in the original world, the students have free time in the afternoon.
 
 *元の世界での土曜日にあたる今日は、生徒の皆は午後の時間は自由に過ごす。*
 
-The students all enjoy chatting over a meal or after-dinner dessert about what they will do in the afternoon.
+The students are all enjoying their meals, chatting about what to do in the afternoon, or having dessert afterward.
 
 *生徒達はみんな、午後はどうするかと食事をしなら、又は食後のデザートを頂きながら、わいのワイのとお喋りを楽しむのだ。*
 
 &nbsp;
 
-There is a pumpkin fair going on in the diner right now.
+Currently, the dining hall is holding a pumpkin fair.
 
 *今食堂ではパンプキンフェアをやっていたりする。*
 
-The menu includes not only pumpkin dishes, but also a wide variety of sweets made from pumpkin.
+There are not only pumpkin dishes but also a variety of sweets made with pumpkin on the menu.
 
 *そこではカボチャ料理だけで無く、カボチャを使った色々なスイーツもメニューには数多く並んでいるのだ。*
 
 &nbsp;
 
-I chose "pumpkin pudding" today.
+What I chose today is "Pumpkin Pudding."
 
 *わたしが今日選んだのは『かぼちゃのプディング』だ。*
 
-The aroma of pumpkin is very rich, and when you put it in your mouth, the gentle sweetness combined with the savory caramel sauce almost spills out.
+The aroma of pumpkin is very rich, and when you take a bite, the sweet caramel sauce mixes with it, creating a gentle sweetness that seems to overflow.
 
 *これはかぼちゃの香りがとぉっても濃厚で、口に含めば香ばしいカラメルソースと相まって優しい甘さが零れそうになる。*
 
-One bite and you will be filled with happiness, and your face will be full of joy.
+With just one bite, happiness spreads throughout my mouth, and I can't help but shake my face in delight.
 
 *一口頂けば忽ちお口一杯に幸せが広がり、思わず顔がフルフルしてしまう。*
 
 &nbsp;
 
-"Sue, you want to try some of this pie? Here you go.
+"Suu, should we try this pie too? Here, ah~~n."
 
 *「スー、コッチのパイも食べてみようか？ホラ、あ〜〜ん」*
 
-Kara, it's not fair! Sue-chan, the Koch cake is delicious too! Yes, ahhh!"
+"Kaara, that's unfair! Su-chan, this cake is delicious too! Here, ah~~n."
 
 *「カーラずるい！スーちゃんコッチケーキも美味しいよ！はい、ア〜〜ん」*
 
-No, no, no, Sue wants my bavarois first! Hi, ahhhhh..."
+"No, no, Suu wants my Bavarian cream first! Here, ah~~n."
 
 *「いやいや、スーはまず、わたしのババロアをほしがってるよ！ハイ、あ〜〜ン」*
 
-This one is marble cake with chocolate! Here you go, ahhhhh."
+"This one is a marble cake with chocolate! Here, ah~~n."
 
 *「こっちはチョコと合わせたマーブルケーキだよ！ほら、ア～～ン」*
 
 &nbsp;
 
-Carla, Mia, Alicia, and Jessica come in with their spoons out as usual.
+Kaara, Mia, Alicia, and Jessica are all offering their spoons as usual.
 
 *カーラがミアがアリシアが、そしてジェシカがいつもの様にスプーンを突き出して来る。*
 
-I am not a chick waiting to be fed!
+I am not a chick waiting for food!
 
 *わたしはエサを待つヒナでは無いと言うに！*
 
 &nbsp;
 
-And yet! There is no way you can refuse the sweets in front of you. ...... The pie, the cake, the bavarois, the mouth receives them all without rejection!
+Even so! I can't refuse the sweets in front of me... The pie, the cake, the Bavarian cream, my mouth can't help but accept them!
 
 *それでも！目の前にあるスイーツを拒むなど出来ようはずも無く……。パイをケーキをババロアを、拒む事なく口が受け取ってしまうのだ！*
 
 &nbsp;
 
-「「「「 delicious? 」」」」
+"Is it delicious?"
 
 *「「「「美味しい？」」」」*
 
-It's delicious ......!"
+"Delicious...!"
 
 *「美味……しい、の！」*
 
 &nbsp;
 
-And every time I have it, I still put my hand on my cheek and full it.
+And every time I take a bite, I can't help but shake my cheeks with my hands.
 
 *そしてやっぱり頂く度、頬に手を添えてフルフルしてしまう。*
 
-This is like a reflex that the body reacts to on its own! So it can't be helped!
+This is like a reflex that my body responds to on its own! So there's no helping it!
 
 *これは、体が勝手に反応してしまう反射の様な物なのだ！だから仕方がないのだ！*
 
-The beauty of Ikenai is that all of Coco's sweets are excellent!
+The sweets here are all so exquisite, it's just too much!
 
 *ココのスイーツが、どれも絶品なのがイケナイのよさ！*
 
 &nbsp;
 
-".................."
+"............"
 
 *「………………」*
 
-Can you please stop being so silly? It happens all the time!"
+"Can you not be so amazed? It's the usual thing!"
 
 *「呆れないでもらえる？いつものことなので！」*
 
-"Haha ......, it's a bit of a surprise when you see it in front of you for the first time ......"
+"Ahaha... Seeing it for the first time right in front of me is a bit surprising..."
 
 *「あはは……、初めて目の前で見ると、ちょっとビックリするよね……」*
 
 &nbsp;
 
-Hmm? What are Bibi and Karen saying to Miss Cordelia at the end of the table?
+Huh? What's going on with Cordelia at the edge of the table? Bibi and Karen seem to be saying something to her?
 
 *ん？なんかテーブルの端の方にいるコーディリア嬢に、ビビとカレンが何か言っている？*
 
-I don't think there's anything particularly unusual about it, do you?
+I don't think anything unusual is happening, though?
 
 *特に変わった事は無いと思うんだけどな？*
 
 &nbsp;
 
-At this table now are Mistress Lucille, Mistress Cordilia, Karen, Alicia, and Carla.
+At this table, there are Lucille, Cordelia, Karen, Alicia, and Kaara.
 
 *今このテーブルにはルシール嬢、コーディリア嬢、カレン、アリシア、カーラ、と並んでいる。*
 
-And sitting opposite them were Miss Catherine, Bibi, Mia, myself, Jessica, and others.
+And across from them are Catherine, Bibi, Mia, me, and Jessica.
 
 *そしてその対面に、キャサリン嬢、ビビ、ミア、わたし、ジェシカ、と並び座っていた。*
 
-Dana and Colin are gone now.
+Dana and Colin are not here right now.
 
 *ダーナとコリンは今いない。*
 
 &nbsp;
 
-Dana, as usual, had just finished her meal and left, saying she was going to work out for lunch, and Colin was still not there, saying he had something to do with the student council.
+Dana, as usual, quickly finished her meal and said she was going out for afternoon training, and Colin is also absent due to student council duties.
 
 *ダーナはいつもの様に食事を掻き込むと、サッサとお昼の鍛錬だと言って出て行ってしまったし、コリンは生徒会の用事があるとかでやはり居ない。*
 
-That's why these 10 people are sitting around the table today.
+So today, it's just the ten of us around the table.
 
 *なので今日はこの10人でテーブルを囲んでるワケだ。*
 
 &nbsp;
 
-And so the spoon attack of sweets was being unleashed one after another from both sides and the front! A-huh!
+With that, the spoon assault of sweets is coming from both sides and straight ahead! Ah, fun!
 
 *そんな感じでスイーツのスプーン攻勢は、両脇と正面から次々と繰り出されているのだたたた！ぁふン！*
 
@@ -316,71 +316,71 @@ And so the spoon attack of sweets was being unleashed one after another from bot
 
 &nbsp;
 
-Since then, Karen has brightened up as if she had completely changed.
+Since then, Karen has completely changed and become cheerful.
 
 *カレンはあれ以来、すっかり人が変わった様に明るくなった。*
 
-What was she like before? Her shy and unconfident appearance has gone down, and she is smiling carefree around us.
+I want to say, what was she like before? Her previous timid and insecure demeanor has vanished, and she now spreads a carefree smile around her.
 
 *今迄の彼女は一体何だったのだろう？と言いたいほど、オドオドとした自信無さげな様子が鳴りをひそめ、屈託の無い笑みを辺りに振り撒く様になった。*
 
 &nbsp;
 
-When he had a near miss with Miss Lurie and her friends at the school, he didn't seem to be particularly put off at all.
+When she had a near miss with RuuRii and the others at school, she showed no signs of being intimidated at all.
 
 *学園内でルゥリィ嬢達とニアミスした時も、特に腰が引ける様子も全く無かった。*
 
-I was watching them with concern, but Miss Lurie and the others seemed to be taken aback by their brazen attitude.
+I was nervously watching, but her confident attitude seemed to surprise even RuuRii and the others.
 
 *コチラとしてはヒヤヒヤして見守っていたのだが、その堂々とした態度には、ルゥリィ嬢達も呆気に取られていた様だ。*
 
 &nbsp;
 
-Knowing only Karen's reserved nature, I can understand why this change would be confusing.
+If you only knew the reserved Karen, it's understandable to be confused by this change.
 
 *控えめな性格のカレンしか知らないと、この変化には戸惑ってしまうのも分かる。*
 
-But this is the real Karen, says Miss Cordelia.
+However, Cordelia says this is the real Karen.
 
 *しかし、コレが本来のカレンなのだとコーディリア嬢は言う。*
 
 &nbsp;
 
-Miss Cordilia says happily that she feels like she has finally met Karen.
+Cordelia seems happy to finally feel like she has met the real Karen.
 
 *やっとカレンと会えた気がするとコーディリア嬢は嬉しそうに語る。*
 
-Miss Cordilia said that she regretted the terrible words she had said to Karen in the past and was looking for an opportunity to make it up to her.
+Cordelia regrets having said terrible things to Karen in the past and has been looking for a chance to make amends.
 
 *コーディリア嬢は、昔カレンに酷い言葉をかけてしまったと後悔していて、仲直りの機会を探っていたのだとか。*
 
-According to Miss Lucille, this was not going well, as her own outburst personality was causing things to spin out of control.
+It seems that her own overly impulsive personality had caused things to go awry, according to Lucille.
 
 *それも自身の暴走気味の性格が空回りを起こし、上手く行っていなかったとはルシール嬢の言葉。*
 
 &nbsp;
 
-Karen also said that she had always wanted to make up with Miss Cordilia.
+Karen also said she had always wanted to make up with Cordelia.
 
 *カレンも、ずっとコーディリア嬢と仲直りがしたかったのだと言っていた。*
 
-Karen said that she was still stuck with the fact that she had rejected Miss Cordelia a long time ago and could not look her in the face properly.
+Karen had been troubled by having rejected Cordelia in the past and couldn't look her in the eye.
 
 *カレンはカレンでやはり昔、コーディリア嬢を拒否した事がずっと引っかかっていて、顔をまともに見る事が出来なかったのだと言う。*
 
 &nbsp;
 
-Seeing them smiling and talking to each other in front of me now, I can't help but feel relieved as someone who has heard of such a situation.
+Seeing those two now, smiling and talking to each other, I can't help but feel warm inside knowing their circumstances.
 
 *その2人が今目の前で、笑顔で語り合う姿を見ていると、そんな事情を聞いた身としてはホッコリとせずにはいられない。*
 
 &nbsp;
 
-I think Bibi also feels something for these girls.
+I think Bibi feels something similar about them.
 
 *そんな彼女達に、ビビも感じるトコロがあるのだと思う。*
 
-I feel like you are losing your pertinence to Miss Cordelia, don't you?
+It seems like the intensity of her attitude towards Cordelia has lessened.
 
 *コーディリア嬢に対する当たりの強さが無くなっている気がするよね。*
 
@@ -394,67 +394,67 @@ I feel like you are losing your pertinence to Miss Cordelia, don't you?
 
 &nbsp;
 
-But surely this pudding looks good."
+"But this pudding really does look delicious."
 
 *「でも、確かにこのプディングは美味しそうだよね」*
 
-Yes, I suppose so.
+"Y-yes, it does."
 
 *「そ、そうですわね」*
 
-Cody said, "You should try some, too. Hi, Arn."
+"Cordy, you should try it too. Here, ah."
 
 *「コーディも食べてご覧よ。ハイ、アーン」*
 
-I can eat it myself!"
+"I-I can eat it myself!"
 
 *「じ、自分で食べられますわ！」*
 
-"Ahn."
+"Ah."
 
 *「アーン」*
 
-And so!
+"S-so!"
 
 *「で、ですから！」*
 
-"Ahn."
+"Ah."
 
 *「アーン」*
 
-"Oh, mooo......, ahhh......n."
+"Geez... ah... mmm."
 
 *「も、もお……、ぁーん……ン」*
 
-Tasty?"
+"Is it delicious?"
 
 *「おいしい？」*
 
-Oh, it's delicious ......, wow."
+"Y-yes, it's delicious..."
 
 *「ぉ、おいしい……です、わ」*
 
-I'm glad to hear that! And I'm glad Cody's as cute as ever."
+"Great! I'm so happy that Cordy is still as cute as ever."
 
 *「良かった！コーディも変わらず可愛くて嬉しいよ」*
 
-Oh, no, not again! Karen will be saying that soon!"
+"Y-you again! Karen, you always say that so quickly!"
 
 *「ま、また！カレンは直ぐそう言う事を！」*
 
-"...... no, was it?"
+"......Was that bad?"
 
 *「……ダメ、だった？」*
 
-"...... no, not ......, it's ......, wow."
+"......It's not bad,...... at all."
 
 *「……ダメじゃ……無い、……です、わ」*
 
-Really? That's good!"
+"Really?! That's great!"
 
 *「ホント？！良かった！」*
 
-Much, much more ......"
+"Geez..."
 
 *「も、もぅ……」*
 
@@ -462,47 +462,47 @@ Much, much more ......"
 
 &nbsp;
 
-".................."
+"............"
 
 *「………………」*
 
 &nbsp;
 
-What is it?
+What is this?
 
 *なんだ？*
 
-Now what have we been shown?
+What are we being shown right now?
 
 *今我々は何を見せられた？*
 
-What's with these geeky girls?
+What is this beautiful girl?
 
 *何だこのオトコマエ女子？*
 
-What's with this cute little red creature?
+What is this cute creature turning red?
 
 *何だこの真っ赤になってる可愛い生き物？*
 
-"...... tee-hee."
+"......so cute."
 
 *「「……てぇてぇ」」*
 
 &nbsp;
 
-The words that came out of my mouth were covered with someone else's.
+The words that slipped out were echoed by someone else.
 
 *思わず溢れた言葉が誰かと被った。*
 
-I glanced in the direction of the voice and saw that I was eye to eye with Miss Catherine.
+When I glanced at the source of the voice, I met Catherine's gaze.
 
 *声の発した方をチラ見れば、キャサリン嬢と目が合う。*
 
-Thumbs up to each other in silent exchange!
+We exchanged silent thumbs-ups!
 
 *互いに無言で交わし合うサムズアップ！*
 
-Hmmm! I have a feeling we're going to get along just fine with her!
+Hmm! I feel like I can get along well with her!
 
 *うむ！彼女とは上手くやって行けそうな気がしるよ！*
 
@@ -512,37 +512,35 @@ Hmmm! I have a feeling we're going to get along just fine with her!
 
 &nbsp;
 
-Ladies and gentlemen, we have a lovely guest.
+"Everyone, we have a lovely guest here."
 
 *「皆様、可愛いらしいお客様がいらっしゃっていますよ」*
 
 &nbsp;
 
-At our table, Mr. Selkie, who was in the same class with us, approached us.
+At our table, Selkie from the same class called out to us.
 
 *そんなわたし達のテーブルに、同じクラスのセルキーさんが声をかけて来た。*
 
-A small figure peeks out behind the blue-haired selkie.
+Behind the blue-haired Selkie, a small figure peeked out.
 
 *青い髪のセルキーさんの後ろに、チョコりと覗く小さな姿。*
 
-It immediately stepped forward and showed off its curtesy beautifully.
+That figure quickly stepped forward and elegantly performed a curtsy.
 
 *それは直ぐに前に進み出て、綺麗にカーテシーを披露して見せた。*
 
 &nbsp;
 
-Ladies and gentlemen, we will see you at noon.
+"Everyone, I apologize for interrupting your lunch."
 
 *「みなさま、お昼どきにしつれいいたします」*
 
 &nbsp;
 
-There was Annie, curtsying adorably.
+There stood Annie, cutely bowing.
 
 *そこには、愛らしく礼をとるアニーの姿があった。*
-
-
 
 &nbsp;
 
@@ -554,7 +552,6 @@ Thank you for reading.
 
 &nbsp;
 
-Thank you for your buzz and your rating! We are always encouraged!
+Thank you for your bookmarks and evaluations! They always motivate me!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
-

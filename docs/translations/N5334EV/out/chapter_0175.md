@@ -1,388 +1,388 @@
-# 163 Episode Lady Crimson
+# Chapter 163: Lady Crimson
 
 ## 163話　レディクリムゾン
 
-Oi! Are you listening to me?
+"Hey! Are you listening?!"
 
 *「オイ！聞いてんのかよ？！」*
 
 &nbsp;
 
-As if numbed, the man who had just called out to me came screaming at me.
+The man who had called out to me earlier shouted at me, seemingly losing his patience.
 
 *痺れを切らしたように、先ほど声をかけてきた男がわたしに向けて、大声を上げて来た。*
 
-Oops, I got caught up in reminiscing and forgot about this guy.
+Oops, I got so caught up in my memories that I forgot about this guy's presence.
 
 *おっと、ついつい回想に思いを馳せて、コイツの存在を忘れていたよ。*
 
-I guess it's not polite if I don't give him some company.
+Isn't it a bit rude not to engage with him at all?
 
 *ここはやはり、多少は相手をして差し上げないと礼儀に反するか？*
 
 &nbsp;
 
-"Don't be a bitch, you little bitch! I'm calling you! Don't ignore me!
+"Don't act all cool, you little brat! I'm calling you! Don't ignore me!"
 
 *「スカしてんじゃねェぞメスガキが！俺が呼んでんだ！無視してんじゃ無え！」*
 
 &nbsp;
 
-This guy slams his fist on the table and raises his voice.
+He slammed his fist on the table, raising his voice.
 
 *ソイツがテーブルに拳を叩き付けて声を荒げる。*
 
-You've turned red in the face, your boiling point is so low.
+His face was bright red; he has quite a low boiling point.
 
 *顔を真っ赤にしちゃって、随分沸点低いな。*
 
-But still, calling a girl you just met a "female" is quite a thing, don't you think?
+Still, calling a girl he just met a "brat" is a bit much, isn't it?
 
 *それにしても、初対面の女の子を「メス」呼ばわりとは随分じゃないか？*
 
 &nbsp;
 
-You have a good girth, don't you?
+He's got a good build.
 
 *ガタイは良いよね。*
 
-Is he a little shorter than Lombardo in height?
+He's probably just a bit shorter than Lombard?
 
 *身長はロンバートより少し低いくらい？*
 
-There's something not quite right about unlimited growth of stubble.
+His unkempt beard looks kind of gross.
 
 *伸ばし放題の無精髭が何かキチャない。*
 
-He looks like he smells. I don't want him to get too close to me.
+He looks like he would smell bad. Definitely the type I don't want to get too close to.
 
 *見るからに臭いそう。あんま近付いてほしく無いタイプだ。*
 
 &nbsp;
 
-Suddenly, I looked at the expressions on Bibi and Mia's faces at the edge of my vision and saw .......
+Glancing at the expressions of Bibi and Mia at the edge of my vision...
 
 *ふと、視界の端に居るビビとミアの表情を窺えば……。*
 
-No, there is no temperature in their expressions.
+Not good, their faces are devoid of warmth.
 
 *イカンな、2人の表情に温度が無い。*
 
 &nbsp;
 
-Come on, come on, come on, come on!
+"Just come here already!!"
 
 *「イイから来やがれ！！」*
 
 &nbsp;
 
-Then, he reached out his hand to me, screaming.
+Then, while he was yelling, he reached out his hand toward me.
 
 *ンで、ソイツが喚きながらコチラに手を伸ばして来た。*
 
-Maybe he was trying to grab my arm. ...... Sure enough, the hand grabs the sky with an empty hand.
+He might have intended to grab my arm, but... as expected, his hand grasped nothing but air.
 
 *わたしの腕を掴もうってつもりなのかも知れないが……。案の定、その手は虚しくスカッと空を掴む。*
 
-For a moment, this guy looks dumbfounded, unable to understand why his hand was flailing.
+For a moment, he seemed unable to understand why his hand had missed, wearing a dazed expression.
 
 *一瞬ソイツは、何故自分の手が空振ったか理解できず、呆けた様な顔になる。*
 
-Furthermore, he fell forward on the spot and hit his face on the floor without being able to catch himself.
+Then he toppled forward, unable to brace himself, and slammed his face into the floor.
 
 *更にはその場で前のめりに倒れ、受け身も取れずに床に顔面を打ち付けていた。*
 
 &nbsp;
 
-Oh, what a "buggy!" or some terrible voice leaked out. Did you crush your nose?
+Oh, I think I heard a terrible sound like "bugyuu!" Did he crush his nose or something?
 
 *あ、なんか「ぶぎゅる！」とか酷い声が漏れたな。鼻でも潰れちゃったか？*
 
 &nbsp;
 
-Well, I didn't do much. All I did was shift this guy's behavioral awareness a little bit.
+Well, I didn't do much. All I did was slightly shift his awareness.
 
 *まあ、大した事はしてないんだけどね。やったのは、コイツの行動意識をちょこっとずらしてやった程度。*
 
-He probably thought he was stepping forward, but his feet were not actually moving, so it was inevitable that he would roll if he moved his center of gravity forward as he did.
+He probably thought he was stepping forward, but his feet weren't moving at all, so it was inevitable that he would lose his balance if he shifted his weight forward.
 
 *自分では足を前へ踏み出したつもりだったんだろうけど、実際に足は動いていなかったから、そのまま重心を前へ動かせば転がってしまうのは必然だ。*
 
 &nbsp;
 
-I often do this as a first check when I'm standing in amcam, but my kids wouldn't be scared off by this level of shifting.
+It's something I often do at the start of an Amukam match, but my kids wouldn't even flinch from this level of distraction.
 
 *アムカムの立ち合いの時、初っ端の牽制でよくやるんだけど、ウチの子たちならこの程度のずらしではビクともしないんだけどな。*
 
-I think this guy is a bit short on training.
+This guy might just not be trained enough.
 
 *ちょいとばかりコイツは鍛え方が足りないんじゃなかろか。*
 
 &nbsp;
 
-But is it a little tragic to plunge face-first into the floor?
+However, face-planting into the floor is a bit tragic, isn't it?
 
 *しかし、顔から床に突っ込むのはちょっと悲惨？*
 
 &nbsp;
 
-Shit! Who was that? Who tripped me up?
+"Damn it! Who tripped me?!"
 
 *「クソ！誰だっ？！足引っ掛けやがったのは？！」*
 
 &nbsp;
 
-No, Anta, he said he rolled on his own.
+No, you fell on your own.
 
 *いやアンタ自分で転がったんだって。*
 
-However, I'm sorry to say that I find it a little funny to see a stern man with tears in his eyes and a nosebleed dripping down his nose.
+But seeing this tough guy with tear-filled eyes and blood pouring from his nose while yelling is, I must admit, a bit funny.
 
 *だけど、厳つい男が涙目で鼻血ダラダラ零しながら喚いてる様は、申し訳ないけどチョッと笑えてしまうかな。*
 
 &nbsp;
 
-Hey, you! Did you just laugh at me? You little bitch!
+"Y-you! You just laughed, didn't you?! You little brat!!"
 
 *「て、てめ！今笑いやがったな？！このメスガキがぁ！！」*
 
 &nbsp;
 
-So stop calling girls you've never met a female a female.
+So stop calling a girl you just met a brat.
 
 *だから初対面の女子をメス呼ばわりするのは止めなさいって。*
 
-As he tries to stand up further, ivy suddenly grows from the floor and tangles around him.
+As he tries to get back up, suddenly vines reach out from the floor and wrap around him.
 
 *そうやって更に立ち上がろうとするソイツに、唐突に床から伸びてきた蔦が絡みつく。*
 
 &nbsp;
 
-Yeah, it was Mia.
+Yep, that's Mia's doing.
 
 *うん、ミアの仕業だね。*
 
-Mia now snapped her fingers and activated the magic.
+Mia just snapped her fingers to activate her magic.
 
 *ミアが今、指をパチリと鳴らして魔法を発動させたのだ。*
 
 &nbsp;
 
-Suddenly, the man is wrapped in ivy all over his body.
+In an instant, the man was completely bound up in vines.
 
 *忽ちのうちに男は、全身蔦でグルグルの簀巻き状態にされてしまう。*
 
-The man is still trying to mumble some words even though he is wrapped in a bamboo screen, but the ivy is wrapped all over his face as well, so only muffled sounds are coming out.
+Even though he was wrapped up, he was still trying to mumble something, but since the vines were tightly wound around his face, only muffled sounds escaped.
 
 *男は簀巻きにされても何やらモガモガと言葉を発しようとしているが、蔦は顔面にも隈なく巻き付いているので、くぐもった音しか漏れてこない。*
 
 &nbsp;
 
-Do you want me to stop talking?"
+"Could you not talk?"
 
 *「しゃべらないで欲しいかな？」*
 
 &nbsp;
 
-Mia drops a chilling ......, voice chilled to absolute zero from above.
+Mia's voice fell from above, cold as ice... absolutely frigid.
 
 *ミアが冷ややかな……、絶対零度に冷え込んだ声を上から落とす。*
 
-Yes, this is chilling.
+Yeah, that sends a chill down my spine.
 
 *うん、これはゾクリとする。*
 
-The eyes looking down at you are really chilling. I'm glad you didn't see it.
+Her gaze looking down at him is also incredibly chilling. It's a good thing he can't see it.
 
 *見下ろす目も、実に冷え冷えとした物だ。見えていなくて良かったね。*
 
 &nbsp;
 
-Even though he could not see, the man, perhaps sensing the mia's presence, moved his body once with a jerk and then went quiet.
+Even without seeing, the man seemed to sense Mia's presence, and after a brief shudder, he fell silent.
 
 *見えなくとも男は、そのミアの気配を察したのか、一度ビクリと体を動かした後は静かになってしまった。*
 
 &nbsp;
 
-Can you leave it at that?"
+"Could you keep it down over there?"
 
 *「その辺にしておいて貰えるかい？」*
 
 &nbsp;
 
-Then a voice came from the back of the store. A husky but probably female voice.
+At that moment, a voice came from the back of the tavern. It was husky but probably a woman's voice.
 
 *そこへ店の奥の方から声がかかった。ハスキーだけど多分女性の声。*
 
-Immediately the owner of the voice stood up.
+Immediately, the owner of the voice stood up.
 
 *直ぐに声の主が立ち上がった。*
 
-You can tell he is a very big man.
+It's clear she's quite large.
 
 *随分大きな人だと分かる。*
 
 &nbsp;
 
-And you, young lady over there, would you please stop doing that kind of dangerous magic in such a small place?"
+"Hey, miss over there, could you stop using such dangerous magic in this cramped space?"
 
 *「そっちのお嬢さんも、こんな狭い所でそんな物騒な魔法は止めておくれよ？」*
 
 &nbsp;
 
-Bibi had deployed several gravels on top of the man who had been lying down for some time.
+Bibi had somehow summoned several small stones hovering over the man who was now rolling on the ground.
 
 *ビビがいつの間にか転がっている男の上に、幾つもの礫を展開させていた。*
 
-A dozen or so pebbles, each about five centimeters in diameter, are spinning at high speed, waiting to shoot out around the man at any moment.
+About a dozen small stones, each around 5 centimeters in diameter, were spinning rapidly around him, ready to be launched at any moment.
 
 *直径5センチ程の小石が全部で十数個、キュルキュルと高速で自転しながら男の周りで今にも撃ち出さんと待機をしている。*
 
-This is a "gravel bullet," a magic with a small earth attribute.
+This is a low-level earth magic called "Stone Bullet."
 
 *これは『礫弾』いう地属性小級位の魔法だ。*
 
-It's true that if I shot out this kind of magic here, these floorboards would be battered and bruised.
+If she were to cast such magic here, the floor would definitely get wrecked.
 
 *確かにココでこんな魔法を撃ち出したら、この床板なんてボコボコになるよね。*
 
 &nbsp;
 
-There is no hostility on his part as he approaches with a wry smile.
+As she approached with a wry smile, there was no hostility in her demeanor.
 
 *苦笑しながら近付くその方に敵意は皆無だ。*
 
-When Bibi realized this, he gave a small shrug and then dispersed the magic and disappeared.
+Realizing this, Bibi shrugged slightly and dispersed her magic.
 
 *それが分るとビビは小さく肩をすくめ、そのまま魔法を散らして消した。*
 
 &nbsp;
 
-Thanks. He's a newcomer to town. He's a self-deluded, ignorant, self-deluded idiot, but it's good medicine.
+"Thanks. This guy's a country bumpkin who just came to town recently. He's a fool who mistook his ignorance for confidence, but I guess this was a good lesson for him."
 
 *「ありがとよ。コイツは最近この街に来た田舎者でね。物を知らない自分を勘違いしたバカなんだが、ちったぁ良い薬になったろうよ」*
 
 &nbsp;
 
-The woman who approached me was still quite large.
+The woman who approached was indeed quite large.
 
 *近付いて来たその女性は、やはりかなり大きい。*
 
-I think he's taller than Howard Papa.
+She might even be taller than Papa Howard?
 
 *ハワードパパより身長あるんじゃないかな？*
 
-His body was very muscular and his skin had a light green tinge.
+Her body was very muscular, and her skin had a slight green tint.
 
 *その身体はとても筋肉質で、肌は薄らと緑がかっていた。*
 
-The grinning mouth has white fangs that are a little long to be called double-toothed.
+Her smile revealed slightly elongated fangs that gleamed white.
 
 *ニヤリと笑う口元には、八重歯と言うには少し長い牙が白く光る。*
 
-Its appearance is definitely a sea ha0k!
+Without a doubt, she looks like a Sea H〇wk!
 
 *その見た目は間違いなくシーハ〇ク！*
 
 &nbsp;
 
-This person is that one, the one of the species called "Half Giant".
+This woman belongs to the race known as "Half-Giants."
 
 *この方はあれだ、『ハーフジャイアント』と呼ばれる種族の方だ。*
 
-I've seen you around town from time to time, but this is the first time we've spoken in person.
+I've seen them around town occasionally, but this is the first time I've talked to one directly.
 
 *街中では時たま見かけてたけど、直接お話しするのはこれが初めてだな。*
 
 &nbsp;
 
-That's bad. Bouncers come in all shapes and sizes. The kind of bouncers you have just met are at best bouncers for small-town thugs. They can't be attached to protect VIPs at all.
+"Sorry about that. Not all bouncers are created equal. The kind of guy who just tried to mess with you is usually just a thug from a small town. They can't be relied on for protecting important people."
 
 *「悪いね。バウンサーと言ってもピンキリだ。今アンタらに絡んだ様な奴は、精々田舎町のゴロツキの用心棒が関の山だ。要人警護には到底付けられやしない」*
 
 &nbsp;
 
-The person muttered, "Even more so for those who can't even gather information properly ......," and instructed others to carry the man lying on the floor.
+She muttered, "Especially those who can't even gather information properly..." while directing those around her to carry the man who was now on the floor.
 
 *その方は「情報収集もまともに出来ない奴は尚更な……」と呟きながら、床に転がっている男を運ぶ様、周りに指示を出した。*
 
-We know that he is someone who has influence over these men.
+It's clear she's someone with influence over these men.
 
 *この男共に対して、影響力を持たれている人物だと分る。*
 
 &nbsp;
 
-You guys are here for the association, right? The reception desk is this way. I'll show you around."
+"You all have business with the guild, right? The reception is over here. I'll guide you."
 
 *「アンタら協会に用があるんだろ？受け付けはこっちだ。案内してやるよ」*
 
 &nbsp;
 
-The person looked over his shoulder and said so.
+She looked over her shoulder at us and said that.
 
 *その方は肩越しに此方を見てそう仰った。*
 
 &nbsp;
 
-Oops, I'm late. My name is Rudri. Nice to meet you!
+"Oh, I should introduce myself. I'm called Rudori. Nice to meet you!"
 
 *「おっと、申し遅れたね。あたしゃルドリってんだ。よろしくな！」*
 
-Oh, we're at .......
+"Oh, we are..."
 
 *「あ、わたし達、は……」*
 
-I mean, why did you guys come in through the back door of the pub?"
+"By the way, why did you all come in through the back pub?"
 
 *「って言うかさ、何でアンタら態々裏口のパブから入って来たんだい？」*
 
 &nbsp;
 
-Hmm?
+Huh?
 
 *ん？*
 
 &nbsp;
 
-If you'd come in through the front entrance, you'd have walked straight up the stairs to the reception desk."
+"If you had entered through the front entrance, you would have gone straight up the stairs to the reception."
 
 *「正面の入口から入りゃ、そのまま階段昇って直ぐ受付だったろうに」*
 
 &nbsp;
 
-Yes?
+Huh?
 
 *はい？*
 
 &nbsp;
 
-The pub was set up to make it easy for MISHOP members to use it for after-work relaxation, meetings, etc. "You didn't get caught by the smell of alcohol, did you? I'm sure you weren't lured by the smell of alcohol, were you?" I said, laughing.
+Apparently, this tavern is a pub set up for guild members to use for relaxation after work or for meetings. She laughed and said, "You didn't get lured in by the smell of alcohol, did you?"
 
 *なんでもこの酒場は、仕事終わりの慰労や、打ち合わせなどで協会員が使い易いようにと併設しているパブだとの事。「まさか酒の匂いに釣られたとかじゃないよね？」と言ってカラカラと笑い声を上げる。*
 
 &nbsp;
 
-Oh, yeah? And if you look at Bibi and Mia, you'll see .......
+R-really? I looked at Bibi and Mia...
 
 *そ、そうなん？とビビとミアに目を向ければ……。*
 
 &nbsp;
 
-Because, Sue, you are going forward so confidently. I wondered if she wanted to enter from this side. I wondered.
+"Well, because Sue was confidently leading the way. I thought maybe she wanted to come in from this side?"
 
 *「だってスーちゃん自信満々に進んで行くんだもん。コッチから入りたいのかな？って」*
 
-I know it's not what you're after! I know you weren't aiming for that!"
+"Well! I knew you weren't aiming for it, but still!"
 
 *「まあ！狙ってた訳じゃ無いのは分かってだけどね！」*
 
 &nbsp;
 
-By the way, Cu Emel, when you showed me the location on the map, you pointed to about two places ...... like ......?
+Now that I think about it, when Kuu Emel showed me the map, she pointed to two places... didn't she?
 
 *そういえばクゥ・エメルさん、地図で場所を教えてくれた時、二か所くらい指して……いた……ような？*
 
-Kuh-oh! Was I being toyed with again?
+Ahh! Was I being toyed with again?!
 
 *くぁあぁ！又しても弄ばれていた？！*
 
@@ -392,37 +392,37 @@ Kuh-oh! Was I being toyed with again?
 
 &nbsp;
 
-............ that's the "Lady in Crimson."
+"...........That is 'Lady Crimson.'"
 
 *「…………あれが『深紅の淑女』」*
 
 &nbsp;
 
-Huh? What? Did someone say something?
+Huh? What did someone just say?
 
 *ン？何だって？誰か何か言ったか？*
 
 &nbsp;
 
-Here we go! Sue, let's go!"
+"Look! Sue, let's go!"
 
 *「ほら！スー行くわよ！」*
 
-"...... Uh-huh."
+"....Oh, okay."
 
 *「……あ、うん」*
 
 &nbsp;
 
-I turned around but no one was looking at me.
+I turned around, but no one was looking our way.
 
 *後ろを振り向いたけど誰もこちらを見ていない。*
 
-Oh well.
+Well, whatever.
 
 *まあいいか。*
 
-We followed Rudri's lead and went through the thick door at the back of the pub.
+For now, I followed Rudori, who was guiding us, and we passed through the thick door at the back of the pub.
 
 *取りあえず案内してくれるルドリさんの後に付き、わたし達はパブの奥にある分厚い扉を抜けたのだ。*
 
@@ -440,45 +440,43 @@ We followed Rudri's lead and went through the thick door at the back of the pub.
 
 &nbsp;
 
-"Is that thing ...... so?"
+"Is that... really it?"
 
 *「アレが……そうか？」*
 
-Oh, there's no mistaking it. There is no mistaking that hair. I definitely saw her slaughter a hexenbiest in an instant."
+"Yeah, no doubt about it. That hair is unmistakable. I definitely saw her slay a magical beast in an instant."
 
 *「ああ、間違いない。あの髪は見間違いようが無い。俺は彼女が一瞬で魔獣を屠るのを確かに見た」*
 
 &nbsp;
 
-I also heard that you destroyed the Anatolian organization in the old civic district.
+"I heard she wiped out the Anatris organization in the old citizen district."
 
 *「旧市民街にあった、アナトリスの組織を壊滅させたとも聞いたが」*
 
-Yes, that's her. I saw that too. I am horrified even now when I remember it. What's terrifying is that she's causing a pool of blood around her, and yet she doesn't get a single drop of blood back. And yet, her eyes looking around coldly... ......!
+"That's right, it was her. I saw that too. Even now, it sends chills down my spine. What's terrifying is that while the surroundings were a sea of blood, she didn't have a single drop on her. And that cold gaze as she surveyed the area...!"
 
 *「そうだ彼女だ。それはオレも見た。今思い出してもゾッとする。何が恐ろしいって、周りを血の海にしているって言うのに、本人は返り血ひとつ浴びちゃいない。それでいて、冷ややかに辺りを見回すあの眼が……！」*
 
 &nbsp;
 
-Everyone thought the stories that came out last year about taking down a thousand bandits in Grolska and destroying a pirate fleet off the coast of Oceanoos were eyebrow-raising. ......
+"Last year, there were rumors that she defeated a band of thieves numbering around a thousand in Grolska, and that she annihilated a pirate fleet off the coast of Oceanos. Everyone thought those stories were exaggerated..."
 
 *「去年伝わって来た、グロールスカの1000人規模の盗賊団を討伐したとか、オセアノス沖で海賊船団を壊滅させたとか言う話、眉唾だと誰もが思っていたがな……」*
 
-You saw that thick killing spirit that was released just for a moment. He didn't even realize that he had momentarily atrophied."
+"I saw it, that intense killing intent released for just a moment. She didn't even realize she had shrunk back in fear."
 
 *「見たろうが、一瞬だけ放たれたあの濃厚な殺気。アイツ、瞬間的に自分が萎縮した事すら気付いちゃいない」*
 
 &nbsp;
 
-That's the thing, Amcam's ......."
+"That is... Amukam's..."
 
 *「アレが、アムカムの……」*
 
-Yes, no doubt about it. That's Lady Crimson, the Bloody Lady. The Princess of Amkam.
+"Yes, without a doubt. That is Lady Crimson, 'The Bloodstained Lady.' The princess of Amukam."
 
 *「そうだ間違いない。あれがレディクリムゾン『血塗れの淑女』。アムカムの姫だ」*
-
-
 
 &nbsp;
 
@@ -490,7 +488,6 @@ Thank you for reading.
 
 &nbsp;
 
-Thank you for your buzz and your rating! We are always encouraged!
+Thank you for your bookmarks and ratings! They always motivate me!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
-
