@@ -1,146 +1,145 @@
-# What?　Sending wolf?
+# Huh? A Sending Wolf?
 
-<blank>
+<b>
 
-I leave Mashiro and return to the inn.
+After parting with Mashiro-san, I returned to the inn.
 
-I could have used the transfer magic to return to the base, but since I had come all this way, I decided to walk home.
+I could have used teleportation magic to return to my base, but since I came all the way here, I decided to walk back.
 
-<blank>
+<b>
 
-However, although I had found a sacred object, I could not get it. Too bad.
+However, even though I found a divine artifact, I couldn't obtain it. What a shame.
 
-I can't do something like destroying a town, can I? Karina, you may look like a pacifist, but you're a pacifist.
+I can't just destroy a whole town, after all. Karina-chan may look like this, but she's a pacifist, you know?
 
-<blank>
+<b>
 
-So, I am willing to look for something else divine. I can get some information from Grandma Maria, but maybe I should be the one to look for it.
+So, I want to look for another divine artifact. I can get information from Maria-baa, but it might be better for me to search on my own.
 
-But frankly speaking, I don't think I can find out more about her than Grandma Maria. Grandma Maria is the former wife of the former lord's wife, and she has all kinds of contacts. She would be able to hear rumors much more extensively than me, who is a user of spatial magic.
+But honestly, I don't feel like I can investigate better than Maria-baa. She's a big shot as the former lord's wife and has various connections. She probably hears rumors much more widely than I do as a user of spatial magic.
 
-<blank>
+<b>
 
-As I was thinking about this as I walked along, I noticed that there was some kind of commotion around me. There seemed to be some kind of fight going on. What is it?　I'll be an onlooker too.
+While I was thinking about such things and walking around aimlessly, I noticed that the surroundings were quite noisy. It seemed like there was a fight going on. Huh, what's happening? I want to be a bystander too.
 
-<blank>
+<b>
 
-"You're a fool to lay a hand on my daughter!　Hey!
+"Hey, you! How dare you lay a hand on my daughter! Come on!"
 
-I said, "Shut up!　Stepfather, give me your daughter!"
+"Shut up! Father-in-law, give your daughter to me!"
 
-You're not going to do it!　You're gonna have to beat me first, you little fish!"
+"Bring it on, you fool! Talk after you defeat me, you weakling!"
 
-<blank>
+<b>
 
-Oh, a courtship ceremony. I like it!
+Oh, a marriage proposal ceremony, huh? Nice!
 
-An old man who looked like a bar owner, a full-bodied, fluffy tiger, and a pissed-off, adventurer-like man with bear ears were beating each other up. It was a beastly battle. Nice.
+A fluffy tiger man who looks like a tavern owner and a muscular adventurer with bear ears were fighting. It's a beastman battle. Good stuff.
 
-In case you're wondering, the one who is courting is the bear-eared adventurer.
+Just to clarify, the one proposing is the bear-eared adventurer.
 
-<blank>
+<b>
 
-Oh, are you also taking bets on who will win?　I like mofu mofu, so I'll bet on the old man. Give me a bite.
+Oh, are they also betting on who will win? I like fluffiness, so I'll bet on the old man. Give me a piece of that.
 
-<blank>
+<b>
 
-Dad!　There!　Belly, hang in there!　Now, let's see who's going to win!　I'm almost done with you two, so don't fall over either of you until then!
+"Dad! Over there! Berry, do your best! Now, let's see who wins! Both of you, don't fall down until the deadline!"
 
-<blank>
+<b>
 
-And the tiger-eared girl who is fighting with him seems to be the betting man.
+And it seems that the tiger-eared daughter is acting as the bookmaker for the bets.
 
-I hear if you win the bet, you get one drink per sip. Either way, that's sales, tough guy.
+If you win the bet, you can drink one cup of alcohol for each bet placed. Either way, it's profit, how resourceful.
 
-<blank>
+<b>
 
-Kasha!　So I tell you every time, don't bet against your father!"
+"Karsha! I've told you many times not to make your father the betting target!"
 
-Haha, I'll go easy on you until then if Kasha says so!"
+"Hahaha, if Karsha says so, I'll hold back until then!"
 
-What?　You can't lick me!
+"Huh? You think you can underestimate me, huh?!"
 
-<blank>
+<b>
 
-A blow from the old tiger caught the bear-eared man in the jaw, and the bear man was punched away.
+The tiger man's punch caught the bear-eared man's jaw, and the bear man was knocked away.
 
-<blank>
+<b>
 
-I'm not going to let you go easy on me!　You're a hundred years too old to go easy on me!"
+"Gahaha! It's a hundred years too early for you to hold back against me!"
 
-Ugh, ugh ......"
+"Ugh...!"
 
-<blank>
+<b>
 
-Bear-eared man, down! ...... One, two, three!　Kankan kankan!　Settlement!
+Bear-eared man, down! ...One, two, three! Ding ding ding! Match over!
 
-<blank>
+<b>
 
-Hey, is this kind of thing an everyday occurrence?"
+"Hey, is this kind of thing a daily occurrence?"
 
-"Yeah, rather. Here, every time there's a marriage proposal, the father defends it."
+"Yeah, pretty much. Here, every time there's a proposal, the old man has to defend himself."
 
-<blank>
+<b>
 
-Hmmm. You're doing well, aren't you? I mean, is she really being courted that much? She's very popular, isn't she?
+Hmm. That's lively. I mean, is she really proposed to that often? That girl must be quite popular.
 
-Anyway, I won the bet and was treated to a round of drinks at the bar. Tsk.
+Anyway, having won the bet, I was treated to a drink at the tavern. Hiccup.
 
-<blank>
+<b>
 
-* * * *
+＊　＊　＊
 
-<blank>
+<b>
 
-"Hey, isn't that Karina? What, are you drinking?"
+"Hey, isn't that Karina? What’s up, drinking?"
 
-Huh?　It's Mr. Masirow. Yoo-hoo!"
+"Eh? Mashiro-san! Hello!"
 
-<blank>
+<b>
 
-I was taking a walk with Fluffy and was approached by Masilo.
+While I was wandering around, I was called out by Mashiro-san.
 
-<blank>
+<b>
 
-I'm busy with all kinds of things here, but I'm not that busy. Yeah, they'll have someone who knows more about bombs look into it tomorrow.
+"Geez, I'm busy with various things, and you're just carefree. Oh, it seems someone will investigate the bomb in detail tomorrow."
 
-I see.
+"Is that so?"
 
-I'm totally drunk. Are you okay with ......?"
+"You're completely drunk, huh? ...Are you okay?"
 
-I'm fine, I'm fine, I'm the greatest, I'm the greatest, I'm the greatest, I'm the greatest ......?　Did I get the order wrong? ...... Anyway, all is well."
+"I'm totally fine, I'm the best, invincible, giant... huh? Did I mix up the order? Anyway, I'm fine!"
 
-I guess not. Hey, which way to the inn?　I'll give you a ride."
+"It doesn't seem like it. Hey, which way is the inn? I'll take you there."
 
-What?　A sentinel wolf?　Just because you're a Blutbad?　Ehehe."
+"Eh? A sending wolf? Just because you're a wolf beastman? Ehehe."
 
-<blank>
+<b>
 
-And Masilo-san lends me his shoulder.
+With that, Mashiro-san lent me his shoulder.
 
-Oh, but Mr. Masilo is not tied to Carina the Adventurer, is he?
+Wait, but I haven't connected Mashiro-san with the adventurer Karina-chan.
 
-That means we can't just go back to the inn like this, right?
+Does that mean if I go back to the inn like this, it would be bad?
 
-<blank>
+<b>
 
-Can I stay over tonight ......?"
+"Can I stay over tonight...?"
 
-"An?　I don't care."
+"Huh? I don't mind."
 
-I'm going to sleep with Masilo tonight!　I'm going to mooch off Mr. Masilo tonight and go to bed!"
+"Yay! Tonight, I'm going to cuddle with Mashiro-san while I sleep!"
 
-I'd say give me a break on that. ...... Well, okay."
+"I'd like to say please don't, but... well, whatever."
 
-<blank>
+<b>
 
-<blank>
+<b>
 
-Thus, I spent the night at Masilo's house. Hiccup.
+Thus, I spent the night at Mashiro-san's house. Hiccup.
 
-Needless to say, I had to get down on my knees to Mr. Masilo first thing in the morning the next morning.
+The next morning, it goes without saying that I had to apologize to Mashiro-san first thing. 
 
-<blank>
+<b>
 
-<blank>
-
+<b>

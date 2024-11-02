@@ -1,174 +1,173 @@
-# The dungeon I came to
+# Here Comes the Dungeon
 
-<blank>
+<b>
 
-So here we are, the dungeon.
+So, here we are at the dungeon.
 
-Today, the three of us will attack without Sati-tan. It was our first time working together, so I wondered how it would go. It would be safer without Sati, since we could use all our spatial magic.
+Today, we’re tackling it with just three of us, without Sati-tan. After all, it’s our first collaboration, and I wonder how it will go. It’s safer without Sati-tan since we can fully utilize spatial magic.
 
-<blank>
+<b>
 
-In the center of Carcassa is a rocky hill surrounded by an inner wall. The dungeon extends down from a cave there.
+In the center of Karkassa, there’s a rocky mountain surrounded by inner walls. The dungeon expands downward from a cave that opens there.
 
-The dungeon is a cave-type dungeon with monsters living inside.
+The dungeon is a cave-type dungeon, inhabited by monsters.
 
-There is a reception desk at the gate of the inner wall, where you can enter by showing your Adventurers' Guild card.
+At the gate of the inner wall, there’s a reception area where you can show your adventurer guild certificate to gain entry.
 
-<blank>
+<b>
 
-"Hey, girls. Are you all right with that kind of equipment?"
+“Hey, girls. Are you sure you’re okay with that equipment?”
 
-I'm fine. I'm fine. In this dungeon, evasiveness seems to be more important than defense.
+“We’re fine, no problem. In this dungeon, it seems evasion is more important than defense.”
 
-Well, I hope you know what you're getting into. The admission fee is one copper coin per person."
+“Well, as long as you understand that. The entrance fee is one copper coin per person.”
 
-Aiyo."
+“Got it.”
 
-<blank>
+<b>
 
-However, the slave Isiah was treated as a tool and was free as my appendage.
+However, the slave Aisia was treated as a tool and was free as my accessory.
 
-Such is the case with Isiah, who was made to carry my backpack and porter it. The actual contents are stored in spatial magic, but just for show.
+I had Aisia carry my backpack and act as a porter. The actual contents are stored using spatial magic, but it’s just for show.
 
-<blank>
+<b>
 
-<blank>
+<b>
 
-The inside of the dungeon was truly a bare rock cave.
+Inside the dungeon, it was truly a cave with exposed rocks.
 
-However, it is wide enough that it is not inconvenient to wield a sword, and the foothold is firm and relatively flat. If it were a spear, it might catch a stone.
+That said, it was spacious enough to swing a sword without inconvenience, and the footing was solid and relatively flat. If it were a spear, it might get caught.
 
-Strangely enough, it is not dark inside the cave. It seems that you can explore the cave even if you don't have any lights, but the visibility is not good. It is strange that only one's surroundings seem to be bright.
+Strangely, the cave wasn’t dark; it was bright. It seemed possible to explore without any light, but visibility wasn’t great. It felt odd that only my surroundings were brightly lit.
 
-<blank>
+<b>
 
-When I stepped into the dungeon, there was a soft, humid air in the air. The air was filled with a mixture of anxiety that demons might come out and attack from just around the corner, from the ceiling, or even from the floor.
+As I stepped into the dungeon, a humid, soft air wafted around. There was a mix of anxiety that monsters might suddenly emerge from the corners, ceilings, or floors.
 
-In fact, there are mushrooms growing at the edge of the floor, which, when they grow, will become myconids and walk away.
+In fact, there were mushrooms growing at the edge of the floor, which, when they grow, are said to turn into myconids and start walking.
 
-...... I wonder what these mushrooms grow on for nourishment?　Manna or something like that?
+…What are these mushrooms feeding on, I wonder? Mana or something like that?
 
-<blank>
+<b>
 
-Hey, now that you mention it, Deere, can you fight?"
+“Hey, it’s a bit late to ask, but can you fight, Dia-kun?”
 
-It's really a little late for that, isn't it? I can use magic to the extent that I have a taste for it. For dungeons, fire magic would be good, right?"
+“It really is late to ask. I can use magic to a certain extent. Fire magic would be good for a dungeon, right?”
 
-<blank>
+<b>
 
-Dia took out a wooden cane about 50 centimeters long, about the length of a baton. It has a jewel on the end. Where did you get it?　Oh, Mr. Kumin gave it to me.
+With that, Dia-kun took out a wooden staff about 50 centimeters long, roughly the length of a baton. It had a gem at the tip. Where did he get that? Oh, he borrowed it from Kumin-san.
 
-I didn't know wizards used wands like that. ......
+So, wizards use those kinds of staffs, huh? I didn’t know that…
 
-<blank>
+<b>
 
-Aruji-sama. The magic wand is very expensive. It's called a magic catalyst."
+“Master, magic staffs are really expensive. They’re called magic catalysts.”
 
-"Really?　Well, how much?"
+“Is that so? How much are they?”
 
-Uh, gold coins one, two, three ...... full!
+“Um, let’s see, one, two, three gold coins… a lot!”
 
-<blank>
+<b>
 
-Hmmm, was Isiah a 'full of numbers above 3' people?
+Hmm, Aisia is the type who thinks “more than three is a lot.”
 
-I was wondering if it was similar because Satitan is a merchant and can do a lot of calculations. ...... Well, there is no such thing as compulsory education in this world.
+I thought it was similar since Sati-tan is a merchant and can calculate well, but… right, there’s no compulsory education in this world.
 
-<blank>
+<b>
 
-'This was a wand that cost about seven gold coins, I think. It uses less than half the magic, so you can do twice as much magic."
+“I think this staff was about seven gold coins. It reduces the magic power used by half, so you can cast double the spells.”
 
-"Wow. That's very expensive, Dear."
+“Wow. That’s expensive, Dia-kun.”
 
-It's not that much. It's one of the cheaper magic wands."
+“It’s not that expensive. It’s on the cheaper side for magic staffs.”
 
-<blank>
+<b>
 
-Yes, it's expensive and it's an aristocrat's way of thinking. It's expensive for me, a commoner.
+Yeah, that’s expensive, and it feels like a noble’s perspective. It’s expensive for a commoner like me.
 
-<blank>
+<b>
 
-<blank>
+<b>
 
-Can the Anji-sama not only heal, but also fight?"
+“Master, can you fight as well as heal?”
 
-I've never seen Karina fight before. I've seen her defeat her prey.
+“Now that you mention it, this is my first time seeing Karina-onee-san fight. I’ve seen the prey she’s defeated, though.”
 
-I'm good at scouting and carrying baggage!　Oh, I'm also good at spotting and carrying luggage!
+“Hehe, I can handle the front line, back line, and mid line! Oh, I’m also good at scouting and carrying things!”
 
-Isn't that the whole point?
+“Doesn’t that mean you can do everything?”
 
-<blank>
+<b>
 
-Yeah, I'm a space wizard who can do anything solo. I was originally a solo space wizard who could do anything.
+Yeah. I’m originally a spatial magician who can do anything solo.
 
-<blank>
+<b>
 
-I'm just going to take a look at the dungeon today. "Well, today we are going to check out the dungeon and see what the two of us can do. When you and Sati go with me, let's divide up the roles based on what we see today.
+“Well, today is just to observe the dungeon. It’s also to check what the two of you can do. When we go with Sati-tan, let’s make sure to divide roles based on today’s experience.”
 
-If the Anji-sama is protecting me, I feel safe!"
+“If Master is protecting us, then we can feel safe!”
 
-<blank>
+<b>
 
-Oh yeah. I'll protect you so you can try it absolutely safely!
+That’s right. I’ll protect you, so you can test things out safely!
 
-I don't forgive surprise attacks.
+I won’t allow any surprise attacks either.
 
-<blank>
+<b>
 
-There is one Crowler in the Achilles' heel, so let me take him out first to show you what I can do."
+“There’s a crawler over there, so let me show my power by taking it down first.”
 
-<blank>
+<b>
 
-Once you get into spatial magic, finding the enemy is as easy as breathing.
+With spatial magic, scouting is as easy as breathing.
 
-So, my first monster, a crawler. ...... Wow, it's bigger than I thought it would be. It's about the size of a medium-sized dog. It was eating mushrooms that grew on the ground.
+So, our first monster is a crawler, but… wow, it’s bigger than I expected. It’s about the size of a medium-sized dog. It’s munching on the mushrooms growing on the ground.
 
-They seem to be omnivores and will attack adventurers with their paralyzing venom.
+It seems to be omnivorous and attacks adventurers with paralysis poison.
 
-<blank>
+<b>
 
-I wonder how I'm going to take it down. Slice it into rings?　Crush the head?　Or do I sever the nerves and make it nice and clean with no trauma?"
+“How should we take it down? Should we slice it? Crush its head? Or cut its nerves for a clean shape without external wounds?”
 
-Then cut them into rounds?"
+“Then, how about slicing it?”
 
-Hoi."
+“Okay.”
 
-<blank>
+<b>
 
-With a snap of his fingers, the crawler was cut into a circle. Phew, bodily fluids flooded from the cut surface. ...... I wonder if this is mixed with paralyzing poison.
+With a snap of my fingers, the crawler was sliced. A squishy sound as bodily fluids oozed from the cut… I wonder if this has paralysis poison mixed in.
 
-<blank>
+<b>
 
-The hard part of the epidermis has been cut cleanly!　Even the hard parts of the epidermis have been cut cleanly!
+“W-Wow, Master! The hard outer skin has been cut cleanly too!”
 
-I thought I knew how good your sister's magic was at ......, but I didn't realize it could normally work against living creatures."
+“I thought I knew about your magical skills, but it seems they work perfectly fine against living beings.”
 
-'Rather, the magic of tormenting living creatures ...... No, it's nothing. I had a good master."
+“Rather, it’s magic for tormenting living beings… no, never mind. It’s thanks to my master.”
 
-<blank>
+<b>
 
-Thanks to God's tutorial, the combat side is perfect.
+Thanks to the god’s tutorial, I’m all set for combat.
 
-<blank>
+<b>
 
-What about Alicia? What about Isiah?"
+“Next, Dia-kun, you try fighting. What will Aisia do?”
 
-I can't fight. I'll just be a baggage handler. With my bardic skills, I can search for enemies a little, but I'm not as good as you.
+“I can’t fight. I’ll stick to carrying things. I can do a bit of scouting with my bard skill, but I can’t compare to Master.”
 
-Oh. Echolocation?　Great, then I'll have Isiah do the spotting next time."
+“Oh. Is that the echolocation thing? That sounds good. Then I’ll have Aisia scout from now on.”
 
-"Are you sure?　It would probably be safer if you were the one searching for the enemy."
+“Is that okay? It’s probably safer if you do the scouting, Master.”
 
-'I can do everything, so I'll do the extra work. Or are you going to let me do all the work and make it easy for you?"
+“I can do anything, so I’ll take on the leftover tasks. Or do you not want to let me do all the work and let you relax?”
 
-I'm sorry," he said!　Then, let me search for the enemy!
+“N-No way! Then I’ll do the scouting!”
 
-<blank>
+<b>
 
-Mm-hmm, please take care of it.
+Alright, I’m counting on you.
 
-<blank>
+<b>
 
-<blank>
-
+<b>

@@ -1,170 +1,167 @@
-# Shall we just buy something and listen to what you have to say (Deere's point of view)?
+# For now, shall we buy something and hear the story? (From Diar's perspective)
 
-<blank>
+<b>
 
-Well, that's how I came to the grimoire shop.
+Well then, we've arrived at the magic tool shop.
 
-<blank>
+<b>
 
-Look, Arthur. They say this is a magical tool that plays melodies!"
+"Look, Arthur. This is a magic tool that plays a melody!"
 
-I'm sure Miss Hagan will be pleased!　A music box. I wonder if Miss Hana will be pleased.
+"Wow, that's amazing! A music box, huh? I wonder if the sister would be happy about it."
 
-<blank>
+<b>
 
-It is also possible to use magical tools as a sympathy gift.
+Bringing a magic tool as a gift is also an option.
 
-<blank>
+<b>
 
-"...... By the way, I'm getting the feeling you've been watching me a lot from afar since a while ago."
+"By the way, I feel like we've been watched from a distance for a while now."
 
-Well, it's a combination of an elf and a dragon. It would be crazy not to see it.
+"Well, it's a combination of an elf and a dragon. It's strange if we aren't being watched."
 
-'Mm, sure. ...... for now, let's just buy something and see what you have to say."
+"True enough. For now, shall we buy something and hear the story?"
 
-<blank>
+<b>
 
-I picked up one of the potions that was just there and headed for the counter.
+With that, I picked up a potion that was right there and headed to the counter.
 
-...... paralyzing potion. It seems to be a potion that does not correct paralysis, but on the contrary, numbs it and stops the pain. I didn't know there was such a thing.
+…A paralysis potion. It seems to be a potion that causes paralysis rather than curing it, used as a painkiller. I didn't know such things existed.
 
-<blank>
+<b>
 
-Excuse me, can I have this?"
+"Excuse me, I'll take this."
 
-Oh, oh. Two large copper coins."
+"O-oh. That'll be two large copper coins."
 
-Yes. ...... By the way, I heard there's a sacred artifact in this town."
+"Here you go. By the way, I heard there’s a divine artifact in this town."
 
-<blank>
+<b>
 
-I'm going to ask the country to be precise, but I'm going to ask the town to be more specific.
+To be precise, it’s in the country, but I narrowed it down to the town to probe a bit.
 
-<blank>
+<b>
 
-What is it, Mr. Elf, you've come to see the Breaking Wall Hammer?"
+"What’s this, elf? Are you here to see the wall-breaking hammer?"
 
-<blank>
+<b>
 
-We hit the jackpot out of the blue!　Today is my lucky day.
+What a lucky hit! Today is my lucky day.
 
-<blank>
+<b>
 
-So the sacred artifact is called the "Breaking Wall Hammer."
+"So the divine artifact is called the wall-breaking hammer."
 
-Oh, no. No. The "Hepa Hammer" is a common name for the hammer. The official name is Hepa Nuncha ....... Well, it's enshrined in a museum."
+"Ah, no. The wall-breaking hammer is just a nickname. The official name is something like Hepa... well, it’s housed in the museum."
 
-<blank>
+<b>
 
-It did not seem to be the official name. However, I found the location.
+It seems that wasn’t the official name. However, I found out where it is.
 
-<blank>
+<b>
 
-"Art museum?　Is there an art museum in this town?"
+"A museum? There’s a museum in this town?"
 
-Oh," he said, "the Five Elders of the Bar have made it so. The Five Elder Barr said that a sense of aesthetics is essential for a craftsman.
+"Yeah. The elder of the five great elders made it because he believed that aesthetic sense is essential for craftsmen."
 
-<blank>
+<b>
 
-The Five Elders. He is the heavyweight of this Tessin and just the person your sister said she got along with.
+The five great elders. That’s the influential figure in Tesshin that the sister just mentioned she got close to.
 
-Mr. Barr is probably Mr. Vermillion among them.
+The elder referred to must be Lord Vermilion.
 
-<blank>
+<b>
 
-The place is over there. It's for dwarves, so it might be small for other races, but, well, I'm sure your daughter will be fine."
+"The location is over that way. It might be small for other races since it’s aimed at dwarves, but it should be fine for you, young lady."
 
-<blank>
+<b>
 
-The owner of the restaurant smiles smugly.
+The shopkeeper smiled proudly.
 
-<blank>
+<b>
 
-"No, I'm a guy."
+"Actually, I'm a guy."
 
-"Oh, yeah," he said, "my eyes can't be fooled. My eyes can't deceive me, but I'll just leave it at that.
+"Oh right, I can't fool my eyes, but let's just go with that."
 
-<blank>
+<b>
 
-Yeah, it looks like a knot.
+Yeah, seems like a blind spot.
 
-<blank>
+<b>
 
-And by the way. Is that monitor lizard over there possibly a child of the ...... dragon?　If you have some scales or something, would you sell them to me?　I'll give you a large silver coin, or two, for one!"
+"By the way, is that big lizard over there... a baby dragon? If it has scales, could you sell them to me? I’ll give you one large silver coin, no, two coins for one!"
 
-Oops, you're really underpricing me, aren't you?　One gold coin for one gold coin!
+"Whoa, you’re haggling pretty hard, huh? Hehe. One scale for one gold coin!"
 
-What?　Word cards!　A dragon that understands words! ...... Oh, it's real!　But one gold coin is too expensive!"
+"What!? A vocabulary card!? A dragon that understands words!? …Is it really genuine!? B-but one gold coin is too expensive!"
 
-If so, it's okay, I just might not get it again. Let's go, master.
+"If that's the case, then it's fine. It might be something you can't get again. Let's go, Master."
 
-<blank>
+<b>
 
-And Arthur tries to pull me by the tail to get out of the store.
+With that, Arthur tried to pull me out of the shop with his tail.
 
-Casually calling him master is a masterful performance.
+The casual way he calls me Master is quite the performance.
 
-<blank>
+<b>
 
-I'm not saying I won't put out . I didn't say I wouldn't pay ....... I mean, can't I get two gold coins for three scales?"
+"Wait, wait, wait. …I didn’t say I wouldn’t pay. How about two gold coins for three scales?"
 
-'Hmm, well, that's good, right?　Just a little bit. Here, let's exchange.
+"Hmm, well, if that's the case, then it's fine? Here, let’s exchange."
 
-I've never known ...... dragons to be good at business!　Take that, two gold coins.
+"Ugh... I never knew dragons were so good at business...! Here, take it, two gold coins!"
 
-<blank>
+<b>
 
-and Arthur easily exchanged the scales for two gold coins.
+With that, Arthur easily exchanged the scales for two gold coins.
 
-A dragon is a fearsome thing to earn gold this easily. No, Arthur.
+To earn gold coins so easily, dragons are truly fearsome. No, Arthur is.
 
-<blank>
+<b>
 
-Thank you every time!　Come again, won't you!"
+"Thanks for your business! Come again!"
 
-<blank>
+<b>
 
-The owner saw me off and I left the grimoire shop.
+Waved off by the shopkeeper, we left the magic tool shop.
 
-......
+……
 
-<blank>
+<b>
 
-By the way, what's the going rate for dragon scales?"
+"By the way, what’s the market price for dragon scales?"
 
-I got 6 large silver coins for 1 piece. They paid a little more for it!　It's fresh from the real thing, and it's direct from the source, so they added a little color to it.
+"About six large silver coins for one scale. You bought it a bit high! Freshly plucked from the real deal, direct from the source, so I guess you could say I added some color for that?"
 
-Oh, so it's not like you're getting ripped off or anything."
+"Oh, so it’s not a rip-off."
 
-We don't want people to hold a grudge against us. We stand out.
+"Yeah, it’d be troublesome if we were resented. We stand out too much."
 
-<blank>
+<b>
 
-And so, with the information about the sacred object of our goal, we returned to our base.
+With that, we obtained the information about the divine artifact we were after and returned to our base.
 
-<blank>
+<b>
 
-<blank>
+<b>
 
-I also gave my sister a pain relief potion as a sympathy gift, and between you and me, she was very pleased and hugged me, and the sweat smelled so good that it warmed the back of my nose. Yes, I know.
+By the way, when I gifted the painkiller potion to the sister as a get-well gift, she was very happy and hugged me, and the sweet scent made my nose feel warm, but that’s a secret. Yes.
 
-<blank>
+<b>
 
-<blank>
+<b>
 
-
-
-<blank>
+<b>
 
 ----------------
 
 (Notice below)
 
-The official X (formerly Twitter) account has added more information about Isiah.
+On the official X (formerly Twitter) account, information about Aisia has been added.
 
-And they use that line in the introduction that was not in the web version.......W...abele editorial N!
+And it seems they’re using that line which wasn’t in the web version… w, you sly editor N!
 
-<blank>
+<b>
 
-The official account can be found at the link in the cover picture below!
-
+You can find the official account from the link to the cover illustration below!

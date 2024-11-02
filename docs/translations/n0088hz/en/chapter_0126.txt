@@ -1,148 +1,147 @@
-# Empire!　Is that what it's all about?
+# Empire! So that's a thing.
 
-<blank>
+<b>
 
-<blank>
+<b>
 
-Yes, let's give them some items to contact us as well."
+"Right, let me give you some items for contact as well."
 
-<blank>
+<b>
 
-and produces five pieces similar to the ones he gave to Mr. Masiro and places them on the table.
+I created five items similar to the magatama I gave to Mashiro-san and placed them on the table.
 
-<blank>
+<b>
 
-If something goes wrong, just tap on it and talk to me, and I'll hear you. It will work for two weeks, give or take.
+"If anything happens, just give it a light tap and it will reach me. The effect lasts comfortably for two weeks."
 
-"This is ...... such a valuable magical tool. Thanks for your help."
+"This is... such a precious magical tool. Thank you for your cooperation."
 
-<blank>
+<b>
 
-It's not a magical tool, but let's not get into it. Mr. Healer can also make magical tools, so it's just as well.
+It's not a magical tool, but I won't point that out. The healer can create magical tools, so it's just right.
 
-<blank>
+<b>
 
-<blank>
+<b>
 
-And, Mister Healer, I have one more favor to ask you. I have one more favor to ask of you.
+"And, Healer-dono, I have one more request, if that's alright."
 
-"Mm?　What is it?　Depends on what it is."
+"Hm? What is it? It depends on the content."
 
-It's about the bomb that was planted in the core of the dungeon."
+"It's about the bomb that was set in the dungeon's core."
 
-<blank>
+<b>
 
-Oh, well, there was something like that.
+Ah, now that you mention it, there was that.
 
-<blank>
+<b>
 
-"Oh, Guillermas, have you figured it out yet? What is it, Guilmouth? Have you figured out what it is already?　You're a fast investigator."
+"Oh. What is it, Guild Master? Have you figured something out already? You're quick to investigate."
 
-I'm sure it's obvious, Silver. I had some idea of what was going on when you brought it to me yesterday.
+"Of course, Shirogane. This is a major issue for the dungeon. I had a rough idea since the moment you brought it in yesterday."
 
-"Well, why didn't you say so earlier?"
+"Oh, if that's the case, you should have told me sooner."
 
-<blank>
+<b>
 
-Oh dear," shrugs Mashiro.
+Good grief, Mashiro-san shrugs.
 
-Garoon laughs it off with a huff.
+Garoon lightly laughs it off.
 
-<blank>
+<b>
 
-'If I were to bypass my personal intuition, it would be an international problem, wouldn't it?　Well, I had him check it out, and he was right.
+"If I were to say something careless based on personal intuition, it could become an international issue, right? Well, the results of my investigation turned out to be just that."
 
-Hmm?　That means there were other countries involved. An empire?"
+"Hm? So that means other countries were involved. The Empire?"
 
-I'm not sure what to make of it. It was apparently the work of the Gidlaga Empire. It means that a bomb was planted in the core by sneaking through the magic tools of the warding. The fact that ...... the warding was subverted is not that surprising. The empire is the second most advanced country in magic tools after the alchemy kingdom."
+"Yes. It seems that was the work of the Gidlaraga Empire. The bomb was placed in the core, bypassing the magical tools of the barrier. ...It's not too surprising that the barrier was bypassed. The Empire is a leading country in magical tools, second only to the Alchemy Kingdom."
 
-<blank>
+<b>
 
-Gidlaga Empire!　Is that what it's all about?
+Gidlaraga Empire! So that's a thing.
 
-<blank>
+<b>
 
-What is the Gidlaga Empire? What is the Gidlaga Empire?　Sorry, I'm not familiar with the mundane world."
+"Garoon-dono, what is the Gidlaraga Empire? I'm sorry, but I'm not well-versed in the secular world."
 
-I see. Then let me explain."
+"Is that so? Then let me explain."
 
-<blank>
+<b>
 
-His name is cool, too, with all those muddy letters. Is he an evil emperor or something? I'm a little excited.
+The name is cool with lots of voiced consonants. I wonder if they have an evil emperor or something. I'm a bit excited.
 
-<blank>
+<b>
 
-The Ghidoraga Empire is a great power that controls half of this continent. They claim that dungeons are evil beings that suck the energy out of the world and that the world will be destroyed if this situation continues. They claim that the number of dungeons should be reduced. ...... We can say that they are incompatible with us, the Kingdom of Pavelkant."
+"The Gidlaraga Empire is a major power that controls half of this continent. They claim that 'dungeons are a malevolent existence that sucks the energy from the world, and if this continues, the world will perish. The number of dungeons should be reduced'... and they can be said to be an existence that is incompatible with our Pavelkant Kingdom."
 
-<blank>
+<b>
 
-Oh, that's the truth. Mr. Empire said it right. ......
+Ah, that's the truth. The Empire was saying something correct...
 
-I'm not just talking about dungeons, I'm talking about sacred objects in general, but there's nothing wrong with that.
+To be precise, it's not just dungeons but all divine artifacts, but they aren't wrong about anything.
 
-<blank>
+<b>
 
-"Then I'd say destroy your own dungeons first, but you're actually reducing them. ...... You don't seem to be destroying all the stones, but you're certainly reducing them."
+"Then they should first destroy their own country's dungeons, but they are actually reducing them... It seems they won't destroy all of them, but they are definitely reducing them."
 
-And you're forcing it on the rest of the world?
+"And they are forcing that onto other countries as well."
 
-<blank>
+<b>
 
-Hmm?　Then why didn't they put a bomb on the core and blow it up right away? Let's ask him.
+Huh? Then why didn't they attach the bomb to the core and blow it up immediately? Should I ask?
 
-<blank>
+<b>
 
-Is there any reason why they didn't just blow it up?"
+"Is there some reason they didn't just blow it up right away?"
 
-Our alchemist told me that the timer was set to explode a few days later, on the new moon. Perhaps they were aiming for the core to be weakened.
+"Our alchemist said that a timer was set to explode on the new moon a few days later. Probably, they were aiming for the timing when the core would weaken."
 
-<blank>
+<b>
 
-Mr. Empire, who destroys dungeons, is said to be making progress in dungeon research.
+The Empire, which destroys dungeons, seems to be advancing research on them as well.
 
-They were aiming for a weakened day in order to ensure its destruction.
+As a result of aiming for certain destruction, they targeted the day of weakening.
 
-In fact, if I hadn't found it, it would have been blown up!
+In fact, if I hadn't found it, it would have been blown up.
 
-<blank>
+<b>
 
-'Hmmm, Mister Masilo. On the day of the new moon, will the core be weakened?"
+"Hmm, Mashiro-dono. Does the core weaken on the new moon?"
 
-'No thanks, if anything it will revitalize the dungeon. There will be more monsters."
+"No, rather, the dungeon becomes activated. Monsters increase."
 
-You're right," he said. But wouldn't it make sense if the activation of the dungeon was the opposite: 'The core is weakening, so they're fortifying the perimeter'?"
+"That's right, just as Shirogane said. However, if the activation of the dungeon is because 'the core weakens, so they are fortifying the surroundings,' don't you think that makes sense?"
 
-Oh, sure!　That's what I'm talking about, Guilmouth, you're a smart guy."
+"Oh, that's true! As expected of the Guild Master, you're smart."
 
-<blank>
+<b>
 
-Oh, I see. Well, that's one way to look at it.
+Oh. I see, that's one way to look at it.
 
-<blank>
+<b>
 
-<blank>
+<b>
 
-So. It is expected that the operative who planted the bomb will move toward the new moon. That side must not yet be aware that the bomb has been removed, ...... but there's also the question of how the operative got to the back of the dungeon in the first place."
+"So, it is predicted that the operatives who set the bomb will move towards the new moon. They probably haven't realized that the bomb has been removed yet... but there's also the question of how the operatives got deep into the dungeon."
 
-Yes, the doorkeeper!　Ask the doorkeeper, and you'll find out who's suspicious!
+"That's right, the door guard! If we ask the door guard, we might find out about any suspicious individuals!"
 
-...... By the way, if you just look at the situation, the most suspicious person is Mr. Healer."
+"...By the way, if we just look at the situation, the most suspicious one is the healer."
 
-<blank>
+<b>
 
-Hmm?　Me?
+Huh? Me?
 
-<blank>
+<b>
 
-He ignored the door guard and went to the lower level. It is also possible that he lied about the bomb being attached to the core in the first place, and that he only tricked Shiragane by showing him the bomb he had brought. The most important thing to do is to make sure that you have a good idea of what you're getting into. In addition, the style ......"
+"You ignored the door guard and went down to the lower levels. Moreover, the claim that there was a bomb attached to the core could be a lie, and you might have just shown the bomb you brought to Shirogane to deceive him—there's that possibility as well. In that case, there's no need to bypass the barrier in front of the core. Plus, that appearance..."
 
-<blank>
+<b>
 
-...... Surely, there are only suspicious elements?
+...Indeed, there are only suspicious elements, huh?
 
-<blank>
+<b>
 
-<blank>
+<b>
 
-<blank>
-
+<b>
