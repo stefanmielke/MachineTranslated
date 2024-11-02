@@ -33,7 +33,7 @@ def merge_files(jp_dir, en_dir, output_dir):
         with open(output_path, 'w', encoding='utf-8') as output_file:
             for en_line, jp_line in zip(en_lines, jp_lines):
                 # If either line contains '<blank>', write it only once
-                if jp_line.strip() == "<blank>":
+                if jp_line.strip() == "<blank>" or jp_line.strip() == "<b>":
                     output_file.write("&nbsp;\n")
                 elif jp_line.strip().startswith("!["):
                     output_file.write(jp_line.strip() + '\n')
@@ -49,8 +49,6 @@ def merge_files(jp_dir, en_dir, output_dir):
                 else:
                     output_file.write(en_line.strip() + '\n')
                     output_file.write('\n*' + jp_line.strip() + '*\n')
-
-        print(f"Merged file saved: {output_path}")
 
 if __name__ == "__main__":
     if len(sys.argv) != 2:

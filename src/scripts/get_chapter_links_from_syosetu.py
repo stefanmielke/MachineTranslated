@@ -1,6 +1,7 @@
 import requests
 from bs4 import BeautifulSoup
 import os
+import re
 
 headers = {
     "User-Agent": "Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/58.0.3029.110 Safari/537.3"
@@ -54,7 +55,7 @@ def save_chapter_text(url, output_folder, index):
             divs = article.find_all("div", class_="js-novel-text")
             for div in divs:
                 if div.has_attr('class') and 'p-novel__text--afterword' in div['class']:
-                    file.write("\n\n<blank>\n\n----------------\n\n")
+                    file.write("\n\n<b>\n\n----------------\n\n")
 
                 paragraphs = div.find_all("p")
                 for paragraph in paragraphs:
@@ -70,12 +71,21 @@ def save_chapter_text(url, output_folder, index):
                     else:
                         text = paragraph.get_text(strip=True)
                         if not text:
-                            file.write("<blank>\n\n")
+                            file.write("<b>\n\n")
                         else:
                             file.write(text + "\n\n")
 
                 if div.has_attr('class') and 'p-novel__text--preface' in div['class']:
-                    file.write("\n----------------\n\n<blank>\n\n")
+                    file.write("\n----------------\n\n<b>\n\n")
+        
+        # Remove duplicated blank lines and trailing blank lines
+        with open(file_path, "r", encoding="utf-8") as file:
+            content = file.read()
+        cleaned_content = re.sub(r'\n{2,}', '\n\n', content).rstrip('\n')
+        
+        # Write cleaned content back to file
+        with open(file_path, "w", encoding="utf-8") as file:
+            file.write(cleaned_content)
 
 def main(base_url, output_folder):
     # Create output folder if it doesn't exist
