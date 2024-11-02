@@ -12,7 +12,7 @@ The objective of this project is to serve as a base for other translations. Not 
 
 ### Process
 
-All translations were done using ML. Originally translated with DeepL.
+All translations were done using ML. Originally translated with DeepL and GPT4o-mini.
 
 #### Steps:
 
@@ -68,8 +68,6 @@ If you want a new series translated, please open an issue with the series name a
 
 ### Future Improvements
 
-- Improve the translation using other models. Open Source models tested could not reach a good quality, but I couldn't test with `nllb-200-3.3B`, only up to `nllb-200-1.3B`. ChatGPT 4o was the best one, but too expensive for this project.
-- Remove extra files from the website, and leave only the out files.
 - Create the website entirely using github actions.
     - Have to create home index.md automatically.
     - Move files out of docs folder (or use another folder for output?).
