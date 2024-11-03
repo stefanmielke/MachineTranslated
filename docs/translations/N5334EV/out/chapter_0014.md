@@ -1,11 +1,10 @@
-# 14 Suzie and the Cloud Family
+# Episode 14: Suzy and the Cloud Family
 
 ## 14話　スージィとクラウド家の人々
 
-This is Susie's point of view.
+From Suzy's perspective.
 
 *スージィ目線です。*
-
 
 ----------------
 
@@ -15,13 +14,13 @@ I ran while crying!
 
 *泣きながら走りました！*
 
-I jumped and ran and ran and ran and ran and ran and I hit them from one side to the other, crying!
+I jumped, ran, and charged in while crying, hitting everything in sight!!
 
 *泣きながら跳んで走って突っ込んで、片っ端から殴って行ったさ！！*
 
 &nbsp;
 
-'Uhey ～～～～～～n! What the heck is this number? There are four digits...huh! Huh! Tey! Running away...buh! They're turning...nurya! Hey! Uppuah! Damn it! Nooooo..! Sakanaaaa! Toooooo! I'm so hungry~! Uppii! What's with the ...... chii! So much...dearya! No, it's cancer! Oh...who's..! Whose....pkya! Sei...... Kunu...! Oh! Oh, dear! It's me! It's ...... gupupupo! It's me! It's me! It's me! Oh, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no, no!
+"Uhi~~~~~n! What the heck is with this number!? Pueh! There are four digits… huh!? Tii!! Run… buh! They're circling around… nuriya! Not a chance!! Upah! Damn itーーーー!! Nuhn! Fish!! Tou! I'm so hungry~~~~~!! Upii! What the hell… chei! There are so many… get lost! Toa! Whose… pukya! fault is this… kunu! Huh!? Owata! It's me… gupop! It's me! Uraaa! Is it me!! Ueeeee~~~~~n!!"
 
 *「うひぃぃ～～～～～～ん！なんなんだよこの数ぅ！ぷぇっ！4桁居んじゃ…くぁ！ねぇの！？てぃっ！！逃げ…ぶぁっ！回ってんじゃ…ぬりゃ！ねぇよっ！！うぷぁっ！ちくそぉーーーー！！ぬぅん！サカナぁ！！とうっ！腹減ったぁよ～～～っ！！うぴぃ！なんだって……ちぇい！こんなに…でりゃっ！いやがんだっ！とぁっ！誰のっ…ぷきゃっ！せい……くぬっ！だっ！？おゎたぁっ！オレだっ……ぐぷぽっ！オレだっ！うらぁっ！オレかぁ！！うえぇぇ～～～～～～んっ！！」*
 
@@ -29,49 +28,49 @@ I jumped and ran and ran and ran and ran and ran and I hit them from one side to
 
 &nbsp;
 
-There are hundreds of them!
+The number is roughly several hundred!
 
 *その数およそ数百！*
 
-They can't even do ranged attacks with their skills.
+I can't do area attacks with my skills.
 
 *スキルで範囲攻撃も出来ない。*
 
-There is no way they are in a straight line, and the forest is full of obstacles.
+They're not all in a straight line, and the forest is full of obstacles.
 
 *直線上に居る訳も無く、森の中は障害物だらけ。*
 
-We have to slaughter them directly one by one.
+I can only take them down one by one.
 
 *直接一体ずつ屠るしかない。*
 
-In the beginning, I was smashing it with two swords. ......
+At first, I was using dual blades to smash them down, but...
 
 *始めは二刀を使ってぶっ叩いてたんだけど……。*
 
 &nbsp;
 
-What? Wouldn't it be better to use the limbs together?
+Huh? Wouldn't it be better to use my hands and feet together?
 
 *アレ？手足一緒に使った方が良くね？*
 
-Wouldn't it be more efficient to break rocks and shoot finger bullets while you're at it?
+And while I'm at it, wouldn't it be more efficient to smash rocks and shoot finger bullets?
 
 *ついでに岩とか砕いて、指弾なんか撃った方が効率良くね？*
 
 &nbsp;
 
-I'm thinking, "I'm flying around, punching and kicking with my hands and feet.
+Thinking that, I started to punch and kick with bare hands, flying around.
 
 *と考えて、徒手空拳で殴ったり蹴ったりして飛び回ってる。*
 
 &nbsp;
 
-As a result, I ran into bushes, branches, rock surfaces, and the ground, getting hit hard and covered in blood.
+As a result, I charged in recklessly, crashing into bushes, branches, rocky surfaces, and the ground, getting splattered with blood, and it became quite a terrible sight.
 
 *結果、なりふり構わず突っ込んで、藪や枝、岩肌や地面に激突したり返り血を浴びまくったりで、結構酷い有様になった。*
 
-The Village Girl's Everyday Clothes" is in shreds! Siksik .......
+My 'Village Girl's Everyday Clothes' are in tatters! Sniff sniff...
 
 *『村娘の普段着』はズタボロですよ！シクシク……。*
 
@@ -79,13 +78,13 @@ The Village Girl's Everyday Clothes" is in shreds! Siksik .......
 
 &nbsp;
 
-He spent an hour or so going around destroying mobs over a wide 10-kilometer radius.
+After about an hour, I exterminated the mobs over a wide area with a radius of 10 kilometers.
 
 *彼此1時間ほどかけて、半径10キロの広範囲に亘るMobを駆逐して回った。*
 
 &nbsp;
 
-What's up, asshole? We're almost done! ...... Damn it, we're less than a kilometer from the human village. That was close. ...... Oh, there are still a few more ahead. Oh, there's still a few more ahead! There's even people here! Oh no!
+"How about that, you bastard! It's mostly cleaned up, right!? ...Damn it, I've come to a point less than a kilometer from the human settlement. That was close... Oh, there are still a few ahead. Ue! There are people too! This is bad!!"
 
 *「どーだコノヤロ！大体片付いたろっ！？……ちくそ～～、もう人里まで1キロ無いとこまで来ちゃったよ。危なかったわぁ……あ、まだこの先に何体か居る。うぇ！人も居んじゃん！ヤバっ！！」*
 
@@ -93,17 +92,17 @@ What's up, asshole? We're almost done! ...... Damn it, we're less than a kilomet
 
 &nbsp;
 
-In a panic, I flew to the mob I had missed and found a place cut into the forest.
+In a panic, I flew towards the mobs I had missed and found a cleared area in the forest.
 
 *大慌てで、取りこぼしたMobの元へ飛んで行くと、森の中に切り開かれた場所があった。*
 
-There, a two-headed serpent confronted Grandpa.
+There, a two-headed snake was facing off against an old man.
 
 *そこでは双頭の蛇と、おじいちゃんが対峙してた。*
 
 &nbsp;
 
-'Oooh! The first villager is found! But that's not all! There's another snake and about ......10 more wolves. A pack! They're going to surround Grandpa, aren't they? I won't let them!
+"Whoa! First villager spotted! But that's not the point! There's another snake, and about ten wolves... It's a pack! They're trying to surround the old man, huh? Not on my watch!"
 
 *「うお！第一村人発見！って、それどころじゃ無ぇ！蛇が更にもう1体、狼も……10体くらい居るな。群れか！おじいちゃんを囲む気だな？させるか！」*
 
@@ -111,173 +110,173 @@ There, a two-headed serpent confronted Grandpa.
 
 &nbsp;
 
-He quickly moves in and crushes the wolves one after the other with blows and finger bullets.
+I immediately moved in, punching the wolves one after another and crushing them with finger bullets.
 
 *直ぐ様移動し狼を次々と殴りで、指弾で潰していく。*
 
 &nbsp;
 
-They may think they're masking their presence, but I can see everything! Whoa! You're awesome, Grandpa! In the blink of an eye, he slayed the snake! Oh, no! Oh, shit! One of them went! Shit!
+"These guys think they're hiding their presence, but they're completely visible! Oh! The old man is amazing! He sliced that snake in no time!! Ah! Damn it! One got away! Shit!!"
 
 *「コイツら気配消してるつもりだろうけど、丸見えだよ！おっ！おじいちゃんスゲェ！あっという間に蛇ぶった斬った！！あ！しまった！一匹行かれた！クソッ！！」*
 
 &nbsp;
 
-Grandpa killed one snake and then slayed a wolf that jumped in, but he also slayed a wolf that jumped in. ......
+After defeating one snake, the old man also slashed down the wolf that jumped in...
 
 *おじいちゃんは蛇1体を倒した後、飛び込んで来た狼も斬り伏せたけど……。*
 
 &nbsp;
 
-"I knew that old man was going to do it....... Oh, but the movement is ...... poisonous! It's not good! Oh, shit, just in time!
+"That old man really knows what he's doing... Ah, but his movements... Is it poison!? This is bad! Damn it, hurry up!!"
 
 *「やっぱ、あのおじいちゃんやるなぁ……あ、でも動きが……毒か！？不味いぞ！チクソっ間に合え！！」*
 
 &nbsp;
 
-I had a bird's eye view from the tree tops of what looked like a square where my grandfather and his family are now.
+Right now, I was looking down from a tree at the area where the old man and the snake were.
 
 *今、おじいちゃん達の居る広場のような場所を、木の上から俯瞰で見てた。*
 
-Grandpa and the snake are almost in the center of the square.
+The old man and the snake were almost in the center of the area.
 
 *おじいちゃんと蛇は、広場のほぼ中央に居る。*
 
-It is a form of looking right at it from the side.
+I was looking at them from the side.
 
 *それを真横から見ている形だ。*
 
-At any rate, I broke off a branch that was handy and threw it between grandpa and the snake. I threw it between Grandpa and the snake.
+For now, I broke a nearby branch and threw it between the old man and the snake with a "tei!"
 
 *とりあえず手近な枝を折って、おじいちゃんと蛇の間に「ていっ！」と投げ付けた。*
 
 &nbsp;
 
-"Oh, a single stroke, that's great. ...... No, the last dogcatcher is aiming at Grandpa from the other side of the plaza. ...... We have to get rid of the poison, too, or it won't be good for him. ...... No way!"
+"Whoa, a clean cut, that's amazing... Huh, the last little dog is aiming for the old man from the opposite side of the area... I need to get rid of the poison too, or it’ll be bad... I have no choice!"
 
 *「をを、一刀両断かぁ、凄いわぁ……ぬ、最後の犬っころが広場の反対側からおじいちゃん狙ってるな……。毒も消してあげないと不味いし……しょうがない！」*
 
 &nbsp;
 
-I really wanted to avoid contact with the locals as much as possible, and if I were to enter a human settlement, I would have been more cautious ......, but now is not the time to say so!
+Honestly, I wanted to avoid contact with the locals as much as possible, and if I were to enter a human settlement, I wanted to be more cautious... but right now, that's not a situation I can afford to think about!
 
 *本当は、地元民との接触は極力避けたかったし、もし人里に入るとしても、もっと慎重を期したかったけど……、今はそんな事を言っている状況ではない！*
 
-I hastily jumped down from the tree and approached Grandpa, and after saying a few words to him, I picked him up in my arms.
+I hurriedly jumped down from the tree, approached the old man, and after saying a word, I lifted him up.
 
 *急いで木の上から飛び降り、おじいちゃんの元へ近付くと、一言かけてからおじいちゃんを抱え上げた。*
 
 &nbsp;
 
-Okay, keep evacuating them to the other side of the wolf. ...... hmm? Why do I look surprised? Did I say something funny?
+Alright, let's evacuate to the opposite side of the wolves... Huh? Why does he look surprised? Did I say something weird?
 
 *よし、このまま狼とは反対側へ避難させて……ん？なんで驚いた顔してんだろ？変な事言っちゃったかな？*
 
-Oh well, I'll just have to let them rest in the shade for now!
+Well, whatever, I need to let him rest in the shade for now!
 
 *ま、いいや、とりあえず日影で休ませないと！*
 
 &nbsp;
 
-I laid Grandpa down in the shade and immediately went back to the sword I had left in the center.
+I laid the old man down in the shade and quickly returned to the sword that was left in the center.
 
 *おじいちゃんを日影に横たえて、直ぐに中央に置きっぱなしの剣のところまで戻った。*
 
 &nbsp;
 
-Okay, you dogcatcher, you've changed your aim over here.
+Alright, you little dog, you've changed your target to me.
 
 *よーし、犬っコロめ、こっちに狙いを変えたな。*
 
-I knew it would look bad if I used my bare hands or my own weapon to defeat him in front of his grandfather!
+After all, it seems like defeating them in front of the old man with bare hands or my own weapon would stand out too much!
 
 *やっぱおじいちゃんの目の前で、素手や自前の武器使って倒すと悪目立ちしそうだもんね！*
 
 &nbsp;
 
-With this weapon, it cut off both snakes, so it should be no problem, right?
+With this weapon, I could slice the snake too, so it should be fine, right?
 
 *この武器なら蛇も両断してたし、問題無いっしょ？*
 
-From the looks of it, I'd say it's mid-zero ranked.
+From the looks of it, it seems to be a mid-tier zero rank?
 
 *見た感じ、ゼロランクの中位ってとこかな？*
 
-Even a weapon of this level can do that much if it is clothed in Ki.
+Even with a weapon of this level, if I wrap it with 'Ki', I can do that much.
 
 *この程度の武器でも『氣』を纏えば、あれ位は出来るって事だね。*
 
 &nbsp;
 
-Grandpa was really putting his "Ki" into it, wasn't he?
+The old man was definitely putting 'Ki' into it!
 
 *おじいちゃんキッチリ『氣』を籠めてたもんな！*
 
-Hmm? Does ...... mean that Koch people can use "Ki" too?
+Huh? ...Does that mean the people here can use 'Ki' too?
 
 *ん？……って事は、コッチの人も『氣』が使えるって事なのかな？*
 
 &nbsp;
 
-As I was thinking about this while holding the sword, the wolf jumped right at me.
+While holding the sword and thinking about that, a wolf suddenly jumped at me.
 
 *そんな事を、剣を持ちながら考えてたら、狼は直ぐオレに向かって飛び掛かって来た。*
 
-I cut both ways quickly as it was, though!
+I sliced it cleanly in half!
 
 *そのままサクッと両断したけどね！*
 
 &nbsp;
 
-I went back to Grandpa's place immediately and found ...... and it's bad! The poison has progressed quite a bit!
+When I quickly returned to the old man... Oh no! The poison is progressing quite a bit!
 
 *直ぐにおじいちゃんのトコへ戻ったら……ヤッバぃ！結構毒が進行してんじゃん！*
 
-We have to be quick! But what should we do? High level healer skills are indeed over the top, I'm sure they'll be fancy. ......
+I need to hurry! But what should I do? Using a high-level healing skill would definitely be overkill, and it would be flashy...
 
 *早くしないと！でもどうしよ？高レベルのヒーラースキルだと、さすがに大げさだよな、きっと派手になるし……。*
 
 &nbsp;
 
-Shall we try to flow "Ki" together with the initial detoxification magic? ...... That would be low-key and unobtrusive, right?
+Should I try combining the initial detoxification magic with 'Ki'? ...That would be discreet and not stand out, right?
 
 *初期の解毒魔法に、『氣』を合わせて流してみようか？……それなら地味で目立たないよね？*
 
-First, we need to get rid of the poison! After that, we'll consider treatment after seeing how the wound is doing!
+First, I'll get rid of the poison! I'll think about treatment afterward, depending on the condition of the wounds!!
 
 *まずは毒を消してから！治療はその後、傷の状態見て考えよう！！*
 
 &nbsp;
 
-I kneel beside my grandfather, place my palms on the wounds on my legs, and let the "Ki" flow in while chanting antidote magic.
+Kneeling beside the old man, I placed my palm on the wound on his leg and began to chant the detoxification magic while flowing in 'Ki'.
 
 *おじいちゃんの傍らで膝を突き、掌を脚の傷口に当て、解毒魔法を唱えながら『氣』を流し入れていく。*
 
 &nbsp;
 
-to! I'm feeling good! It's like my "Ki" is covering Grandpa. ...... What? The wounds are healing!
+Whoa! This feels good! I can feel my 'Ki' enveloping the old man... Oh? The wound is healing too!
 
 *を！いい感じ！おじいちゃんにオレの『氣』が覆っていく感じだねぇ……。お？傷も治ってく！*
 
-I wonder if the restorative element of detoxification magic on top of "Ki" is connected to the activation of cells and ......?
+It seems like the recovery element of the detoxification magic is linked to cell activation... or something like that?
 
 *『氣』に乗っかって、解毒魔法の回復要素が細胞の活性化に繋がって……ってトコかな？*
 
-It sounds kind of convoluted, though! Wahaha!
+It sounds a bit forced, but haha!
 
 *なんかこじ付けっぽいけど！わははは！*
 
 &nbsp;
 
-Oh, Grandpa was so happy... ♪
+Oh, the old man looks happy too♪
 
 *お、おじいちゃんも喜んでくれた♪*
 
-What about ......? Huh? Not just? Huh? No double-crossing, no detoxification? Not just normal?
+...Huh? What? Not an ordinary person? Huh? Slicing and detoxifying? Not normal?
 
 *……は？え？只者じゃない？え？両断も、解毒も？普通じゃないの？*
 
-Noooooooo!
+No wayyy!?
 
 *うそぉーーーん！？*
 
@@ -285,39 +284,39 @@ Noooooooo!
 
 &nbsp;
 
-But still, you get what I'm saying right.
+Still, I can understand what he's saying.
 
 *それにしても、ちゃんと言ってる事が分るなぁ。*
 
-The language Grandpa is using is the same as the armor that was up there, after all. I don't know the language, but I know what he is saying.
+The words the old man is using are the same as the armor I saw above. It's a language I don't know, but I can understand what he's saying.
 
 *おじいちゃんが使ってる言葉は、やっぱり上に居た鎧と同じものだ。知らない言語だが、言ってる事が分る。*
 
-It's weird. I can hear you, but do you feel like you're talking while finding the words? I wonder if I'm pronouncing the words correctly?
+It's a strange feeling. I can hear it, but it feels like I'm searching for words to speak? Am I pronouncing it correctly?
 
 *変な感じだね。ヒヤリングは出来るけど、言葉を見つけながら話してる感じ？ちゃんと発音あってるのかな？*
 
 &nbsp;
 
-Ah, Howard Cloud, are you ......? Hi there! I'm Suzy.
+Ah, Howard Cloud... right? Hello! It's Suzy.
 
 *あ、ハワード・クラウドさん……ですか？ども！スージィでっす。*
 
-Huh? A-rolla? I don't know.
+Huh? Auror? I don't understand.
 
 *え？あうろーら？わかんないですぅ。*
 
 &nbsp;
 
-Huh, yes? Where did I come from? Oh, that ...... Oh, that way... but .......
+Y-yes? Where did I come from? Um... over there, I guess...
 
 *は、はい？何処から来たかって？あ、あの……あ、あっちの方か…なんですが……。*
 
-Uhhhhh~! Don't get so excited! It's not good for your blood pressure!
+Uhi~~~~~n! Don't get so excited! It's not good for your blood pressure!
 
 *うひぃ～～～ん！そんな興奮しないでぇ！血圧によくないですよぉ！*
 
-Parents? I don't have any parents! I'm all alone, sorry. ～～～～!
+Parents? I don't have any~~! I'm sorry for being alone~~~~!!
 
 *両親？親なんていません～～！一人ですゴメンなさいぃ～～～～っっ！！*
 
@@ -325,7 +324,7 @@ Parents? I don't have any parents! I'm all alone, sorry. ～～～～!
 
 &nbsp;
 
-Ku～～～～～～～～～.......
+Kuuuuuuuuuu...
 
 *ク～～～～～～～～～……。*
 
@@ -333,15 +332,15 @@ Ku～～～～～～～～～.......
 
 &nbsp;
 
-! Hagu...... What a stomach with no patience! What a timing!
+!! Hagu... what an impatient stomach I have! And why now!?
 
 *！！はぐぅ……な、なんって辛抱の無い胃袋かぁぁっっ！しっかも何でこのタイミング！？*
 
-Ahhhh ...... ahhh! Don't look at me like that!
+Ahh... Ahh! Don't look at me with those eyes!
 
 *あふぅぅ……あぁぁ！そんな、そんな目で見ないで下しぃぃ！*
 
-I'm so embarrassed! I'm sorry!
+It's too embarrassing!! I'm so sorry!!
 
 *恥ずかしすぐるですよぉぉ！！ごめんなすぅぃぃぃ！！*
 
@@ -349,55 +348,55 @@ I'm so embarrassed! I'm sorry!
 
 &nbsp;
 
-Huh? What did you just say?
+Huh? W-what did you just say?
 
 *は？い、今、な、何とおっしゃいまして？*
 
-meals? Cooking? Plenty?
+Food? Cooking? Plenty?
 
 *しょくじ？りょうり？たっぷり？*
 
-What a violently attractive word! My life has been drained away all at once!
+What a violently attractive phrase! My life just got cut down in an instant!!
 
 *な、何て暴力的に魅力のある単語でせうっ！一気にライフが削られたわよっ！！*
 
 &nbsp;
 
-Huh? ! Shi-o, huh? Haabu ...... torii?
+Whaaat!? S-salt, you say!? Half... a portion?
 
 *なぁっっっ！？し・お、だとぉぉぉ！？はぁーぶ……とり？*
 
-Gghhhh..! Are you trying to stop me? Are you here to stop me?
+Guhahh! Are you kidding me?! Are you here to finish me off!?
 
 *ぐはぁっっ！止めですか？！止めを刺しに来たんですかぁっ！？*
 
-Aaah! Oh, my mouth is flooding! My mouth is flooding!
+Uwaaaaa! My mouth is flooding!!
 
 *うあぁぁぁ！く！口の中が洪水にぃぃぃ！！*
 
 &nbsp;
 
-Are you sure? Even if I visit your house! Wouldn't that be a nuisance? You don't mind if I visit your house? To your family's lunch!
+Is it okay? Can I visit your place? Won't it be a bother? Am I not intruding? What about your family's lunch?
 
 *良いんですか？お宅に伺っても！迷惑になりません？お邪魔じゃないんですか？ご家族の昼食に！*
 
-If someone were to say something nice to me in such an unknown place, I would cry...ohhh!
+If someone suddenly says something so kind in a place I don't know, I might just burst into tears!!
 
 *こんな知らない土地で、イキナリ親切な事言われたら、泣きそうになっちゃうんですけどぉぉぉ！！*
 
 &nbsp;
 
-If it were true, it would be outrageous for such a girl (looking like) to follow a man she has never met before to his house. ......
+Honestly, it’s probably outrageous for a girl (who looks like this) to go to a man's house she just met...
 
 *ホントならこんな女子（見た目）が初対面の男の人の家に付いて行くとか、とんでもない話なんだろうけど……。*
 
-I can't do it! I don't have the confidence to endure such temptation!
+But I can't help it! I have no confidence to resist such temptation!!
 
 *無理ですぅぅぅ！こんな誘惑耐えきれる自信ありまっしぇぇんんん！！*
 
 &nbsp;
 
-Please do! It's okay, right? I won't let you go, okay? Take me out to eat! Fuwaimitooooooooooooooooooooooooooooooooooooooooooooooooooo!
+Please! It's okay, right? You won't let me go? Take me to eat! Fly me to the food!!
 
 *お願いしますヨ！良いんですよね？手放しませんからね？私をゴハンに連れてって！ふらぁーいみとぅーざごはーん！！*
 
@@ -411,47 +410,47 @@ Please do! It's okay, right? I won't let you go, okay? Take me out to eat! Fuwai
 
 &nbsp;
 
-Then, when I came to Mr. Cloud's carriage, which was placed outside the forest, I was surprised!
+When I arrived at Mr. Cloud's carriage outside the forest, I was surprised!
 
 *そんで、森の外に置いてあるクラウドさんの馬車まで来たらビックリ！*
 
 &nbsp;
 
-I thought it was a horse because I heard it was a carriage, but it wasn't a ...... horse.
+I thought it would be a horse since they said it was a carriage... but it wasn't a horse.
 
 *馬車って聞いてたから馬だと思ってたけど……馬じゃなかった。*
 
-Mr. Cloud says this one is a 'horse'. ......
+Mr. Cloud calls this a "horse," but...
 
 *クラウドさんはコレを『馬』だって言うんだけど……。*
 
-The silhouette is certainly a 'horse'.
+The silhouette is indeed a "horse."
 
 *確かにシルエットは『馬』だね。*
 
 &nbsp;
 
-But you have scales, right? And hooves? I think they're claws. Or hooves? It's a claw that looks like a hoof! Yes, I know that hooves originally evolved from claws, too. ......
+But it has scales, right? And hooves? Or claws? No, hooves? It looks like clawed hooves! I know that hooves originally evolved from claws...
 
 *でも鱗あるよ？あと蹄？爪じゃね？いや蹄か？蹄っぽい爪だな！いあ、蹄も元々は爪から進化したものってのは知ってるけどね……。*
 
 &nbsp;
 
-And his face, he doesn't have ears, right? His teeth are pointed. ...... This face is a lizard, right?
+The face also... it has no ears, right? The teeth are sharp too... this face looks like a lizard, right?
 
 *顔もさ、耳が無いよね？歯が尖ってるしさー……この顔、トカゲよね？*
 
-But its mane and tail are horse~! It's a mysterious creature!
+But the mane and tail are horse-like... It's a mysterious creature!
 
 *でも、鬣と尻尾は馬なんだよねぇ～～。謎生物ですわ！*
 
 &nbsp;
 
-Well, I guess this is the "horse" of this world.
+Well, I guess this is what they call a "horse" in this world.
 
 *まぁ、コレがこの世界の『馬』って事なんだろけど。*
 
-I knew I didn't know about this place. ......
+This is definitely an unfamiliar world...
 
 *やっぱココは知らない世界だわぁ……。*
 
@@ -459,47 +458,47 @@ I knew I didn't know about this place. ......
 
 &nbsp;
 
-According to Mr. Cloud's story, this place is called Amkam village in the country of Aurora.
+Listening to Mr. Cloud's story, it seems that this place is a country called Auror, in a village called Amukamu.
 
 *クラウドさんの話を聞いていると、どうやらココはアウローラという国の、アムカム村という所らしい。*
 
 &nbsp;
 
-About 20 kilometers south down the road from here is a town called Copetown, and this horse-drawn carriage said it would take about an hour to get there, so I wonder if this guy can go as fast as a mama's bike.
+If you go south about 20 kilometers from here, there's a town called Coop Town, and he said you can get there in about an hour with this carriage, so it must be able to go at the speed of a mama bicycle?
 
 *ここから南へ20キロ程下ると、コープタウンという町があって、この馬車だと一時間程で行けるって言っていたから、こいつはママチャリくらいのスピードが出るのかな？*
 
 &nbsp;
 
-It is said that if you go down 300 kilometers further south from there, you can reach Dekenbel, one of the 12 cities.
+If you go further south for 300 kilometers, you can reach a city called Dekember, which is one of the twelve cities.
 
 *そこから更に南へ300キロ下ると、12都市の一つデケンベルという都市に行けるらしい。*
 
-And furthermore! About 1,200 kilometers south of there is the "Royal City!
+Moreover, if you go another 1200 kilometers south, there’s the "Royal Capital"!
 
 *更に、さらに！そこから1200キロ程南に行くと『王都』があるそうだ！*
 
 &nbsp;
 
-The King's City! There is a king! It's a fantasy, noooo!
+The Royal Capital!! Where the king is! It's fantasy!
 
 *王都！！王様がいる！ファンタジーだぬぅ！*
 
-But from here, it is 1,500 kilometers each way.
+But from here, it's a one-way distance of 1500 kilometers.
 
 *でもここからだと片道1500キロ。*
 
-It is a distance that runs the length of Honshu.
+That’s the distance of traveling across the length of Honshu.
 
 *本州縦断する距離だ。*
 
 &nbsp;
 
-Even a man with super powers who can run at 100 kilometers per hour would take 15 hours.
+Even a super-powered man who can run at 100 kilometers per hour would take 15 hours.
 
 *時速100キロで突っ走る超能力の男でも、15時間はかかる。*
 
-It's not an easy distance to go.
+It's not a distance you can casually travel...
 
 *お気楽に行ける距離ではないねぇ。*
 
@@ -507,63 +506,63 @@ It's not an easy distance to go.
 
 &nbsp;
 
-In the car, I was repeatedly asked how I got here, to which I could only reply that I was in the woods before I knew it.
+While on the carriage, I was repeatedly asked how I got here, but I could only answer that I was in the forest before I knew it.
 
 *車上では、どうやってここへ来たのかを繰り返し聞かれたが　いつの間にか森の中に居た　としか答えられなかった。*
 
 &nbsp;
 
-In fact, that's exactly what it is!
+Because that's the truth!
 
 *実際、その通りだからね！*
 
 &nbsp;
 
-I heard that the Iroshio Great Forest, or Amukamu Forest as it is called, is inhabited by many magical beasts and is not a place where a girl like me can be alone.
+This Amukamu Forest, also known as the Iroshio Great Forest (or so I've been told), is home to many magical beasts, and it seems it's not a place for a girl like me to be alone.
 
 *このアムカムの森ことイロシオ大森林（って言うらしいんだが）は、魔獣が多く生息していて、オレみたいな少女が、一人でいられる場所では無いらしい。*
 
 &nbsp;
 
-...... Thanks, this Mr. Cloud has been treating me like a child ever since we met. ......
+...It seems that Mr. Cloud has been treating me like a child since we met...
 
 *……どうもこのクラウドさん、会ってからずっとオレの事を子ども扱いするんだよね……。*
 
-I think this body is an adult. ......... I wonder if there is a discrepancy between the way I, as a Japanese person, see it and the way I feel about it.
+I think this body is an adult... Is there a discrepancy in perception from my perspective as a Japanese person?
 
 *この身体、成人してると思うんだけどなぁ………。日本人である自分から見る感覚と、ズレがあるのかしらん？*
 
 &nbsp;
 
-By the way, a hexenbiest is, from my point of view, a mob.
+By the way, magical beasts refer to what I see as mobs.
 
 *因みに、魔獣っていうのはオレから見てMobの事だね。*
 
-They say they are magical beasts here.
+Here, they seem to call them magical beasts.
 
 *ココでは魔獣と言うらしい。*
 
-The snakes and wolves we saw earlier are normally found only in the middle or deeper levels of the mountain, and their appearance so close to the village is an anomaly.
+And the snakes and wolves I saw earlier are originally creatures that inhabit deeper areas above the mid-level, and it's an abnormal situation for them to appear so close to a village.
 
 *で、さっき見た蛇とか狼の魔獣は本来、もっと中層以上の深い所にしか居ない連中で、こんな村近くに現われる今は異常事態なんだそうだ。*
 
 &nbsp;
 
-A nasty sweat dribbled down my back.
+I felt a cold sweat running down my back.
 
 *背中に嫌な汗がドドッと流れた。*
 
-I replied, "It's tough, isn't it?" but I hope my face wasn't scrunched up.
+I replied that it sounds serious, but did my face not twitch?
 
 *大変なんですね、と答えたけど顔は引き攣って無かったかな？*
 
-I'm sweating like a pig, okay?
+It's a big deal, isn't it?
 
 *大汗ものだよ？*
 
 &nbsp;
 
-Also, those snakes were in a pretty shallow area, ......, and I wanted to make an excuse, but I couldn't say it in stone.
+Also, those snakes were quite shallow too... I wanted to make an excuse, but I couldn't say that.
 
 *あと、あの蛇たちも結構浅いとこに居ましたよ……、と言い訳したかったけど流石に言えない。*
 
@@ -571,55 +570,55 @@ Also, those snakes were in a pretty shallow area, ......, and I wanted to make a
 
 &nbsp;
 
-The carriage went on while we talked about many things, but I enjoyed the scenery of the village along the way.
+As we talked, the carriage moved forward, and I enjoyed the scenery of the village along the way.
 
 *色々と話ながら馬車は進んだけど、道中では村の景色が楽しめた。*
 
 &nbsp;
 
-I have never lived in the countryside, and I have only had a quick view of such a rural landscape from a train window, but this was the first time for me to enjoy the fresh breeze as I went along.
+I've never lived in the countryside, and I've only seen such pastoral scenery from the train window, so experiencing it this way for the first time was a bit moving.
 
 *田舎に住んだ事は無いし、こんな田園風景は電車の車窓からならサックリ眺めたことあるだけで、こんな風に生の風を味わいながら進むのは初めてだったから、ちょっと感動してしまった。*
 
 &nbsp;
 
-The surface of Hodgson's Pond, which I was told was a little too large to be a pond, reflected the sun and glistened in the water as it reflected the thicket.
+The surface of the Hojisun Pond (that's what I was told it was called), which is a bit too big to be called a pond, reflected the woodland and sparkled in the sunlight.
 
 *池というにはちょっと大きいホジスンの池（という名前の池だと教えて貰った）の水面は雑木林を映し込みながら、太陽の光を反射してキラキラしてた。*
 
 &nbsp;
 
-The streets lined with poplar trees, combined with the blue sky, made me wonder which calendar photo I was looking at! I felt like, "What kind of calendar picture is this?
+The street lined with poplar trees seemed like a calendar photo, perfectly matching the blue of the sky!
 
 *ポプラの並木が延々と続いている街道とかは、空の青さと相まってどこのカレンダー写真だよ？！って感じだった。*
 
 &nbsp;
 
-Wheat fields and the like that stretch all the way to the horizon in the undulating land, I was sighing before I knew I was looking at it.
+The undulating land with wheat fields stretching to the horizon made me sigh without realizing it.
 
 *起伏のある土地で地平線まで続いてる麦畑とかは、見てるだけでいつの間にか溜息が出てた。*
 
 &nbsp;
 
-Mr. Cloud looked at me like I was looking at something interesting.
+Mr. Cloud was watching me with an amused expression as I took in the scenery.
 
 *そんな様子をクラウドさんに、面白い物を見るように眺められてしまった。*
 
-Please don't do it! Don't look at me as if you were looking at such a small animal!
+Please stop! Don't look at me with those eyes like I'm a small animal!!
 
 *やめてください！そんな小動物を見るような目で見るのは！！*
 
-I am somewhat ashamed of myself!
+It's so embarrassing!
 
 *なんだか恥じ入ってしまうではないですかっ！*
 
 &nbsp;
 
-In case you are wondering, it seems that this is the only time you can see this view, as harvesting will start all together next week.
+By the way, the harvest will start all at once next week, so it seems this is the only time to see this scenery.
 
 *因みに、来週から収穫が一斉に始まるので、この景色を見られるのは今だけらしい。*
 
-Did we come at a good time?
+Did I come at a good time?
 
 *いい時期に来たのかな？*
 
@@ -629,71 +628,71 @@ Did we come at a good time?
 
 &nbsp;
 
-While we were talking about this, we arrived at the Cloud residence.
+As we were talking, we arrived at the Cloud residence.
 
 *そんな話をしているうちにクラウド邸に到着した。*
 
 &nbsp;
 
-It was built on a slightly hilly site, surrounded by windbreaks.
+It was located on a slightly hilly area, surrounded by windbreak trees.
 
 *少し丘陵になっている場所で、防風林に囲まれて建っていた。*
 
-It's an L-shaped building with white walls.
+It was an L-shaped building with white walls.
 
 *白い壁でL字型の建物だ。*
 
-It is long from east to west, with one step jutting out from the east side to the south.
+It was long from east to west, with a section jutting out south from the east side.
 
 *東西に長く、東側から南へ一段飛び出した様な造りだ。*
 
 &nbsp;
 
-The roof is a two-tiered angled roof with the slope changing in the middle.
+The roof had a two-tiered angle that changed midway.
 
 *屋根は傾斜が途中から変わる二段角度の屋根だ。*
 
-What do you call these roofs?
+What do you call this kind of roof?
 
 *こういう屋根何て言うんだっけ？*
 
 &nbsp;
 
-The L-shaped indented portion of the terrace is covered by a shade.
+The recessed part of the L has an awning, making it a terrace.
 
 *L字のへこんだ部分にひさしが付いて、テラスになっている。*
 
-This is the south side.
+This side is the south side.
 
 *こっちが南側だね。*
 
 &nbsp;
 
-There was a magnificent door on the first floor on the west gable side.
+There was a magnificent door on the gable side of the west side on the first floor.
 
 *西側の切妻側1階に立派な扉があった。*
 
-So this is the front door.
+This must be the entrance.
 
 *これが玄関だね。*
 
 &nbsp;
 
-A woman was standing alone in front of that doorway.
+In front of that entrance stood a woman.
 
 *その玄関の前に女性が一人立っていた。*
 
-I think it is Mr. Cloud's wife.
+I think she is Mr. Cloud's wife.
 
 *クラウドさんの奥さんだと思う。*
 
-I'd say she's in her fifties. Her ashy green eyes sparkle and her beautiful chestnut brown hair is tucked on top of her head in a fluffy bun.
+She looks to be in her 50s, with shimmering grayish-green eyes and beautifully styled chestnut brown hair gathered lightly on top of her head.
 
 *50代かな？灰味がかったグリーンの瞳が煌めいて、綺麗な栗茶色の髪をフワリとした感じで頭の上で纏めている。*
 
 &nbsp;
 
-She looks like a classy and gentle wife to look at.
+She looks like a kind lady with a refined demeanor.
 
 *見るからに品の良い優しい奥様って感じだ。*
 
@@ -701,95 +700,95 @@ She looks like a classy and gentle wife to look at.
 
 &nbsp;
 
-When we stopped the carriage and got off, Mr. Cloud took my hand and helped me get off.
+When Mr. Cloud stopped the carriage and helped me down by taking my hand, I thought,
 
 *馬車を停めて降りる時にクラウドさんが、コチラの手を取って降りる手助けをしてくれた。*
 
-I'll be there! Mr. Cloud, you are a real gentleman!
+"Whoa! Mr. Cloud is such a gentleman!!"
 
 *をを！クラウドさんマジ紳士！！*
 
-I look like a lady!
+I felt like a lady!
 
 *自分まるで淑女ちっく！*
 
-Haha! I'm a little bit in the mood now, so I've tried to act classy!
+Haha! I got a bit carried away and decided to act elegantly!
 
 *わはは！ちょとその気になったので上品に振る舞う様にしたよ！*
 
 &nbsp;
 
-When his wife asked me who I was, I thought I would greet her like a lady.　I decided to greet her like a lady.
+When the wife asked, "Who are you?" I thought I would greet her like a lady.
 
 *奥さんが　どなた？　と聞いて来たので淑女らしく挨拶しようと思った。*
 
 &nbsp;
 
-However, I don't know any Western-style greetings like "pick up your skirt," so I'm going to follow Japanese business etiquette and send you an email to .......
+But since I didn't know the Western-style greeting of lifting my skirt, I followed Japanese business manners...
 
 *つっても、スカート摘み上げるみたいな洋風の挨拶は知らないので、日本人のビジネスマナーに倣って……。*
 
-Correct your posture, lay your hands in front of your body, look into their eyes, introduce yourself, and bow politely.
+I straightened my posture, placed my hands in front of my body, looked into her eyes, introduced myself, and bowed politely.
 
 *姿勢を正し手を体の前で重ね、目を見つめながら自己紹介をして丁寧にお辞儀をする。*
 
 &nbsp;
 
-What do you think? I think it was a beautiful posture, don't you?
+How was that? I thought it was a beautiful posture!
 
 *どうです？綺麗な姿勢だったと思うんですけど？*
 
 &nbsp;
 
-His wife kindly introduced herself back to me.
+The wife kindly returned the introduction.
 
 *奥さんも優しく自己紹介を返してくれた。*
 
 &nbsp;
 
-Nice to meet you, I am Sonia Cloud, Howard's wife. Nice to meet you, Susie. You're a lovely young lady."
+"Nice to meet you, I'm Sonia Cloud, Howard's wife. Nice to meet you, Suzy-chan. You're such a cute girl."
 
 *「初めまして、私はハワードの妻ソニア・クラウドです。宜しくねスージィちゃん。可愛いらしいお嬢ちゃんね」*
 
 &nbsp;
 
-I got a very soft smile back! I was so happy!
+I received an incredibly soft smile! I felt so happy!
 
 *めっちゃ柔らかい笑顔が返ってきましたーーーーーー！なんかスンゴイ嬉しくなった！*
 
 &nbsp;
 
-Huh? Huh? Pretty little girl, huh? Are you still treating me like a child?
+Huh? Wait? A cute girl? Am I being treated like a child again?
 
 *ン？アレ？可愛いらしいお嬢ちゃん？やっぱり子ども扱い？*
 
 &nbsp;
 
-I mean, you know! I didn't realize it before because I didn't have anyone to compare myself to. ...... I'm short, aren't I?
+Speaking of which! I hadn't realized until now that I had no one to compare myself to... Am I short?
 
 *て言うかさ！今まで比較相手居なかったから気付かなかったけど……。自分身長低くね？*
 
-I know you're a big guy, but ...... your eye line is right around Sonia's chest.
+I can tell Mr. Cloud is really tall, but... my eye level is around Sonia-san's chest, right?
 
 *クラウドさんがメッチャでかいのは分るんだけど、……自分の目線、ソニアさんの胸の辺りなんですけど？*
 
-I'm guessing the height difference is more than 10 cm.
+Is there more than a 10-centimeter height difference?
 
 *身長差10センチ以上あるんじゃね？*
 
 &nbsp;
 
-As I was thinking about this while smiling like a lady, Sonia rushed over to me with a worried look on her face when Cloud told her that she saved his life.
+As I thought about that while smiling like a lady, Sonia-san rushed over with a worried look when Mr. Cloud referred to me as "the one who saved my life."
 
 *ニコニコと淑女らしく微笑みながらそんな事考えていたら、クラウドさんの　命の恩人　って言葉でソニアさんが心配した様子でコチラへ駆け寄ってきた。*
 
 &nbsp;
 
-Oh, it's all right now!
+Ah, I'm fine already!
 
 *ああぁもう大丈夫ですのにぃ！*
 
-I was about to smile even more with ...... when that guy came out of nowhere!
+...Just as I was about to deepen my smile, it suddenly hit me!
 
 *……と更に笑顔を深めようと思ってた時、そいつは突然やって来た！*
 
@@ -797,7 +796,7 @@ I was about to smile even more with ...... when that guy came out of nowhere!
 
 &nbsp;
 
-Gurugiru .......
+Gurugyururururururururururururur...
 
 *グるギュるるるるるるるるるるるるる……。*
 
@@ -805,45 +804,45 @@ Gurugiru .......
 
 &nbsp;
 
-Gghhhh! (exhales blood)
+Guhahhh!! (Coughs up blood)
 
 *ぐはぁぁっっ！！（吐血）*
 
 &nbsp;
 
-Co, this guy (stomach)! You betray the Lord not once, but twice!
+This (stomach) is betraying its master not just once, but twice!?
 
 *コ、コイツ（胃袋）は！一度ならず二度までも主を裏切るのかぁぁっっ！？*
 
 &nbsp;
 
-Sure, sure, sure! Since I entered this property! I could smell the amazing aroma wafting through the air! My mouth was about to be flooded, but I held it in!
+Indeed, ever since I entered this property, an amazing aroma has been wafting through the air! I was holding back as my mouth was about to flood!
 
 *確かに、確かにさっ！この敷地入ってからさっ！スッゴイ良い香り漂って来ててさっ！口の中なんかメッチャ洪水状態になりそうなの堪えてたけどさっ！*
 
 &nbsp;
 
-Like earlier, like now! What? This timing!
+What is this timing, both just now and earlier!?
 
 *さっきといい、今といい！何？このタイミング！？*
 
-What? This huge sound!
+What is this loud noise!?
 
 *何？このでっかい音！？*
 
 &nbsp;
 
-I was acting all ladylike and proper at ....... Oh, no! I'm screwed!
+I was trying so hard to behave like a lady... and now it's all ruined!!
 
 *折角、淑女っぽく折り目正しく振舞ってたのに……。も！台っ無しぃぃっ！！*
 
 &nbsp;
 
-What's more! The skin you put on me was instantly peeled off, like ringing me in front of Sonia, a real lady I just met!
+Moreover! To make that noise in front of the real lady I just met, Sonia-san, my skin peeled off in an instant!!!
 
 *しかも！会ったばかりの本物の淑女なソニアさんの前で鳴らすとか、被った皮が一瞬で剥げたわよ！！！*
 
-What is this shame play! I can't lift my face up...ohhh...! Uhi～～～～n!
+What is this humiliation play!? I can't lift my face!!! Uhi~~~~~n!!!
 
 *何この羞恥プレイ！？顔が上げられないっすよぉぉ！うひ～～～～ん！！！*
 
@@ -851,29 +850,29 @@ What is this shame play! I can't lift my face up...ohhh...! Uhi～～～～n!
 
 &nbsp;
 
-I was shaking with shame, and there was a guy next to me who was blowing things out with great force!
+As I trembled with shame, someone next to me burst out laughing with incredible force!!!
 
 *と、羞恥に震えてたら、隣でモノ凄い勢いで吹出す人が居た！！！*
 
 &nbsp;
 
-Ugh ...... and I can't believe it! I can't believe it, Mr. Cloud!
+Uwaaa... I can't believe it! I can't believe it, Mr. Cloud!
 
 *うぁぁぁ……し、信じらんない！信じらんないよクラウドさん！*
 
-You knew I was hungry!
+You knew I was hungry, didn't you!?
 
 *貴方、私がお腹減ってるの知ってましたよね！？*
 
-And yet, and yet! I can't believe you laughed at me like that!
+And yet, you laugh like that!!!
 
 *それなのに、それなのに！そんな風に笑うなんてェェ！！！*
 
-...... Oh, I feel like crying.
+...Ah, I'm about to cry.
 
 *……あ、なんか泣きそう。*
 
-I'm gonna cry, okay? I'll cry!
+I'm going to cry, okay? I'm going to cry!!
 
 *泣くよ？泣きますからね！！*
 
@@ -881,21 +880,21 @@ I'm gonna cry, okay? I'll cry!
 
 &nbsp;
 
-I was pulling and Sonia came by and wiped my face.
+As I was trembling, Sonia-san came over and wiped my face.
 
 *プルプルしてたらソニアさんが寄って来て、顔を拭いてくれた。*
 
-...... Oh, my clean apron is getting dirty. ......
+...Ah, my beautiful apron is getting dirty...
 
 *……あ、綺麗なエプロンが汚れる……。*
 
-Did he wipe them off with his apron before they started crying?
+Did she wipe it off before I started crying?
 
 *泣き出す前に、エプロンで拭い取ってくれたのかな？*
 
 &nbsp;
 
-Sonia, you really are a kind person...!
+Sonia-san is really a kind person!
 
 *ソニアさんホントに優しい人だよぉぉ～～～！*
 
@@ -903,15 +902,15 @@ Sonia, you really are a kind person...!
 
 &nbsp;
 
-So I ended up being allowed to take a bath.
+In the end, I was allowed to take a bath.
 
 *で、結局お風呂へ入れて貰える事になった。*
 
-Bath!
+A bath!
 
 *お風呂！*
 
-I've bathed in the water since I came here, but this is the first time I've taken a bath! I'm getting a little happy.
+I've been bathing since I got here, but this is my first time in a proper bath! I'm getting a little excited.
 
 *コッチ来てから、水浴びはしてたけどお風呂は初めてだ！ちょと嬉しくなってきた。*
 
@@ -923,31 +922,31 @@ When I arrived at the bathroom, a person named Elrose was preparing the bathtub.
 
 &nbsp;
 
-Ms. Elrose was a shapely woman compared to the slim Sonia.
+Compared to the slim Sonia-san, Elrose-san was a woman with a solid physique.
 
 *エルローズさんは、スリムなソニアさんと比べると、シッカリとした体型の女性だった。*
 
-I wouldn't call her fat, but more like a motherly figure. She exudes strength.
+Not that she was fat, but how should I put it... she had a "strong mother" vibe? She gave off a sense of strength.
 
 *太ってるって云うんじゃなくて、何て言うか『肝っ玉母さん』的な？力強さを感じさせる方だ。*
 
-Is she a little taller than Sonia?
+Is she a bit taller than Sonia-san?
 
 *身長はソニアさんよりちょっと高い？*
 
 &nbsp;
 
-Her black hair, mixed with gray, is packed in a tight bun, forming a dumpling on her head.
+She had black hair mixed with gray, tied tightly into a bun on top of her head.
 
 *白髪の混じった黒髪を、ビシッとひっ詰めにして、頭の上で団子を作ってる。*
 
-I'm guessing your age is older than Sonia, not in your 60's?
+Is she older than Sonia-san? Not in her 60s, right?
 
 *歳はソニアさんより上かな？60代ではないよね？*
 
 &nbsp;
 
-After leaving me with Elrose, Sonia said she would get me a change of clothes and left the bathroom.
+After leaving me with Elrose-san, Sonia-san said she would go get some clothes and left the bathroom.
 
 *オレをエルローズさんに預けると、ソニアさんは着替え取って来ると言って、お風呂場を離れた。*
 
@@ -955,65 +954,65 @@ After leaving me with Elrose, Sonia said she would get me a change of clothes an
 
 &nbsp;
 
-Elrose put her hands on her hips and gave me one quick look from top to bottom, then hummed and blew her nose and said, "Banzai." I raised my arms and .......
+Elrose-san placed her hands on her hips, gave me a once-over from top to bottom, then huffed and told me to "raise your arms," so I did...
 
 *エルローズさんは腰に手を当てて、オレを一回上から下までササッと眺めた後、フムッと鼻息を飛ばしてから　バンザイして　と言われたので両腕を上げたら……。*
 
 &nbsp;
 
-Papa-pa-pa-pa-pa-pa-pa-pa-pa-pa-pa-pa-pa-pa! and stripped naked at once!
+In an instant, I was stripped bare!
 
 *パパパーーーッ！と一気に裸に剥かれた！*
 
-Without time to be surprised or embarrassed, she was held up and placed in the bathtub as she was.
+Before I could be surprised or embarrassed, I was picked up and placed into the tub.
 
 *ビックリしたり恥ずかしがったりする間もなく、そのまま抱えられて湯船に入れられてしまった。*
 
 &nbsp;
 
-The bathtub was only about half full, but it was like a half-body bath, soaking up to the stomach. It was a little bit comfortable.
+The tub was only half full, but it felt nice to be submerged up to my stomach in a half-bath.
 
 *湯船にお湯はまだ半分くらいしか入ってなかったけど、お腹まで浸かって半身浴的？でちょと気持ち良い。*
 
-In this state, I was showered with hot water over my head.
+While in that state, warm water was poured over my head with a shower.
 
 *その状態のまま、頭からシャワーでお湯をかけられた。*
 
-I was apoplectic, but the warm shower still felt so good that I let out an "Aaahhh ～～～～" sound.
+I let out a sound, but the warm shower felt so good that I couldn't help but go "Ah~~~~."
 
 *アププってなったけど、暖かいシャワーはやっぱり気持ち良くて　あ゛～～～～　ってな声が出てしまった。*
 
 &nbsp;
 
-I feel like Elrose was just chuckling. ......
+I felt like Elrose chuckled a little...
 
 *なんか、エルローズさんがクスッとした気がする……。*
 
 &nbsp;
 
-After that, my head was scrubbed with shampoo and my whole body was washed with a huge sponge.
+After that, my hair was thoroughly washed with shampoo, and my entire body was scrubbed with a big sponge.
 
 *その後、シャンプーで頭をガシガシ洗われ、でっかいスポンジで全身隈なく洗われた。*
 
-That's the way it was, everything was seen in its entirety and washed away.
+I was completely washed without any part left unseen.
 
 *それこそ余す事無く、全部丸っと見られて洗われてしまった。*
 
 &nbsp;
 
-And yet! Is it only us who are ashamed?
+Yet! I was the only one feeling embarrassed?!
 
 *なのに！恥じ入ってるのはコッチだけ？！*
 
-Mr. Elrose doesn't seem bothered at all.
+Elrose didn't seem to care at all.
 
 *エルローズさんは全く気にした様子も無い。*
 
-I feel like he is very used to this kind of thing (like giving a child a bath?). I feel like he is very familiar with this kind of thing (like bathing children?).
+It felt like she was very used to this kind of thing (like bathing children?).
 
 *何だか、この方こう云う事（子供をお風呂に入れる的な？）に凄く慣れてる感じ。*
 
-Perhaps this person has also identified you as a child?
+Could it be that I'm being recognized as a child by her too?
 
 *ひょっとして、この人からもお子ちゃま認定されてゆ？*
 
@@ -1021,23 +1020,23 @@ Perhaps this person has also identified you as a child?
 
 &nbsp;
 
-As I was washing off the foam from my body, Sonia returned with a change of clothes.
+As I was rinsing off the soap, Sonia returned with a change of clothes.
 
 *身体の泡を流し落としていると、ソニアさんが着替えを持って戻って来た。*
 
 &nbsp;
 
-Thank you, Elrose. I'll get dressed, you get ready to eat."
+"Elrose, thank you. I'll take care of the change, so please prepare the meal."
 
 *「エルローズ、ありがとう。着替えは私がするから、貴女は食事の準備をお願い」*
 
 &nbsp;
 
-I was giving instructions to Elrose while Sonia wrapped my body in a towel she had brought with her.
+While wrapping my body with the towel Sonia brought, she was giving instructions to Elrose.
 
 *ソニアさんが持ってきたタオルで身体を包んでくれながら、エルローズさんに指示を出していた。*
 
-Ms. Elrose bowed and immediately left the bathroom.
+Elrose bowed and immediately left the bathroom.
 
 *エルローズさんは一礼すると直ぐ様浴室から出て行った。*
 
@@ -1045,43 +1044,43 @@ Ms. Elrose bowed and immediately left the bathroom.
 
 &nbsp;
 
-I asked her to wrap a towel around my body, and Sonia brought me some equipment.
+After being wrapped in a towel, Sonia brought out some kind of tool.
 
 *身体にタオルを巻いて貰ったら、ソニアさんが何かの道具を持ってきた。*
 
-I thought it looked like a hair dryer, and it was a hair dryer!
+I thought it looked like a hairdryer, and it turned out to be a hairdryer!
 
 *ドライヤーっぽいなーと思ってたら、ドライヤーだった！*
 
 &nbsp;
 
-When my hair is roughly dry, I begin to put on the underwear that Sonia brought me.
+Once my hair was mostly dry, Sonia began to help me put on the underwear she brought.
 
 *粗方髪が乾いたところで、ソニアさんが持って来てくれた下着を着け始める。*
 
-Let's see! Pink striped pants!
+Whoa! Pink striped panties!
 
 *をを！ピンクな縞パンツ！*
 
 &nbsp;
 
-But it's very embarrassing to put on pants while people are looking at you!
+But putting on panties while being seen by someone is super embarrassing!
 
 *でも人に見られながらパンツ穿くのって、凄い恥ずかしいね！*
 
-Is the bra a sports type? It stretched like a shirt and fit just right.
+The bra is a sports type? It stretched like a shirt and fit perfectly.
 
 *ブラはスポーツタイプ？シャツみたいに伸びてジャストフィットした。*
 
 &nbsp;
 
-Oh? It looks like it fits you just right. I thought it would fit by the looks of it, but I'm glad."
+"Oh? It seems to fit just right. I thought it would suit you, but I'm glad."
 
 *「あら？丁度ピッタリだったみたいね。見た感じ合うとは思ったのだけれど、良かったわ」*
 
 &nbsp;
 
-So says Sonia, smiling and looking on.
+Sonia said that while watching me with a smile.
 
 *そう言って、ソニアさんはにこやかに見守っている。*
 
@@ -1089,233 +1088,233 @@ So says Sonia, smiling and looking on.
 
 &nbsp;
 
-Her clothes were a pale blue one-piece dress.
+The dress was a light blue one.
 
 *服は浅葱色したワンピースだった。*
 
-I was allowed to put it on by zipping it up from the skirt.
+I put it on from the skirt side, and it was helped over my head.
 
 *スカートの方からズポっと被って着させて貰った。*
 
-It's collarless, round-necked, with a white line around the neck.
+It had a round neck without a collar, with a white line around the neckline.
 
 *襟の無い丸首で、首回りに白いラインが入ってる。*
 
-The throat was open, so after putting the neck through, he tied a string through it to make a bowline knot.
+Since it was open at the throat, after putting it on, she tied the string going through it into a bow.
 
 *喉元が開いているので、首を通した後、そこに通っている紐を結んで蝶々結びをつくってくれた。*
 
 &nbsp;
 
-He then brushed my hair in front of the mirror.
+After that, she brushed my hair in front of the mirror.
 
 *その後、鏡の前で髪にブラッシングをしてくれた。*
 
-Come to think of it, brushing is a new experience for me.
+Now that I think about it, this was my first experience with brushing.
 
 *そういえば、ブラッシングって初めての経験だな。*
 
-It felt good, but I was somewhat embarrassed and couldn't look at myself in the mirror.
+It felt nice, but I was too shy to look at myself in the mirror.
 
 *気持ち良いんだけど、何だか照れ臭くって鏡に映った自分を見る事が出来なかった。*
 
 &nbsp;
 
-Sonia seemed to be in a good mood from start to finish.
+Sonia seemed to be in a good mood the whole time.
 
 *ソニアさんは始終ご機嫌な様子だった。*
 
-He brushes them off happily, but his calm gaze is even more embarrassing.
+She was happily brushing my hair, but her gentle gaze made me feel even more embarrassed.
 
 *嬉しそうにブラッシングしているのだが、その穏やかな視線が尚の事気恥ずかしい。*
 
 &nbsp;
 
-After brushing my hair, she tied it back in a beautiful light blue string.
+After brushing, she tied my hair back with a beautiful light blue ribbon.
 
 *ブラッシングした後、髪を後ろで綺麗な水色をした紐で纏めてくれた。*
 
 &nbsp;
 
-Sorry for the delay.
+"I apologize for making you wait."
 
 *「おまち・・させ・・・した・・・です・・・すみま・・・せん・・・です」*
 
 &nbsp;
 
-Sonia brought me to the dining hall and apologized to Cloud at the entrance for keeping him waiting.
+Sonia led me to the dining room, and at the entrance, I apologized to Cloud for making him wait.
 
 *ソニアさんに食堂まで連れて来て貰って、入口でクラウドさんにお待たせした事をお詫びした。*
 
-Mr. Cloud looks at me in surprise.
+Cloud looked at me in surprise.
 
 *クラウドさんは驚いた様に此方を見ている。*
 
 &nbsp;
 
-Well, that's because it was polished up! You look different! I know you look different, but please don't be embarrassed if I see you looking at me like that!
+Well, I mean, I was polished up! I can understand why he looks like he can't believe his eyes, but please don't look at me so much, it's too embarrassing!
 
 *そりゃね、磨き上げて頂きましたからね！見違えた！って顔なのは分りますが、そんなに見られると照れ臭くって敵わないので勘弁してください！*
 
 &nbsp;
 
-When Elrose showed me to my seat, I saw heaven spread out before me!
+After being guided to a seat by Elrose, a paradise spread out before me!
 
 *エルローズさんに席まで案内して貰ったら、目の前には天国が広がっていた！*
 
-The savory smell of birds and spices that tickle the nose!
+The savory aroma of chicken and the tantalizing scent of spices!
 
 *鳥の香ばしい匂いや、鼻をくすぐる香辛料の香り！*
 
 &nbsp;
 
-Watch out! This is a mouth water alert! Those in the vicinity should be fully alert and never approach the mouth!
+Danger!! Saliva alert! Nearby individuals should be on high alert and keep their mouths away!!
 
 *危ない！！口水警報です！付近の方は十分に警戒し、決して口元には近づかないで下さい！！*
 
 &nbsp;
 
-Oh, my bad. Your body was in front of you. ......
+Ah, excuse me. I leaned forward too much...
 
 *あ、失礼しました。身体が前のめりになってましたね……。*
 
 &nbsp;
 
-Mr. Howard gave us permission to eat.
+Howard gave me permission to eat.
 
 *ハワードさんから、食べて良いとのお許しが出た。*
 
-Elrose carves the bird and places it on a plate in front of me.
+Elrose cut up the chicken and placed it on the plate in front of me.
 
 *エルローズさんが鳥を切り分けて、目の前のお皿に置いてくれる。*
 
 &nbsp;
 
-By cutting open the bird, the aroma of the vegetables and herbs inside flooded the air at once!
+As the chicken was cut open, the aroma of the vegetables and herbs inside burst forth!
 
 *鳥の身を切り開いた事で、中に入ってた野菜やハーブの香りが一気に溢れて来た！*
 
-The aroma that came with the carved chicken meat attacked my nostrils directly.
+The scent that came with the cut chicken attacked my nostrils directly.
 
 *切り分けてくれた鳥肉と一緒に付いて来た香りが、鼻腔に直接攻撃をしかける。*
 
 &nbsp;
 
-I was dizzy. I'm sure that from the side I must have been able to see my eyes whirling around in circles.
+I felt dizzy. I'm sure from the outside, it looked like my eyes were swirling.
 
 *眩暈がした。きっと傍からは、目がグルグルと渦を巻いているのを確認出来たに違いない。*
 
 &nbsp;
 
-Cut the fillet into bite-sized pieces and bring the fillet in front of you, sticking it in front of you with a fork.
+I cut a piece into bite-sized pieces and brought it to my mouth.
 
 *一口大に切って、フォークに刺した切り身を目の前へ持ってくる。*
 
-It's okay, right?
+Is it alright to eat?
 
 *良いんですよね食べて？*
 
-You wouldn't say no after all, would you?
+You won't say it's not okay, right?
 
 *やっぱりダメとか言いませんよね？*
 
-Uso pi~~~n! I'm sure you won't say that!
+You won't suddenly say "Just kidding!" or something, right!!?
 
 *ウッソぴょ～～～ん！とか言いだしませんよね！！？*
 
 &nbsp;
 
-See Mr. Cloud.
+I looked at Cloud.
 
 *クラウドさんを見る。*
 
-He smiled and nodded broadly.
+He smiled and nodded vigorously.
 
 *笑顔で大きく頷いてくれた。*
 
-All right! I'll eat it! I'll take a bite.
+Alright! I'm eating!! I took a big bite.
 
 *よし！食うよ！！パクリっと頬張る。*
 
-・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・ ・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・ mmmmahhhh ！！！！
+............................................................　............................................................ Mmmmmm!!!!
 
 *・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・　・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・うンンンンまぁぁぁぁっっっ！！！！*
 
-What a juicy treat! Oh, my God! Oh, my God! It's so good!
+What a juicyyyyy taste! Delicious! So good!! Mmm, it's amazing!!
 
 *ンなんってジューーシィーーッ！ウマッ！ウままっ！！ンまいよぉ～～～～！！*
 
-The juices were so ju~~~~! Both sides of the tongue tongue are sizzling!
+The meat juice is bursting! The sides of my tongue are tingling!!
 
 *肉汁がジュワワワ～～～て！舌ベラの奥の両側がキュゥゥゥッッとなたぁーー！*
 
-The flavor! U! Ma! Mi! Gah!
+The umami! The umami!!
 
 *旨味が！ウ！マ！ミ！がぁっ！！*
 
 &nbsp;
 
-Ahh..! I love omelettes made with sweet potatoes!
+Ah! This omelet-like thing is also delicious!!
 
 *あぁ！コノお芋のオムレツみたいのもンまいぃ～～っ！*
 
-What a terrible saltiness!
+What is this exquisite saltiness!?
 
 *何コノぜつみょーーな塩加減ンーー！！*
 
-Ohhhh! I'm so happy to have a taste!
+Ahhh! To have flavor like this is such happiness!!!
 
 *あうぁぁ！味があるってこんなに幸せなのねンん！！！*
 
 &nbsp;
 
-My hands! My mouth! I can't stop~~!
+My hands! My mouth! They won't stop!!
 
 *手が！口が！止まんないぃ～～～っ！*
 
-Eggu...... is so delicious! Hahugu .......
+Ugh... It's so delicious! Hauguh...
 
 *えぐっ……美味しすぐて！はうぐうっ……。*
 
-I can cry ...... on my own ......, kuriu~~...... eggu...... delicious! ...... yo ～～～～......!
+I can't help but... Huh, I'm crying... It's so good...!!
 
 *勝手に……はぐっ泣けて……、くりゅぅ～～……っえぐっ……おいし……よぉ～～～～……！！*
 
 &nbsp;
 
-I just ate the heck out of it! Eggy and crying. ......
+In any case, I just kept eating! Crying and eating...
 
 *兎に角ひたすら食べた！エグエグと泣きながら……。*
 
-I thought I had never eaten such delicious food before.
+I thought this was the first time I had ever eaten something so delicious.
 
 *こんな美味しいモノ、初めて食べたと思った。*
 
-I can't help but cry on my own because the emotion is so happy!
+The happiness of the emotion made me cry uncontrollably!!
 
 *感動が幸せで勝手に泣けてしまうのですぅ！！*
 
 &nbsp;
 
-Sonia and Elrose took care of the food together.
+Sonia and Elrose took care of my meal together.
 
 *ソニアさんとエルローズさんが、二人で食事の面倒を見てくれた。*
 
-I'm a toddler now! I was so excited.
+I felt like a toddler! I couldn't help but think that.
 
 *こりでは幼児ですがなっ！と一人ツッコミ。*
 
-But I was so happy that I let them do it to me.
+But it felt so good that I just let them take care of me.
 
 *でもナンカ嬉しくって、されるに任せてしまった。*
 
 &nbsp;
 
-Sonia's mothering skills were unbelievable, wiping away tears and food scraps.
+Sonia's motherly instincts were incredible as she wiped away my tears and food scraps.
 
 *涙やら食べカスやらを拭ってくれる、ソニアさんのお母さん力が半端なかった。*
 
-From now on, I will secretly call you Sonia-mama in my heart!
+From now on, I'll secretly call her Sonia Mama in my heart!
 
 *これから心の中でこっそり、ソニアママと呼ばせて貰いますっ！*
 
@@ -1325,79 +1324,78 @@ From now on, I will secretly call you Sonia-mama in my heart!
 
 &nbsp;
 
-The tea Elrose brewed for us after dinner was delicious. ......
+After the meal, the tea Elrose made was also delicious...
 
 *食後に、エルローズさんが淹れてくれたお茶も美味しかったぁ……。*
 
 &nbsp;
 
-Right, there was such a thing as tea in this world, wasn't there? I forgot about it until just now.
+That's right, there was tea in this world too! I completely forgot until now.
 
 *そうだよねぇ、この世にはお茶ってものもあったんだよねぇ？今の今まで忘れてましたワ。*
 
-I learned for the first time that a good cup of tea after a meal can make people so happy.
+I learned for the first time that delicious tea after a meal can make someone so happy.
 
 *食後の美味しいお茶っていうモノは、こんなにも人を幸せにしてくれるものなんだと初めて知りました。*
 
 &nbsp;
 
-In the afterglow of happiness, Mr. Cloud was telling Sonia what had happened today.
+While I was basking in the afterglow of happiness, Cloud was telling Sonia about what happened today.
 
 *幸せの余韻に浸っている時に、クラウドさんが今日あった事をソニアさんに伝えていた。*
 
 &nbsp;
 
-When Sonia and Elrose heard that we had cut off the wolf, they rolled their eyes and were amazed.
+When Sonia and Elrose heard about me cutting down the wolves, they looked surprised with wide eyes.
 
 *狼を断ち切った事を聞いたソニアさんとエルローズさんは、目を丸くして驚いてた。*
 
-Hmmm, I just cut it with Mr. Cloud's sword. ......
+Well, I just cut them down with Cloud's sword, though...
 
 *うーーん、クラウドさんの剣で斬っただけなんだけどなぁ……。*
 
 &nbsp;
 
-At ......, Mr. Cloud seems to be planning to take me somewhere after this ...... temple?
+...And it seems Cloud plans to take me somewhere after this... to a temple?
 
 *……で、クラウドさんはこの後、オレをどこかへ連れて行くつもりらしい……神殿？*
 
 &nbsp;
 
-Sonia, are you and Elrose parting ways now? We just got to know each other. ...... What? You'll be back soon? Oh, yeah. ...... hehe.
+Is it time to say goodbye to Sonia and Elrose? We just became acquaintances... Huh? He'll be back soon? Oh, I see... Hehe.
 
 *ソニアさん、エルローズさんとはもうお別れなのかな？折角お知り合いに成れたのにな……え？直ぐ戻って来るって？なんだ、そうなんだ……へへ。*
 
 &nbsp;
 
-Yeah? Shika? Venison steaks and such? Oooh! Aagaru... ......
+Huh? What? Venison steak?! Uwaaa! I'm getting excited...
 
 *うぇ？しか？鹿肉のステーキとかっすかぁ？？うおぉ！あがるぅぅ……！*
 
-UGH! Sonia told me you're a foodie. ......
+Ugh! Sonia just called me a glutton...
 
 *う゛！ソニアさんに食いしん坊言われたぁ……。*
 
-Gosh, it was confirmed that in Ms. Elrose's eyes, she looks like a growing child!
+Guh, it's confirmed that Elrose sees me as a growing child!
 
 *ぐっ、エルローズさんの目には、育ちざかりの子供に見えている事が確定したっ！*
 
 &nbsp;
 
-Ah, but still, it's nice to share a meal together like this, isn't it?
+Ah, but still, it's nice to have everyone eat together like this.
 
 *あぁ、それでもこうやって皆で食事を一緒にするのって良いもんなんだね。*
 
-Not only is it delicious, it's fun.
+It's not just delicious, it's fun too.
 
 *美味しいだけじゃなくて、楽しいよね。*
 
 &nbsp;
 
-I'm looking forward to dinner now, huh? No, I'm looking forward to the deer, too, though!
+I'm looking forward to dinner now, huh? No, I'm looking forward to the venison too!
 
 *今から夕食が楽しみだねぇ、え？いや、鹿も楽しみですけどさ！*
 
-But I also think this kind of thing is ...... good. ......
+But I also think... that this kind of thing is nice... yeah.
 
 *只こう云うのもさ……、良いなって思う訳ですよ……うん。*
-

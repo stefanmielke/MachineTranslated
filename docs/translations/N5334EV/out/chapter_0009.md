@@ -1,4 +1,4 @@
-# Episode 09 Finding Suzy Food
+# Episode 09: Suzy Searches for Food
 
 ## 09話　スージィ食料を探す
 
@@ -6,87 +6,87 @@
 
 &nbsp;
 
-"How was it?　You were pretty okay, weren't you?"
+"How was it? You were pretty okay, right?"
 
 *「どうです？　結構平気だったでしょ？」*
 
-I mean, I'm fine, but ......, that hurt, didn't it?"
+"Well, I mean, I was okay, but... it hurt, you know?"
 
 *「まぁ平気って言や平気だけど……、痛かったよ？」*
 
-But you took it in stride.
+"But you were taking it like a champ, weren't you?"
 
 *「でも平気な顔で受けてたじゃないですか」*
 
-"I'd say I'm fine, or ...... painful, but not unbearable ......, at least?"
+"It's not that I was okay... it hurt, but it wasn't unbearable, you know?"
 
 *「平気って言うかさ……痛いけど耐えられない訳じゃ無いな……、くらいな？」*
 
-He hit me pretty hard, didn't he?　He put more force than a normal amateur would have been able to withstand."
+"You were hit pretty hard just now, right? The kind of force that a normal amateur wouldn't be able to withstand."
 
 *「今のかなり強めに殴ってましたからね？　普通の素人なら耐えられない位の力入れてましたから」*
 
-"Oh, yeah?　Well, it hurt, didn't it?　I was pretty okay with it, but..."
+"Is that so? Well, it did hurt, but I was definitely okay."
 
 *「そうなの？　まぁ痛かったよ？　確かに結構平気だったけど」*
 
-That's what I call the "kata" effect.
+"That's the effect of 'kata', you see."
 
 *「それが『型』の効果って事なんですけどね」*
 
-"The one you just did, right? Was it 'santin'?"
+"That thing we did earlier, right? 'Sanchin', wasn't it?"
 
 *「さっきやったヤツだよな？『サンチン』だっけ？」*
 
-Well, I'm not quite ready to master it completely, so it's just a confusing thing.
+"Well, since you haven't fully mastered it yet, it's just a makeshift version."
 
 *「まぁ完全に極められる程、先輩は出来上がっていないんで、ただの紛い物なんですけどね」*
 
-"I see... I see... I see..."
+"I see, that makes sense."
 
 *「左様で御座いますか、えーそーでしょーねぇ」*
 
-As I taught you earlier, if you close your fist from the little finger when you extend your hand, and if you are aware of Ki at this point on your arm, you can achieve that level of effect.
+"As I mentioned earlier, when you spread your hands, if you close your fists starting from the pinky and focus your 'ki' in this part of your arm, you can achieve that level of effect."
 
 *「さっき教えた様に手を広げるときに小指から拳を閉じて、腕のココの所に『氣』を意識すれば、その位の効果は出るんです」*
 
-You know, the side of the arm from the elbow to the base of the little finger here?　It sure feels warmer here when I'm conscious of it."
+"You're talking about the side of the arm from the elbow to the base of the pinky, right? I definitely felt warmth there when I focused."
 
 *「ここの肘から小指の付け根にかけての腕の側面だろ？　確かに意識するとココが暖かくなったね」*
 
-In kata, it is a matter of course to perform the movements correctly, but it is also important to have the correct awareness of what you are doing so that the true power of the kata can come out.
+"'Kata' is about performing the movements correctly, but on top of that, having the right awareness allows you to unleash your true power."
 
 *「『型』っていうのは所作、動作を正しく取るのは当たり前なんですが、その上でそう云った意識を正しく持つ事で本来の力が出るんです」*
 
-What's that hard to say?"
+"You're starting to sound pretty complicated there."
 
 *「なんか難しい事言い出したな？」*
 
-When you bow with three fingers and raise your body, you can lift your body up with a stick from the middle of your chest, where the color imager is located. If you raise your body with the mindset of "I'm going to bow with my three fingers," you can raise your body without much effort. Even if you are being held down from above, if the weight is a little heavy, you will not feel much resistance and will be able to get up easily.
+"To put it simply, when you bow with three fingers down and rise, if you imagine lifting your body from the center of your chest, around where the collarbone is, using a stick or something, you can lift your body without much effort. Even if someone is pressing down from above, you can still rise without feeling much resistance."
 
 *「簡単な所だと、三つ指付いてお辞儀して体を起こす時に、こう胸の真ん中、カラー〇イマーがある辺りから棒でも出て身体を持ち上げる。と言う意識で体を起こすと大した力もいらず体が起こせます。上から抑えられてても少し位の重さなら、やはり大した抵抗も感じず楽に起こせますよ」*
 
-In fact, the theory that Yamato Nadeshiko is the strongest!"
+"Is there a theory that the Yamato Nadeshiko is the strongest?"
 
 *「実は大和撫子最強説！？」*
 
-Japanese manners and gestures are actually a form of efficient flow of ch'i. When you move chopsticks correctly, ch'i flows through them. If you move the chopsticks correctly, Ki (energy) will flow properly. Why don't you take this opportunity to learn proper etiquette?
+"Actually, the manners and movements in Japanese culture are forms that allow 'ki' to flow efficiently. Even using chopsticks correctly allows 'ki' to flow properly. Why not take this opportunity to learn proper manners?"
 
 *「日本の作法や所作って実は『氣』が効率よく流れる型だったりするんです。お箸も正しく動かすと『氣』がきちんと流れるんですよ。この機会にちゃんとした作法も習得してみては如何ですか？」*
 
-But, you know, that 'sunchin' you just did?　If I could, I'd like to learn a technique that would make me stronger like that! That's what it is, right? If I can do it right, I won't even feel pain, right?"
+"But, you know, that 'Sanchin' thing? I want to learn techniques that can make me strong like that! Once you can do it properly, you won't feel pain anymore, right?"
 
 *「でもさぁ、さっきの『サンチン』だっけ？　出来ればアレみたいに強くなる技覚えたいよな！アレだろ？ちゃんと出来る様になると痛みとか感じなくなれるんだろ？」*
 
-No, I think pain is normal."
+"No, I think pain will still be there."
 
 *「いや、痛みは普通にあると思いますよ」*
 
-What?　Really?"
+"Huh? Is that so?"
 
 *「え？　そうなの？」*
 
-You say, "Look, pain is an important piece of information. Pain is an important piece of information. If you don't have pain, you don't know what kind of condition your body is in. If you don't have pain, you don't know how far you can go. We need to understand pain, not reject it.
+"Listen. Pain is important information. If you don't feel pain, you won't know the state of your body. In such a state, you won't be able to tell how far you can push yourself, right? Pain isn't something to reject; it's something to understand."
 
 *「いいですか。痛みって言うのは重要な情報なんです。痛みが無いって事は、身体がどんな状態なのか分らないって事です。そんな状態じゃ何処までが無茶なのか判らなくなりますよ？痛みは拒絶するのでは無く、理解する事が必要なんです。」*
 
@@ -100,39 +100,39 @@ You say, "Look, pain is an important piece of information. Pain is an important 
 
 &nbsp;
 
-Yesterday we ended up back at the waterfall where we first camped.
+In the end, I returned to the place by the waterfall where we first camped yesterday.
 
 *昨日は結局、最初に野営をした滝の場所まで戻って来た。*
 
-I found the trail ...... when I headed north on the road ...... in the woods, and I figured if I wanted to find a place to encamp, it would be quicker to follow it.
+I found a path in the forest... it's the trail from when I headed north... so I thought it would be quicker to follow that if I was looking for a camping spot.
 
 *森の中の道……北に向かった時の跡だが……を見つけたので野営場所を探すなら、それを辿るのが手っ取り早い、と思ったからだ。*
 
 &nbsp;
 
-The reason for this was that he wanted to do the verification in a shallow area of the forest.
+There was also a reason I wanted to do the testing in a shallow part of the forest.
 
 *検証するなら、森の浅い所でやりたいと云う理由もあった。*
 
 &nbsp;
 
-"If you want to verify the damage, it would be better to try it first with lower defensive equipment or without armor!　With higher level equipment, you'll be sure to play it off when you get attacked by these mobs ......"
+"If I'm going to test damage, it's better to try it with low-defense gear or without armor at all! With higher-level gear, I would definitely block the attacks from the mobs around here..."
 
 *「ダメージ検証するなら、まずは低い防御力の装備、もしくは防具無しの状態で試してみるのが良いよな！　上位の装備では、この辺のMobの攻撃受けても確実に弾くだろうし……」*
 
 &nbsp;
 
-If I am attacked in that state, I don't want to be attacked by wolf fangs or bear claws.
+If I'm going to take hits in that state, I really don't want to face a wolf's fangs or a bear's claws right away.
 
 *その状態で攻撃を受けるなら、イキナリ狼の牙とか熊の爪とかはちょとイヤだな。*
 
-At least at first, it is an initial request for a more gentle partner .......
+At least at first, I'd prefer a gentler opponent... that's my naive wish.
 
 *せめて最初は、もっと優しい相手が良い……という初心なお願いである。*
 
 &nbsp;
 
-I have been popped, chopped, and minced so many times that I am not sure what I am saying now. I've been popped, chopped up, and minced, so what am I saying now?
+I've already blown away, sliced, and minced so many creatures before, so what am I saying now? But there's no one here to point that out.
 
 *自分は今まで散々弾け飛ばしたり、乱切りにしたり、ミンチにしたりして於いて、何を今更言っているのか？という話もあるが、ここにツッコミはいない。*
 
@@ -140,173 +140,173 @@ I have been popped, chopped, and minced so many times that I am not sure what I 
 
 &nbsp;
 
-That is why I am now using the waterfall to bathe like a shower.
+So, with that in mind, I'm currently using the waterfall to take a shower.
 
 *そういう訳で、今は滝を使ってシャワーの様に水浴びをしている。*
 
-The reason why is because after all the things I've done.
+The reason for that is because I've just done something like that.
 
 *何故そういう訳かは、そう云う事をした後だからだ。*
 
 &nbsp;
 
-"If it's not cold enough to take an early morning dip like this, does that mean it's July or August now?"
+"Is it because it's early morning and I'm not cold taking a shower like this that it's July or August right now?"
 
 *「こうやって早朝に水浴びしてても寒くないってのは、今の季節は7月とか8月って事なのかな？」*
 
 &nbsp;
 
-She is struck by the waterfall water and somehow mouthing it while shaking her shapely breasts.
+As I let the waterfall hit me, my well-shaped breasts swaying, I muttered to myself.
 
 *滝の水に打たれて、形の良い乳房を揺らしながら何となく口にする。*
 
-Then, a rather lovely sound echoed around the area: k~~~~.......
+Then, a cute sound echoed around me.
 
 *すると、ク～～～……と、随分可愛らしい音が辺りに鳴り響いた。*
 
 &nbsp;
 
-"...... hungry......"
+"...I'm hungry..."
 
 *「……腹減った……」*
 
 &nbsp;
 
-He muttered sadly as he put his hand on his stomach area.
+I placed my hand on my stomach and murmured sadly.
 
 *胃の辺りに手を当てながら、悲しげに呟いた。*
 
-So far, he had not taken a meal until his hunger had reached its limit.
+So far, I had refrained from eating until my hunger reached its limit.
 
 *今ところ食事は、空腹感が限界に来るまで摂らずにいた。*
 
-Reason: .......
+The reason is...
 
 *理由は……。*
 
 &nbsp;
 
-'Another tasteless meal~! I'm ...... hungry, but I can't believe how depressing this meal is. ......"
+"Another tasteless meal... Even though I'm hungry, feeling this gloomy about food is just..."
 
 *「また味気ないメシか～～。……腹減ってるのに、こんなに食事が憂鬱なんて……」*
 
 &nbsp;
 
-Literally, the food they have has almost no taste.
+Literally, the food I have on hand has almost no flavor.
 
 *文字通り、持っている食料に味が殆ど無いのだ。*
 
 &nbsp;
 
-Basha and naked, he left the waterfall and went up to the water's edge.
+I splashed out of the waterfall, still naked, and climbed up to the water's edge.
 
 *バシャバシャと全裸のまま滝から離れ、水辺へと上がって行く。*
 
-He took a towel out of his inventory, wrapped it around his body, opened his gut legs, and sat down on the nearest rock.
+I pulled a towel from my inventory, wrapped it around my body, spread my legs wide, and sat down on a nearby rock.
 
 *インベントリからタオルを出し、体に巻きつけるとガッツリ脚を開き、手近な岩の上に腰を下ろした。*
 
-It is not an outfit that a daughter of a very young age can expose in public.
+It's not a position that a girl of my age should be showing in public.
 
 *とても年頃の娘さんが人前で晒せる格好では無い。*
 
-Well, the inside is different from your daughter!
+Well, the insides are different from a regular girl, though!
 
 *まあ、中身は娘さんと違うが！*
 
 &nbsp;
 
-Once again, I take the stew out of my inventory, this time to sip.
+I took out some stew from my inventory and slurped it down.
 
 *もう一度インベントリから今度はシチューを取り出し啜る。*
 
-It is always freshly made and hot.
+It's always piping hot and freshly made.
 
 *いつでも出来たてのホッカホカである。*
 
-But see .......
+However...
 
 *しかし……。*
 
 &nbsp;
 
-...... not tasty~!"
+"...It's not delicious~~~"
 
 *「……美味くない～～～」*
 
 &nbsp;
 
-At any rate, I scraped it all down in one go, as if anything would do as long as I could get it into my stomach.
+I gulped it down as if anything would do as long as it went into my stomach.
 
 *とりあえず胃に入れれば何でも良いとばかりに一気に掻き込んだ。*
 
 &nbsp;
 
-"Hifuhohohohohohohohohohohoho ......"
+"Hyohuhouhihihouhuhahihihah..."
 
 *「ひょふほぅひひょうはんほはひはいほは……」*
 
 &nbsp;
 
-It's not something you talk about while putting it in your mouth.
+This is not how you should talk while eating.
 
 *口に入れながら喋るもんじゃない。*
 
 &nbsp;
 
-Susie forcefully swallows it all down in one gulp.
+Suzy forcefully swallowed it all at once.
 
 *スージィは、そのまま強引に一気に飲み下す。*
 
 &nbsp;
 
-I'm not sure what to do!　...... I still need to think about going out to the human village at Nalu early. I really think people need a tasty meal!
+"Kuhaaーーー! ...I really need to think about getting back to town soon. I seriously feel that people need meals with flavor!!"
 
 *「くはぁーーーっ！　……やはりナル早で人里へ出る事考えないとイカンなぁ。人には味のある食事が必要なのだと切実に思うよ！！」*
 
 &nbsp;
 
-When he finished his forced meal, he yodeled and stood up.
+After forcing down my meal, I stood up with a grunt.
 
 *無理やりの食事を終わらせると、ヨッと声を出し立ち上がった。*
 
-He took off his towel and put it in his inventory, and the next moment he was wrapped in D equipment.
+I took off the towel and put it back in my inventory, and in the next moment, I was clad in D gear.
 
 *そのままタオルを脱ぎ取りインベントリへ仕舞い込むと、次の瞬間にはD装備に身を包まれていた。*
 
 &nbsp;
 
-I thought to myself, "Wait a minute. Now that we can hunt without detonating the bomb, can we hunt food normally?　Can't we just go and hunt birds and stuff?"
+"Oh, wait. Since I can hunt without blowing things up now, can I hunt for food normally? I should be able to go for birds, right?"
 
 *「あ、待てよ。もう爆ぜさせずに狩れる様になったんだから、普通に食料も狩れるか？　鳥とか行けんじゃね？」*
 
 &nbsp;
 
-He looks up as if a thought has just occurred to him.
+I suddenly had a thought and looked up.
 
 *はたと思いついた様に顔を上げる。*
 
 &nbsp;
 
-I'm sure you can make it!　We can go, right?　Okay, let's go!　Let's pick up some food while we're at it!　Unh!　Let's do that!
+"That's right! I can do it! Alright! While I'm testing damage, I'll also gather food! Yes! Let's do that!!"
 
 *「そうだよ！　行けるよね？　よし！　ダメ検証するついでに食糧も採ろう！　ウン！　そうしよう！！」*
 
 &nbsp;
 
-I chuckled to myself as I looked happily to the south.
+I muttered to myself happily while looking south.
 
 *嬉しそうに南方を見ながら独りごちた。*
 
 &nbsp;
 
-"Well, we'll just have to go south 5 to 60 kilometers, won't we?　I'm sure there will be a few cute ones as we get closer to human habitation!"
+"For now, I should head south for about 50 to 60 kilometers? As I get closer to human settlements, some cute creatures should start appearing!"
 
 *「とりあえず5～60キロ南下すりゃいいかな？　人里が近づけば、ちったぁ可愛げがあるのが出てくんだろ！」*
 
 &nbsp;
 
-After saying this, he quickly took off southward.
+With that said, I quickly headed south.
 
 *そう言うと、さっさと南へ向かい飛びだして行った。*
 
@@ -328,7 +328,7 @@ After saying this, he quickly took off southward.
 
 &nbsp;
 
-As it turns out, ...... was scattered.
+To put it bluntly... it was a disaster.
 
 *結論から言えば……散々だった。*
 
@@ -338,141 +338,141 @@ As it turns out, ...... was scattered.
 
 &nbsp;
 
-There was a big boar-like mob.
+There was a huge mob that looked like a wild boar.
 
 *でっかい猪みたいなMobが居た。*
 
-He was like Nantokanushi.
+It was something like a 'Nan toka Nushi'.
 
 *ナントカヌシみたいな奴だった。*
 
 &nbsp;
 
-I thought, "I can eat this! I thought.
+I thought, "This is edible!"
 
 *コレは食える！と思った。*
 
 &nbsp;
 
-For a start, I shot the initial flame magic.
+So, I shot my initial fire-type magic.
 
 *取敢えず初期の炎系魔法を撃った。*
 
-Burned. Turned to charcoal.
+It burned. It turned to charcoal.
 
 *燃えた。炭になった。*
 
-All I could taste was charcoal.
+It only tasted like charcoal.
 
 *炭の味しかしなかった。*
 
 &nbsp;
 
-Next, he sliced the guy into rounds and then cut out the appropriate parts.
+Next, I sliced it into rounds and cut off some random parts.
 
 *次はヤツは輪切りにしてから適当な部位を切り取った。*
 
-I didn't know what was where, so I muddled through and found the red meat, cut it out and grilled it.
+I had no idea what was where, and while it was a mess, I picked out some red meat and grilled it.
 
 *何がどこにあるのか分らなくて、グチャグチャになりながら赤身を見繕って切り出して焼いた。*
 
 &nbsp;
 
-It smelled soooo beastly and rotten meat.
+It smelled incredibly gamey and like rotten meat.
 
 *すっげー獣臭くて腐った肉の匂いがした。*
 
-I thought maybe I needed some herbs or at least a smell masker.
+I thought maybe I needed some herbs or something to mask the smell.
 
 *せめてハーブとか匂い消しが必要なのかもと思った。*
 
-I forced myself to take a sip and tears started to well up in my mouth on their own.
+When I forced a bite into my mouth, tears started to flow uncontrollably.
 
 *一口、無理くり口に含んだら勝手に涙が溢れてきた。*
 
-The strong taste I was looking for was Koretogau.
+This is not the rich flavor I was looking for.
 
 *求めてた濃い味はコレトチガウ。*
 
-I cried egregiously.
+I cried out in disgust.
 
 *エグエグと泣いてしまった。*
 
 &nbsp;
 
-Maybe the Mob, i.e., monsters, are not suitable for foodstuffs? I thought so and tried to take birds as usual.
+Maybe mobs, or monsters, aren't suitable for food? I thought, so I tried to catch a regular bird.
 
 *もしかしたら Mobつまりモンスターは食材に適していないのかも？と思い、普通に鳥を採ってみた。*
 
 &nbsp;
 
-There was a big eagle-like creature, so I picked up a pebble, covered it with Ki, and shot it out with my fingertip, a finger bullet.
+I saw a big eagle, so I picked up a small stone, wrapped it in 'ki', and shot it with my fingertip, like a finger flick.
 
 *でっかい鷲みたいなのが居たので小石を拾って『氣』を纏わせ指先で撃ち出す、指弾だ。*
 
-It was an easy shot down.
+I easily shot it down.
 
 *楽勝で撃ち落とせた。*
 
 &nbsp;
 
-Okay, let's cook! I thought.
+Alright, time to cook! I thought.
 
 *よし料理だ！と思ったが。*
 
-I don't know how to handle it.
+But I had no idea how to process it.
 
 *どう捌いて良いのか分らない。*
 
-At this time, I clearly realized that I had zero survival skills.
+At that moment, I clearly realized that I had zero survival skills.
 
 *この時、自分がサバイバルスキルゼロだとハッキリ自覚した。*
 
 &nbsp;
 
-I had no choice but to cook it over a fire as it was.
+With no other choice, I just threw it on the fire and tried to grill it.
 
 *仕方ないので、そのまま火にかけて焼いてみた。*
 
-The feathers stuck to the skin and were very hard to eat, so I scraped off the skin and ate it.
+The feathers stuck to the skin, making it really hard to eat, so I peeled the skin off and tried eating it.
 
 *羽根が皮にこびりついて、スゲー食い辛かったので皮をそぎ落として食べてみた。*
 
-It was kind of hard, stringy, and had a liver-like smell in my nose.
+It was tough, stringy, and had a liver-like smell that hit my nose.
 
 *なんか固くて筋っぽくてレバーっぽい臭さが鼻についた。*
 
 &nbsp;
 
-was forced to eat.
+But I forced myself to eat it.
 
 *が無理やり食べた。*
 
-I don't mind liver, but please don't give me this one.
+I don't hate liver, but I wish I could skip this one.
 
 *レバーは嫌いじゃないけどコレは勘弁して欲しい。*
 
 &nbsp;
 
-I still cried.
+I ended up crying again.
 
 *やっぱり泣けた。*
 
-I want salt at least. I want pepper. I want soy sauce!
+I at least wanted salt. I wanted pepper. I wanted soy sauce!
 
 *せめて塩が欲しい。胡椒が欲しい。醤油が欲しい！*
 
-I can't cook wild food that makes the most of the flavors of the ingredients!
+Wild cooking that brings out the flavor of the ingredients is impossible for me!!
 
 *素材の味を生かしたワイルド料理はオレには無理ムリです！！*
 
 &nbsp;
 
-I want to eat ramen. I want to eat ramen. I want a big bowl of Senke's green onion chashu pork!
+"I want ramen. I want home-style ramen. I want a large serving of negi chashu from Senya!!"
 
 *「ラーメン食いたい。家系食いたい。千家のねぎチャーシューの大盛り食いたい！！」*
 
-Sick Sick Sick Sick .......
+Sniffle sniffle...
 
 *シクシクシクシク……。*
 
@@ -480,13 +480,13 @@ Sick Sick Sick Sick .......
 
 &nbsp;
 
-I am very frustrated that I can't handle or cook.
+I feel so frustrated that I can't process or cook anything.
 
 *捌きも料理も出来ない事がとても悔しい。*
 
 &nbsp;
 
-At least a strategy site!　Please, Dream Cheat!　Easy demolition video prezooo!!!!"
+"I just want a攻略サイト! Please, dream cheat! Easy dismantling videos, please!!!"
 
 *「せめて攻略サイトを！　頼むよ夢チート！　簡単解体動画プリズーーー！！！」*
 
@@ -514,25 +514,25 @@ It was impossible.
 
 &nbsp;
 
-I'll get back on track and verify the damage to my main objective today!"
+"Alright, let's get back to today's main damage testing!"
 
 *「気を取り直して、本日本命のダメージ検証しるよ！」*
 
 &nbsp;
 
-I fell down on all fours, but forced myself to stand up, clenching my fists.
+I got down on all fours, feeling down, but I forced myself to clench my fists and stand up.
 
 *四つん這いになって落ち込んだが、無理やり拳を握って立ち上がった。*
 
-It was not a very humane meal, but it did fill me up.
+It was hard to call it a human-like meal, but my stomach was full.
 
 *とても人間らしい食事とは言い難かったがお腹は膨れた。*
 
-My stomach is full and for some reason I am very sad.
+Even though my stomach was full, I felt strangely sad.
 
 *お腹が膨れたのに何故かとても悲しい。*
 
-So I decided to fulfill my original purpose today.
+So, I decided to fulfill my original purpose today.
 
 *なので、今日本来の目的を果たす事にした。*
 
@@ -542,13 +542,13 @@ So I decided to fulfill my original purpose today.
 
 &nbsp;
 
-'N~~~......, how about that thing?　Forest Basilisk. Basilisk is just a big lizard that petrifies you and it wasn't a big deal, right?　I mean, it's big, but it doesn't look like it's more than 2 meters long. ...... There was a big lizard up there, but it was over 10 meters long. I think it was "Ice Lizard" and "White Basilisk". It's the size of a baby, so it should be fine.
+"Ummm... how about that? 'Forest Basilisk'. The basilisk is just a big lizard that can petrify, and it wasn't a big deal, right? Even if it's big, it doesn't seem to be more than 2 meters... There were bigger lizards above, but they were over 10 meters. I think they were 'Ice Lizards' and 'White Basilisks'. This one seems to be about the size of a baby."
 
 *「ン～～……、アレなんかどうだ？　『フォレストバシリスク』。バシリスクって石化してくるだけのデカいトカゲで、大した事なかったよな？　デカいって言っても2メートル無さそうだし……。上にもでっかいトカゲ居たけど、アレは10メートルは超えてたもんな。確か『アイスリザード』と、やっぱり『ホワイトバシリスク』。あれの赤ん坊みたいなサイズだし大丈夫だろ」*
 
 &nbsp;
 
-A two-meter lizard is a big deal, but the standard seems to be out of whack.
+Even saying it's a 2-meter lizard is already a big deal, but it seems my standards are a bit skewed.
 
 *2メートルのトカゲと云う時点で大した事あるのだが、やはり基準値がどうにかなっているようだ。*
 
@@ -556,111 +556,111 @@ A two-meter lizard is a big deal, but the standard seems to be out of whack.
 
 &nbsp;
 
-Its appearance is closer to that of a dinosaur than to that of a lizard.
+Its appearance is closer to a dinosaur than a lizard.
 
 *その姿はトカゲと云うより恐竜に近い。*
 
-Strong hind legs, small forelegs forward, but with powerful claws.
+It has strong hind legs, and its front legs are small but have powerful claws.
 
 *強靭な後足、前に出した前脚は小さいが、強力な爪を持つ。*
 
-The neck supports a long, small head.
+Its neck is long, supporting a small head.
 
 *首は長く小さ目な頭を支えている。*
 
-It looks like a small Raptor.
+It resembles a small raptor.
 
 *小型のラプトルのような姿だ。*
 
 &nbsp;
 
-Its entire body is covered with blue-green scales, and its head is covered with a pair of fins that resemble scallops.
+Its entire body is covered in blue-green scales, and it has a crest-like fin on its head.
 
 *全身は青緑の鱗で覆われ、頭にはトサカの様なヒレを持っている。*
 
-The fins break off at the neck and spread wide again on the back.
+The fin that stops at the neck spreads out again on its back.
 
 *首の所で途切れたヒレは、背中でまた大きく広がる。*
 
-Those golden eyes found Suzy and came straight at her.
+Its golden eyes spotted Suzy and headed straight toward her.
 
 *その金色の目がスージィを見つけ、真っ直ぐに向かって来た。*
 
 &nbsp;
 
-Suzy stows away her weapons and waits with only heavy equipment.
+Suzy stored her weapon and waited in heavy armor.
 
 *スージィは武器を収納して重装備だけで待ち受ける。*
 
 &nbsp;
 
-He raised his head high as he ran about five meters away, his eyes glowing with a single bright flash, but nothing happened.
+At a distance of about 5 meters, it ran with its neck raised high, its eyes shining brightly, but nothing happened.
 
 *5メートル程の距離で走りながら首を高く上げ、眼を一際輝かせたが何も起こらない。*
 
-Basilisk showed a quizzical look for a moment, but then immediately increased its speed and came barreling in.
+The basilisk showed a moment of suspicion but quickly increased its speed and charged.
 
 *バシリスクは、一瞬訝しげな表情を見せたが、直ぐにスピードを上げ突っ込んで来た。*
 
 &nbsp;
 
-Suzy easily resisted Basilisk's petrifying glare.
+Suzy easily resisted the basilisk's petrifying gaze.
 
 *バシリスクの石化の眼光を、スージィがあっさりレジストしたのだ。*
 
-Many opponents resist petrification.
+There are not many who can resist petrification.
 
 *石化に抵抗する相手は少なくない。*
 
-If we are afraid at every turn, we will be beaten.
+If I flinch every time, I'll be the one in trouble.
 
 *一々怯んで居てはコチラがやられる。*
 
 &nbsp;
 
-If petrification doesn't work, then stick them with fangs and claws that have a paralyzing poison.
+If petrification doesn't work, then I can just stab it with my fangs and claws that have paralysis poison.
 
 *石化が効かないのであれば、麻痺毒を持つ牙と爪を突き立ててやれば良い。*
 
-The muscles of the hind legs are dilated and unleashed.
+I expanded the muscles in my hind legs and released them.
 
 *後脚の筋肉を膨張させ解き放つ。*
 
-He closed the distance at once, aimed at the neck, and pounced.
+I closed the distance in an instant and leaped toward its neck.
 
 *一気に距離を詰め首元を狙い飛び掛かった。*
 
 &nbsp;
 
-But the mouth is empty.
+But my mouth cut through empty air.
 
 *だが口は虚しく空を切る。*
 
-Then, it tries to pull the animal to the point of avoidance by hooking its sharp claws like sickles on its front legs.
+In that case, I tried to hook its front legs with my scythe-like sharp claws and pull it closer.
 
 *ならば、と避けた先へ前脚の鎌の様に鋭い爪を引っ掛けて、引き寄せようとする。*
 
-But that, too, was avoided by a paper-thin margin.
+However, that too was narrowly avoided.
 
 *しかしそれも紙一重で避けられた。*
 
 &nbsp;
 
-If this is the case, he tries to crush them with his weight by directly hitting them with his body, but they are no longer there.
+Then I tried to slam my body into it and crush it with my weight, but the opponent was no longer there.
 
 *なら身体を直接ぶつけてその重量で潰そうと身体を倒すが、もう相手は其処には居ない。*
 
-He swishes his long tail without a peep.
+I immediately swung my long tail.
 
 *透かさず長い尻尾を振り回す。*
 
-I can regain my balance with this, but if I hit this guy who ran away, it will not be a free lunch.
+I could regain my balance with that, but if it hit the one that escaped, it wouldn't end well.
 
 *自分はこれでバランスが取り戻せるが、逃げたソイツに当たれば只では済まない。*
 
 &nbsp;
 
-But its tail also cut through the air.
+But that tail also cut through the air.
 
 *だが、その尻尾も空を切った。*
 
@@ -670,97 +670,97 @@ But its tail also cut through the air.
 
 &nbsp;
 
-(Huh?　I was wondering why I was getting hit so hard, but I thought I was subconsciously avoiding it.)
+(Huh? I was thinking, 'Why can't I hit anything?' and realized that I'm unconsciously dodging it myself?)
 
 *（あれ？　何だか、やたら当たらないなぁ～と思ってたら、コレ自分で無意識に避けてね？）*
 
 &nbsp;
 
-It is like a willow swaying in the wind.
+Like a willow swaying in the wind.
 
 *まるで風に揺れる柳の様。*
 
-Suzy found herself avoiding the momentum of her opponent's attack without being particularly aware of it, as her body sensed it on its own.
+Suzy noticed that her body was sensing the opponent's attack and dodging it without her conscious awareness.
 
 *スージィは、自分自身が特に意識もせずに、相手の攻撃の勢いを体が勝手に察知し、避けている事に気が付いた。*
 
 &nbsp;
 
-(This is level compensation, right?　(This is a level compensation!) It means there's a big difference in level between me and this guy, right?　(I might not be able to get hit unless I'm conscious of the attack. ......)
+(Is this what they call level adjustment? It means there's quite a level difference between us, huh? If I don't consciously take the hits, I might not get hit at all...)
 
 *（これはレベル補正ってヤツか！　コイツとはかなりのレベル差あるって事だな？　こりゃ意識して攻撃受けないと当たらないかも……）*
 
 &nbsp;
 
-After being repeatedly evaded, Basilisk, fed up with the situation, began to gather his strength and stooped low to unleash a powerful headbutt.
+As the basilisk repeatedly missed its attacks, it became frustrated and lowered its body to prepare for a powerful headbutt, gathering its strength.
 
 *と、幾度も攻撃を躱され、業を煮やしたバシリスクが強力な頭突きを放とうと身を低く構え、力を溜め始めた。*
 
 &nbsp;
 
-Oh?　You coming?　All right!　Jump into the lady's chest!　Come on, come on, come on!
+"Oh? Is it coming? Alright! Come on and dive into the lady's chest! Bring it on!!"
 
 *「お？　来るか？　よしゃっ！　おねーさんの胸に飛び込んでいらっさい！　バッチ来ーーい！！」*
 
 &nbsp;
 
-Basilisk kicked the ground and rushed forward.
+The basilisk kicked off the ground and charged.
 
 *バシリスクが地を蹴り突進して来た。*
 
-Susie opened her arms and assumed a welcoming position.
+Suzy opened her arms, ready to embrace it.
 
 *スージィは腕を開き迎え入れる体勢を取った。*
 
-The moment the heads collide, he thrusts out his chest and catches it!　And the basilisk's head shattered and popped.
+At the moment their heads collided, she thrust her chest forward to catch it! The basilisk's head shattered and burst apart.
 
 *頭がぶつかる瞬間胸を突出し受け止める！　と、バシリスクの頭が砕けて弾けた。*
 
 &nbsp;
 
-'Whoopppp!　Pah-pah-pah!"
+"Uwa!? Parapapap!!"
 
 *「うわっぷ！？　ぱらぱぁっぷっ！！」*
 
 &nbsp;
 
-I got a big brain plasma or something from my face.
+She was splattered with brain matter and other things all over her face.
 
 *盛大に脳漿やら何やらを顔から浴びてしまった。*
 
 &nbsp;
 
-'Uh-oh!　Pepe!　Pepe!　Ugh~Pepe!　What the heck~?"
+"Ugh! Peh peh! Puh! Ughhh, peh! Wh-why~~~?"
 
 *「うあ！　ぺっぺっ！　ぷぺっ！　うげぇ～～ぺっ！　な、なしてぇ～～？」*
 
 &nbsp;
 
-Remove the jar of water from the inventory and rinse it off by covering your head with water.
+She took out a water-filled jar from her inventory and poured water over her head to wash it off.
 
 *インベントリから水の入った壺を取出し、頭から水をかぶり洗い流す。*
 
 &nbsp;
 
-Ugh," he said!　Damn it, ......!　Oh ......, phew!　......, no way!　Pek!　...... Atashi's chest was a weapon!　You were the murder weapon!　Pee!"
+"Ugh, peh! It stinks...! Ah... peh! ...No way! Peh! ...My chest was a weapon!?"
 
 *「うあっぺっ！　くっさぁ……！　あ……、ぺっ！　……ま、まさか！　ぺっ！　……アタシの胸は、ぺっ！　凶器だったのね！？　ぺっ！」*
 
 &nbsp;
 
-That's not what I meant!
+No, that's not it!
 
 *そーじゃなくてっ！*
 
 &nbsp;
 
-I'm not sure if it's that one or !　That or ...... Pek!　Because it was clothed in "Ki", pe!　It was filled with fighting spirit, pe!　I hit him with my fist, pe!　It's the same thing?　Pepe!"
+"Peh! Is it... peh! Because I was wrapped in 'ki', peh! It turned into the same thing as hitting with a fist filled with fighting spirit? Peh!"
 
 *「ぺっ！　あれか……ぺっ！　『氣』を纏ってたから、ぺっ！　闘気の籠った、ぺっ！　拳で殴ったのと、ぺっ！　同じことになった？　ぺぺっ！」*
 
 &nbsp;
 
-Rinse the mouth again and again with water.
+She rinsed her mouth with water repeatedly.
 
 *水で何度も何度も口をすすぐ。*
 
@@ -770,29 +770,29 @@ Rinse the mouth again and again with water.
 
 &nbsp;
 
-I'm still smelling gross in my mouth... ...... I want to take a quick dip today ......!
+"Ugh, my mouth still feels gross and smells bad... I just want to take a shower quickly...!!!"
 
 *「う～～、まだ口ン中キモチ悪いぃ臭いぃ～～……。今日はもうサッサと水浴びしたい……！！！」*
 
 &nbsp;
 
-After several water bottle showers, I suddenly heard a small explosion and grabbed something that flew by at high speed.
+After taking several showers with the water jar, she suddenly heard a small explosion and grabbed something that flew at high speed.
 
 *何杯目かの水瓶シャワーを浴びた後、突然小さな爆発音を響かせ、高速で飛来した何かを掴み取った。*
 
 &nbsp;
 
-"Is this the guy you've been flying around earlier: ....... A 'bread beetle'?　Looks like a canary with a head full of spines. Wow!　This guy is so scary.
+"So that's what was flying around me earlier... 'Bread Beetle'? It looks like a cantharid with spikes all over its head. Whoa! This thing is tough."
 
 *「さっきから周りを飛び回ってたのはコイツか……。『ブレッドビートル』？　頭が棘だらけのカナブンみたい。うわっ！　かったいなぁコイツ」*
 
 &nbsp;
 
-With a flick of his fingertips, he sent the Beetle he was holding flying like a finger-bomb.
+She flicked it with her fingertip and sent the beetle flying like a projectile.
 
 *ビッと指先で弾き、掴んでいたビートルを指弾の様に飛ばした。*
 
-The second one that flew in next hit it and crushed it.
+She hit the second one that flew at her next and smashed it.
 
 *そのまま次に飛んできた2匹目にヒットさせ相殺粉砕する。*
 
@@ -800,153 +800,152 @@ The second one that flew in next hit it and crushed it.
 
 &nbsp;
 
-With a quick tilt of his head to the right, he ducked the third fish.
+She tilted her head to the right to dodge the third one.
 
 *クイッと首を右へ傾げ3匹目を躱す。*
 
-The third one, which was dodged, penetrated a tree that looked to be more than a hug behind Suzy and dug into a rock at the base of the tree.
+The third beetle, which was dodged, pierced through a tree that was more than a hug in size behind Suzy and embedded itself into the rock at its base.
 
 *躱された3匹目は、スージィの後ろにあった一抱え以上もありそうな樹木を貫通し、その根元にあった岩へとめり込んだ。*
 
 &nbsp;
 
-Wow, it really is like a bullet. There's some kind of wallah-wallah gathering at ....... Are they getting into our territory or something?"
+"Wow, it really is like a bullet. A bunch of them are gathering... Did I intrude on their territory?"
 
 *「うっわぁホントに弾丸みたい。なんかワラワラと集まって来てるな……。縄張りにでも入り込んだか？」*
 
 &nbsp;
 
-There's triple digits, right? ......, he muttered, looking disgusted.
+There must be at least three digits... she muttered with a sigh.
 
 *三桁は居るよなぁ……と、ウンザリした様に呟いた。*
 
-He is wary of his surroundings as he stomps and crushes the Beetle, which has been reduced to the ground.
+As she crushed the beetle embedded in the ground, she remained vigilant of her surroundings.
 
 *地面に減り込んだビートルを、プチリと踏み潰しながら周りを警戒する。*
 
 &nbsp;
 
-Come on!
+"Take that!"
 
 *「ていっ！」*
 
-The fourth one is struck with the right square fist.
+She punched the fourth one with her right fist.
 
 *4匹目を右正拳で打ち抜く。*
 
 &nbsp;
 
-Toriya!"
+"Here I go!"
 
 *「とりゃ！」*
 
-The fifth one was turned down with a left-handed sword.
+She sliced the fifth one with her left hand.
 
 *5匹目を左手刀で断った。*
 
 &nbsp;
 
-"Hoa!"
+"Hoah!"
 
 *「ほあっ！」*
 
-The sixth one is paid with the right back fist and crushed.
+She smashed the sixth one with a backfist.
 
 *6匹目を右の裏拳で払って粉砕する。*
 
 &nbsp;
 
-TOOTSUO!!!"
+"Tsuo!"
 
 *「っつお！」*
 
-The seventh fish is crushed by a left hook thrust.
+She crushed the seventh one with a left hook.
 
 *7匹目を左の鈎突きで砕く。*
 
 &nbsp;
 
-Woot woot!"
+"Whoa, whoa!"
 
 *「うぉっとったっ！」*
 
-8th and 9th fish on the right and left.
+She took down the eighth and ninth with her right and left fists.
 
 *8、9匹目を右、左で。*
 
 &nbsp;
 
-Tattoo."　Tee!　Hoa!　Hota!"
+"Ta! Ti! Hoah! Hoah!"
 
 *「たっ！　てぃ！　ほぁっ！　ほぁたぁ！」*
 
-The Beetles come flying in one after another, emitting an explosive sound, and are struck down one after another with both fists.
+With explosive sounds, she knocked down the beetles that came flying one after another with her fists.
 
 *爆発音を発しながら、矢継ぎ早に飛んで来るビートル達を、次々と両の拳で打ち落とす。*
 
 &nbsp;
 
-Oh, my God!"
+"Owww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww!"
 
 *「あたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたた」*
 
 &nbsp;
 
-'Duh!　Where in the world is this lore!　Oh, my God, what a pain in the ass!
+"Ahhhhh!! Who the hell is this successor?! This is so annoying!!"
 
 *「だぁぁぁぁっっ！！　一体どこの伝承者かぁっっ！？　もぉぅーーっメンドクサイわっっ！！」*
 
 &nbsp;
 
-Instantly, he equipped his sword and released sword chi forward.
+In an instant, she equipped her sword and unleashed sword energy forward.
 
 *瞬間、剣を装備し剣気を前方に放った。*
 
 &nbsp;
 
-Shatter, shatter, shatter!
+"Shatter into pieces!!"
 
 *「砕け散れぃぃっっ！！」*
 
 &nbsp;
 
-≪Impact Storm≫.
+≪Impact Storm≫
 
 *≪インパクト・ストーム≫*
 
-The crowd of Beetles in front of us were blown away in one fell swoop.
+She blew away the swarm of beetles in front of her all at once.
 
 *前方のビートルの群れをまとめて吹き飛ばした。*
 
-In addition, the surrounding trees are quite extensive.
+In the process, she also took down quite a few trees around her.
 
 *ついでに周りの樹木も結構な範囲で。*
 
 &nbsp;
 
-"...... Ah."
+"...Ah."
 
 *「……あ」*
 
 &nbsp;
 
-The crumbling tree breaks and falls down.
+The trees that were about to collapse creaked and fell.
 
 *崩れかけた樹がメキメキと折れ倒れて行く。*
 
-A little bit of déjà vu.
+Just a little bit of déjà vu.
 
 *ちょっとだけデジャヴ。*
 
 &nbsp;
 
-I'm so lucky. ....... Tehepe-roo!"
+"I got a bit carried away... Tehepero."
 
 *「ツイ勢い余っちゃった……。てへぺろーー」*
 
 &nbsp;
 
-It's not a teppeppe-roku!
+This is not a 'tehepero' moment!
 
 *てへぺろぢゃねぇよっ！*
-

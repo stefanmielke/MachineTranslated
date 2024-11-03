@@ -1,11 +1,10 @@
-# 16 Suzy goes for the common man!
+# Episode 16: Suzy Aims to Be Common!
 
 ## 16話　スージィは庶民を目指す！
 
-Finally! Finally, we are talking about title recovery!
+Finally! Finally, it's the episode that retrieves the title!!
 
 *ようやく！ようやくのタイトル回収話です！！*
-
 
 ----------------
 
@@ -15,123 +14,123 @@ Finally! Finally, we are talking about title recovery!
 
 &nbsp;
 
-It's been quite a while since I started, so my body is getting pretty good.
+"It's been quite a while since we started, and your body has really come together."
 
 *「もう始めてから結構経ちましたから、身体も随分と出来上がってきましたね」*
 
-"Really? Come to think of it, I've been doing this for about two years now."
+"Is that so? Now that you mention it, it's been about two years."
 
 *「そうか？そう言えばもう２年位やってるな」*
 
-Even in casual, everyday movements, your performance has improved considerably. It's easy on the body, isn't it?"
+"Even in the most mundane daily movements, your performance has significantly improved. Your body must feel great, right?"
 
 *「何気ない日常の動きでも、かなりパフォーマンス上がってますよ。身体が楽なんじゃないですか？」*
 
-I'm not afraid of walking anymore," he said. It's like I'm a teenager again.
+"Yeah, walking has become completely fine. I can recover from fatigue just by sleeping, it feels like I've gone back to my teenage years."
 
 *「そうだな、歩くのとか全然平気にはなってるよな。疲れとかも寝りゃ取れるし、10代に戻ったみたいだよね」*
 
-Well, my goal is to have the resilience of a five-year-old, so I'm not there yet."
+"Well, the goal is to achieve the recovery ability of a five-year-old, so there's still a long way to go."
 
 *「まあ目指すのは5歳児の回復力ですから、まだまだですけどね」*
 
-What's that?"
+"What the heck does that mean!?"
 
 *「なんじゃそりゃ！？」*
 
-But your current body is already in the realm of a master.
+"But your current physical state has already reached the level of a master."
 
 *「でも、今の先輩の身体は既に達人の域には入ってますよ」*
 
-What?" Really? I don't feel stronger at all?"
+"Huh? Really? I don't feel any stronger at all."
 
 *「え？そうなの？全然強くなった気がしないけど？」*
 
-I don't think you can get stronger if you haven't trained to get stronger! It means that the base has been established. From there, you can train in different specialties. If it is baseball, it is baseball. If it is tennis, it is tennis. If it is martial arts, you have a base to become a martial arts expert. And that means you have entered a neutral state to become a master.
+"You can't expect to get stronger without training to become stronger! What you've built is a foundation. From there, by doing specialized training in each area, like baseball, tennis, or martial arts, you've created a base to reach mastery. It means you're entering a neutral state towards becoming a master."
 
 *「強くなる修行もしてないのに、強くなる訳無いじゃないですか！ベースが出来たって事です。そこから其々専門のトレーニングをしていく事で、野球なら野球。テニスならテニス。武道なら武道の達人に至るためのベースが出来た。と、達人へのニュートラルな状態に入ってるって事です」*
 
-Really?" What's that? Then should I do something? Aiki or iai?"
+"Is that so? Then should I do something? Like Aikido or Iaido?"
 
 *「そうなの？なんだ。んじゃ何かやった方が良いのかね？合気とか居合とか？」*
 
-I think you should do it if you want to. Do you want to do some kind of martial arts?"
+"If you want to try it, I think you should! Do you want to do something martial arts-related?"
 
 *「やりたければやってみたら良いと思いますよ？何か武道系やりたいんですか？」*
 
-I wish I had something that would make me feel better."
+"Well, not particularly... I just wish something would catch my interest."
 
 *「ん～～、特にそう言う訳でも無いかなぁ…気が向くものがありゃ良いんだけどねぇ」*
 
-Well, why don't you wait until you have something you want to do? Besides, I think it's possible to become an expert in everyday life.
+"Well, it's fine to wait until you find something you want to do. Also, becoming a master in daily life is also an option."
 
 *「まあ、やりたい物が出来てからで良いんじゃないですか？それに、日常生活の達人になるってのも有りだと思いますしね」*
 
-The most beautiful thing is to live a simple, everyday life. To live one day at a time is what life is all about.
+"The mundane daily life is the ultimate. Living each day with care is what life is all about."
 
 *「何気ない日々の暮らしこそ至高だよ。一日一日を大切に生きる事こそが人生と言うものだ」*
 
-You sound like an old man."
+"That sounds quite old-fashioned."
 
 *「言い草が年寄り臭いですよ」*
 
-I'm already an old man.
+"Well, I'm already in the old man territory."
 
 *「もうオヤジの域ですから」*
 
-Yes, the mind changes along with the body.
+"That's right, the state of your body will also change the state of your mind."
 
 *「そうですよね、身体の在り方に沿って心の在り方も変化しますからね」*
 
-What is it? Are you trying to tell me that I stink of old age, both physically and mentally?"
+"What are you saying? Are you implying that both my body and mind are old-fashioned?"
 
 *「なんだよ。心身共に年寄り臭いって言いたいのかよ？」*
 
-No, I mean, your body is performing better, so you should start to feel more relaxed mentally as well.
+"Not at all, it's just that as your physical performance improves, your mind should naturally start to feel more relaxed."
 
 *「そうじゃなくて、身体のパフォーマンスが上がってますから、自ずと精神にもゆとりが出来始めてるはずですよ」*
 
-"Really? I don't know how to have a heart. Is there even room for it?"
+"Is that so? I don't really understand what the state of my mind is... Do I even have any relaxation?"
 
 *「そうなの？心の在り方何て分かんないよ？ゆとりなんてあんのかな？」*
 
-Well, then, let's think of the state of mind in terms of water.
+"Well then, let's think of the state of your mind as water."
 
 *「そうですね、それじゃ心の在り方っていうのを水に置き換えて考えてみましょうか」*
 
-Water?
+"Water?"
 
 *「水？」*
 
-It is water. It is a container of water. If you have a small or narrow mind, it is only as big as a cup or basin. If it is somewhat larger, it may be the size of a bathtub or a pond, but it is still not big at all. ...... If the water surface is shaken or the wind blows, the surface of the water will soon rise to the surface and a cup or washbowl will quickly spill out. If you throw a stone the size of your fist into the water, the cup will break and the basin will almost completely overflow, won't it? Even a bathtub would overflow if it were a stone the size of your hand, and even a pond would have trouble with waves. A swimming pool, however, would not overflow.
+"Yes, water. A container of water. People with a narrow or small mind only have the size of a cup or a basin. If it's a bit wider, it might be a bathtub or a pond, but it's still quite small. If there's a shake or a gust of wind, the water surface will ripple, and in a cup or basin, it will spill out in no time. If you throw a fist-sized stone into a cup, it will break, and even in a basin, it will almost overflow, right? If it's a stone you have to hold, it would overflow even in a bathtub, and a pond would be disturbed. A pool might manage not to overflow, though."
 
 *「水です。水の入れ物です。心が狭かったり小さかったりする人はコップや洗面器位の大きさしか無い。多少広ければ風呂桶や池位はあるかもですが……まだ全然小さい。揺れたり風が吹いたりすれば、直ぐに水面が波立ってコップや洗面器では、あっと言う間に零れてしまいます。拳大の石なんか投げ込んだらコップなんかは割れてしまうし、洗面器でも殆んど溢れてしまいますよね？抱えるような石だったら、風呂桶でも溢れるでしょう、池だって波立って大変です。プール位なら溢れずに済むでしょうけどね。」*
 
-You're talking about wind and stones and all that stuff about outside stimuli and attacks?"
+"Are those winds and stones referring to external stimuli or attacks?"
 
 *「その風とか石とかってのは、外からの刺激とか攻撃とかって話か？」*
 
-'Yes, it's the external influences on the mind.'
+"That's right, it's the influence your mind receives from the outside."
 
 *「そうですね、心が外から受ける影響です」*
 
-If you keep taking those kinds of psychological attacks, they get tougher and tougher, and they become less effective, don't they? You know, there are fences and walls and things like that, right?"
+"Don't you think that if you keep receiving those kinds of mental attacks, you gradually become tougher and they stop affecting you? Like building walls or fences for protection?"
 
 *「そういう精神攻撃的なものってさ、受け続けてると段々丈夫になって効かなくなって来んじゃね？その、塀や壁とか立てて守るとかもあるっしょ？」*
 
-It's just a paralyzed mind," he said. If you put up a fence or a wall, it will repel everything except attacks. As I think I have said before, pain is an important piece of information. Strength is the ability to accept and endure it. Not feeling pain is not strength. However, I am not saying that you should accept a shock that you can't handle. The important thing is to create a nurturing environment that can take it. Even if a rock like a car or a dump truck jumps into the water, if it is a deep lake, the surface will calm down immediately. There will be no waves on the other side of the shore. Even if a stormy wind blows, if the lake is as wide as the ocean, the surface may be rough in one place, but in another place there will be a calm surface with not a single wave. Even with a slight wind, small waves may appear, but the surface of the water will soon regain its mirror-like appearance. That is the ultimate goal.
+"That's just your mind becoming numb. If you build walls or fences, you'll end up blocking out more than just attacks. As I mentioned before, pain is important information. The strength lies in accepting it and being able to endure it. Not feeling pain is not the same as being strong. That said, I won't tell you to endure impacts you can't handle. The key is to develop the ability to withstand them. Even if a rock the size of a car or a dump truck comes flying in, if it's a deep lake, the water surface will eventually settle down. On the opposite shore, there won't be any waves. Even if a storm-like wind blows, if it's as wide as the sea, the water surface in that spot may be rough, but in another place, there will be a calm surface without a single wave. Even a gentle breeze will create small waves, but it will quickly regain a mirror-like surface. That's the ultimate goal."
 
 *「それは心が麻痺しているだけですよ。塀や壁なんか立てたら攻撃以外も弾く様になってしまいます。前にも言ったと思いますが、痛みって言うのは重要な情報なんです。それを受け入れて耐えられるのが強さってモノです。痛みを感じない事は強さとは違います。とは言っても、受け切れない衝撃を受け止めろとは言いませんけどね。要は受け止められる素養を創っていく事が大切なんです。例え車やダンプの様な岩が飛び込んでも、深い湖ならやがて水面は直ぐ落ち着きます。対岸では波も立ちません。嵐の様な風が吹き荒れたとしても、海の様に広ければその場所の水面は荒れても、違う場所では波一つない凪いだ水面があるでしょう。細やかな風でも小さい波は立ちますが直ぐに鏡のような水面を取り戻す。それが究極的に目指すところです」*
 
-Oh! That's what you call a clear and bright light!"
+"Oh! That's the state of 'clear mirror and still water,' isn't it!?"
 
 *「おお！明鏡止水ってやつだな！？」*
 
-As our physical abilities change, so too does the depths of our hearts. Even if you don't notice it on the surface, the depth and breadth of your mind will gradually change, as well as your way of being.
+"When physical abilities change, changes will also come to the depths of your mind accordingly. Even if you don't notice it on the surface, the depth, breadth, or even the state of your mind will gradually change.
 
 *「身体能力が変われば、それに見合って心の奥底にも変化が訪れます。表面上では気づかなくとも少しずつ深さや広がり、或いはその在り方までもが変わって行くものです。*
 
-May I? Mind and body are one thing. Don't forget that."
+Do you understand? The mind and body are one. Don't forget that."
 
 *いいですか？心と身体は一つの物です。それをお忘れのないように」*
 
@@ -143,13 +142,13 @@ May I? Mind and body are one thing. Don't forget that."
 
 &nbsp;
 
-"...... another dream or ......"
+"......Another dream..."
 
 *「……また、夢か……」*
 
 &nbsp;
 
-I woke up and there was a strange ceiling...was that the prologue to something?
+When I woke up, there was an unfamiliar ceiling above me... Wasn't that part of some prologue?
 
 *目が覚めるとそこには見知らぬ天井があった…ってのは、何かのプロローグだったっけ？*
 
@@ -159,31 +158,31 @@ The ceiling is high and white.
 
 *天井は高く白い。*
 
-A wooden frame about one meter square was set in a grid pattern across the ceiling.
+A wooden frame is arranged in a grid pattern, about one meter square, across the entire ceiling.
 
 *天井一面に1メートル角程で、木製の枠が格子状に組まれていた。*
 
-The latticework was intricately decorated with circular, plant motif designs that added a touch of luxury.
+Within that grid, a complex design featuring circular plant motifs is intricately drawn, creating a sense of luxury.
 
 *その格子の中には、円形に植物をモチーフとしたデザインが複雑に描かれ、豪華さを演出していた。*
 
-The wooden frame of the latticework is also massive and finely carved in relief, and just by looking at the ceiling, one can see the prestige of this room.
+The wooden frame of the grid is also heavy and finely carved, and just looking at this ceiling gives an impression of the room's high status.
 
 *格子の木枠も重厚でレリーフが細かく彫り込まれ、この天井を見るだけでこの部屋の格調高さが窺われる。*
 
 &nbsp;
 
-Now he is in bed, looking up at the ceiling.
+Right now, I'm lying in bed, looking up at the ceiling.
 
 *今はベッドの中から天井を見上げている状態だ。*
 
-The beds are softly wrapped around the body and covered with clean covers and sheets.
+The bed is soft and envelops my body, covered with a clean cover and sheets.
 
 *ベッドは柔らかく体を包み、清潔感のあるカバーとシーツで覆われている。*
 
 &nbsp;
 
-(This is the first time I've slept in a bed since I came here... If it feels this good, I'm sure I'll be fast asleep. Last night I went to ...... and fell asleep in the middle of dinner. But still, how can I say ...... I'm becoming a toddler here, aren't I? (Myself!)
+(It's the first time I've slept in a bed since coming here... With how comfortable this is, it's no wonder I slept so soundly. Last night... Oh right, I fell asleep during dinner. But still, how should I put it... Am I becoming more childlike since coming here? Myself!)
 
 *（ベッドで寝るなんてこっちへ来て初めてだな…これだけ気持ち良けりゃ、そりゃグッスリ寝ちゃうよねぇ。昨夜は……ああ、そうだ夕食の途中で寝ちゃったんだ。それにしても何て言うか……ここに来て幼児化してないか？自分！）*
 
@@ -191,103 +190,103 @@ The beds are softly wrapped around the body and covered with clean covers and sh
 
 &nbsp;
 
-Yesterday, I couldn't stop crying, and a panicked Howard held me up and took me home.
+Yesterday, I was taken home by a flustered Howard while I was still crying.
 
 *昨日は涙が止まらないまま、慌てたハワードに抱きかかえられて帰宅。*
 
 &nbsp;
 
-When Suzy told Howard that she was moved by the sunset, Howard was distraught, and Sonia remonstrated with him, saying that sometimes girls do things like that.
+When Suzy expressed her amazement at the sunset, Sonia, slightly exasperated with Howard's panic, said, "Girls can have those moments too," in a reprimanding tone.
 
 *夕日に感動したとスージィが伝えると、取り乱すハワードに呆れ気味にソニアが　女の子にはそう云う事もありますよ　と諌める一幕があった。*
 
 &nbsp;
 
-After dinner, Suzy was again sobbing with tears of joy at the delicious taste of deer steaks and deer tongue stew, and fell asleep.
+Later at dinner, Suzy again filled her stomach with delicious dishes like deer steak and deer tongue stew, while shedding tears of joy, and apparently fell asleep.
 
 *その後の夕食でスージィが再び、旨い美味いと感涙に咽びながら、鹿ステーキや鹿タンシチュー等で腹を満たすうちに寝てしまった様だ。*
 
 &nbsp;
 
-(I feel like the two of you are always looking at my embarrassing tokos. Just remembering it makes me feel ashamed. ......)
+(I feel like I've been seen in nothing but embarrassing moments by those two. Just recalling it makes me feel ashamed...)
 
 *（なんだか、お二人には恥ずかしいトコばっかり見られてる気がするよ。思い出すだけで恥入ってしまいます……）*
 
 &nbsp;
 
-Outside, the sun has not yet risen, but the sky is beginning to turn white.
+It's still dark outside, but the sky is starting to brighten.
 
 *外はまだ陽は昇っていないが、空は白み始めている。*
 
 &nbsp;
 
-Thinking back, I got out of bed thinking, "Since I came here, I've been living a very natural lifestyle, going to bed after the sun goes down and getting up when the sun comes up. ......
+Thinking back, since coming here, I've been going to bed after sunset and waking up at sunrise, leading to a rather natural lifestyle... I thought as I got out of bed.
 
 *思えばこっちに来てからは日が沈んでから寝て、日が昇れば起きると言う、何ともナチュラルな生活スタイルになっていたな……と考えながらベッドから抜け出した。*
 
 &nbsp;
 
-It seems he was made to change into his nightgown before being put into bed.
+It seems I was changed into sleepwear before being put to bed.
 
 *ベッドに入れられる前に、寝間着に着替えさせられていた様だ。*
 
-Is it a light blue cotton weave? Light and pleasant to the touch.
+Is this a light sky-blue cotton fabric? It's light and feels good against the skin.
 
 *薄い水色のコットンの織物だろうか？軽くて肌触りが良い。*
 
 &nbsp;
 
-(He falls asleep while eating, is made to change into his nightgown, and is carried to bed. ...... I'm really serious, I'm a toddler. ......)
+(Falling asleep during a meal, being changed into sleepwear, and carried to bed... This is seriously like being a toddler...)
 
 *（食事中に寝落ちして、寝間着に着替えさせられ、ベッドまで運ばれる……。ホントマジで幼児だよコレ……）*
 
 &nbsp;
 
-He turns over and thinks to himself, his cheeks twitching a little.
+I looked down, self-deprecatingly, and my cheeks twitched slightly.
 
 *俯いて自嘲気味に考え、頬が少し引き攣ってしまう。*
 
 &nbsp;
 
-On the wall in front of him was a small desk with a view of his appearance propped up next to it.
+In front of me, a small desk was placed, and next to it, a full-length mirror was propped up.
 
 *目の前の壁には、小さな机が置かれその横に姿見が立てかけてあった。*
 
-On the desk, a change of clothes is neatly folded and placed.
+On the desk, neatly folded clothes were placed.
 
 *机の上には、着替えが綺麗に折り畳まれ置いてある。*
 
 &nbsp;
 
-The figure is carved with a lovely relief in a pink-dyed wooden frame.
+The mirror has a pink wooden frame with cute relief carvings.
 
 *姿見は、ピンクに染めた木枠で可愛らしいレリーフが刻まれている。*
 
-There is even a ribbon carved into the top, which doesn't really fit the furnishings of the room.
+At the top, there's even a carved ribbon, which doesn't quite match the decor of this room.
 
 *天辺にはリボンまで彫られていて、余りこの部屋の調度には合っていない。*
 
 &nbsp;
 
-I am sure Elrose was thoughtful enough to leave it there for me to change clothes? I guess so.
+I guessed that Elrose-san had thoughtfully placed it there for when she needed to change.
 
 *きっとエルローズさんが着替えをする時の為に、と気を利かせて置いてくれたのかな？と推察する。*
 
 &nbsp;
 
-She took off her nightgown and stood in front of the mirror in just a pair of shorts.
+I discarded my sleepwear and stood in front of the mirror in just my underwear.
 
 *そのまま寝間着を脱ぎ捨て、ショーツ一枚の姿で鏡の前に立った。*
 
 &nbsp;
 
-"Hmmm, this is the first time I've seen it in a mirror properly ......, after all, this body is ...... erotic to say I'm 13 years old."
+"Hmm, this is the first time I'm really looking in the mirror... This body, to say it's 13 years old... is quite... sexy, isn't it?"
 
 *「う～～む、ちゃんと鏡で見るのは初めてだな……、やっぱりこの身体、13歳って言うには……エロいよね」*
 
 &nbsp;
 
-I guess it's not surprising that she's 153 tall, even though she's about 20 years old,....... The first time I saw her, she was a little nervous, but she was not.
+Being 153 cm tall is not unusual for someone around twenty... I thought as I touched various parts of my body... my chest, waist, and hips... and my thoughts slipped out.
 
 *身長153ってのも二十歳くらいでもおかしくないよなぁ……。などと言いながら身体の色々な部分……胸やら腰やらお尻やら……を触りながら、感想が口から洩れて行く。*
 
@@ -295,25 +294,25 @@ I guess it's not surprising that she's 153 tall, even though she's about 20 year
 
 &nbsp;
 
-She has a narrow neck, small shoulders, and a well-shaped, bowl-shaped bust that is not small at all! The breasts are well shaped and bowl-shaped.
+A slender neck, small shoulders, and a beautifully shaped bust that is definitely not small!
 
 *細い首に小さい肩、決して小さくは無い！と思う形の良いお椀型のバスト。*
 
-The tight, narrow waist, slightly long and narrow belly button.
+A slim waist that looks like it could snap, with a slightly elongated and small navel.
 
 *キュッと引き締まった折れそうに細いウエストに、ちょっと縦長で小さいおヘソ。*
 
-Small but cute, three-dimensional buttocks that protrude slightly posteriorly.
+A small but slightly protruding, three-dimensional, and cute bottom.
 
 *小振りだが少し後に突き出た、立体的で可愛いお尻。*
 
-The line that extends from the thin ankle to the calf, curving inward and going up from the knee to the inner thigh, is very erotic and lovely.
+The line that expands from my thin ankles to my calves, curving inward and rising from my knees to my inner thighs, creates a very sexy and cute leg line.
 
 *細い足首からふくらはぎへ広がるライン、内側へカーブを描き膝から内腿へと上る脚線美はとってもエロ可愛い。*
 
 &nbsp;
 
-Duh! Cute and sexy, good style!
+Yep! What a cute and sexy figure!
 
 *ウン！可愛イヤラシい良いスタイルだ！*
 
@@ -321,49 +320,49 @@ Duh! Cute and sexy, good style!
 
 &nbsp;
 
-Her hair, when you look at it properly like this... it's beautiful. I'd say it's red. ......, it looks like rubies when the light shines through it."
+"My hair, when I look at it properly... is beautiful. It's red, or rather... when light passes through it, it looks like ruby."
 
 *「髪も、こうしてちゃんと見ると…ウン綺麗。赤って言うか……、光を透かすとルビーみたい」*
 
 &nbsp;
 
-Move your head left and right, shake your hair and watch.
+I moved my head left and right, shaking my hair.
 
 *右に左に頭を動かし髪を振って見る。*
 
-Hair that bounced outward sprinkled red light.
+The hair that bounced outward scattered a red light.
 
 *外側に跳ねた髪が紅い光を振り撒いた。*
 
-The beautiful angel ring further enhances its crimson color.
+A beautiful halo enhances that red color even more.
 
 *綺麗な天使の輪がその紅い色を更に引き立てる。*
 
 &nbsp;
 
-Her face is also ...... so well arranged that she looks like a doll. Even though ......, I do wonder if she looks a bit young. I'm not sure if it's possible to say that she looks like a little girl. But, yes! She's a beautiful woman with rounded eyes! ......So beautiful, Susie. ............
+"My face... is so well-proportioned, it looks just like a doll. ...But, there is definitely some childishness, isn't there? If I say 'middle schooler,' it might not be entirely wrong? But, yep! I've got big, beautiful eyes! ...I'm pretty, Suzy..."
 
 *「お顔も……、まるでお人形さんみたいに整っちゃって。……でも、確かに幼さはあるかなぁ？ちゅうぼうって言えば見えなくも無い？でも、ウン！オメメくりっくりの美人さんだねぇ！……綺麗だよ、スージィ…………」*
 
 &nbsp;
 
-I put my hand on the mirror and say with a determined look on my face.
+I placed my hand on the mirror and said with a determined expression.
 
 *鏡に手を置き決め顔で言ってみる。*
 
 &nbsp;
 
-"N! ...... Well."
+"Okay! ...Now then."
 
 *「ン！……さて」*
 
 &nbsp;
 
-With a slight tinge in his cheeks, he coughed lightly and took a step down.
+With slightly flushed cheeks, I cleared my throat lightly and took a step back.
 
 *少し頬を染めながら、軽く咳払いをして一歩下った。*
 
-He was slightly embarrassed.
+I seemed to have become a bit embarrassed.
 
 *若干恥ずかしく成った様だ。*
 
@@ -371,27 +370,27 @@ He was slightly embarrassed.
 
 &nbsp;
 
-Face the mirror again, legs shoulder-width apart with inner thighs, hips lightly thrust to the left, right shoulder up and left shoulder down.
+Facing the mirror again, I opened my legs shoulder-width apart and slightly thrust my hips to the left, raising my right shoulder and lowering my left shoulder.
 
 *改めて鏡に向き合い、脚を内股で肩幅に開き、腰を軽く左へ突出し右肩を上げ左肩を下げる。*
 
-The right arm should be extended down along the body, palm facing backward and fingers open in a warped manner.
+My right arm extended down along my body, palm facing backward, fingers spread apart.
 
 *右腕は体に沿って下へ伸ばし、掌を後方へ向け指を反らす様に開く。*
 
-Left arm closed at the side, bent under the chest, hand in front of the face, back of the hand facing forward, fingers open, index finger aligned with the bridge of the nose, looking straight ahead.
+My left arm was bent at the elbow, closed against my side, with my hand in front of my face, palm facing forward, fingers spread, with my index finger aligned with my nose, gazing straight ahead.
 
 *左腕は脇を閉め胸の下で曲げ手を顔の前へ、手の甲を正面に向け指を開き、人差し指は鼻筋に合わせ正面を見据えた。*
 
 &nbsp;
 
-The fragrant pose is complete.
+The pose is complete.
 
 *香ばしいポーズの完成だ。*
 
 &nbsp;
 
-It is the so-called level 1 joho stand.
+It's the so-called Level 1 JoJo pose.
 
 *いわゆるレベル1のジョ〇ョ立ちである。*
 
@@ -399,25 +398,25 @@ It is the so-called level 1 joho stand.
 
 &nbsp;
 
-Staring in the mirror while in that pose. ......
+Staring at the mirror in that pose...
 
 *そのポーズのまま鏡を睨み……。*
 
 &nbsp;
 
-"...... since when did you realize this wasn't a dream!"
+"......When did I realize this wasn't a dream!?"
 
 *「……いつからコレが夢ではないと気付いていた！？」*
 
 &nbsp;
 
-He turned to the mirror and asked the question.
+I hurled the question at the mirror.
 
 *と鏡に向かい問いをぶつけた。*
 
 &nbsp;
 
-Baa-baaaan!" and the letters drawn on his back are also carried on his back.
+『BANG!』 The words were emblazoned on my back.
 
 *『バ・バーーーーン！』と背中に描き文字も背負う。*
 
@@ -425,67 +424,67 @@ Baa-baaaan!" and the letters drawn on his back are also carried on his back.
 
 &nbsp;
 
-Tot-tot-tot, he backed up to the bed and fell straight onto his back.
+I took a few steps back to the bed and fell back onto it.
 
 *トットット、とベッドまで後ずさり、そのまま仰向けに倒れ込んだ。*
 
 &nbsp;
 
-"It's been a long time ago~~~......"
+"It's been quite a while now..."
 
 *「けっこー前からですぅ～～～……」*
 
 &nbsp;
 
-It shriveled up like a pshrrrrrrrrrrrrrrrrrrrrrrr~~~...... and the air went out.
+With a sound like air escaping, I deflated.
 
 *ぷしゅるるるる～～～……と空気が抜ける様に萎れて行って。*
 
 &nbsp;
 
-"After all, when you come in contact with another person, you realize you're not dreaming... ......"
+"Once I make contact with someone else, I realize it's not a dream..."
 
 *「やっぱり他人と接触したら、夢じゃ無いと思い知るぅぅぅ……」*
 
 &nbsp;
 
-He rolled over and slumped over and began to moan.
+I rolled over onto my stomach and began to groan.
 
 *ゴロンと転がりうつ伏せになり、呻き声を上げ始めた。*
 
 &nbsp;
 
-How am I supposed to handle something like this? With a female video game character? Cutting down mountain ranges with unbelievable power? Fighting against monsters? Is this okay? Is it okay to be human? Can I stay here? Am I allowed to live?
+"What am I supposed to do with this? As a female character in a game? Am I supposed to carve mountains with impossible powers? Or dominate monsters? Is this okay? Is it alright to be human? Can I stay here? Is it okay to live?"
 
 *「こんなのさ～～どー処理したらいいのよ～～～？ゲームの女キャラで？在り得ない力で山脈削ったり？モンスター相手に無双したり？こんなんでイイの？人間でいいの？此処に居てイイの？生きてって良いの？」*
 
 &nbsp;
 
-Unnhhhhh～～～～ and flapping his arms and legs on the bed.
+Ughhhhhh~~ I flailed my arms and legs on the bed.
 
 *うンにゃあぁぁ～～～～っとベッドの上で手足をバタつかせる。*
 
 &nbsp;
 
-But now, this is alive. I want to live as long as I'm alive. Howard is kind and Sonia's food is delicious. Good food is justice! Good food pleases the body. The body craves delicious food and life! Then think about living! Live properly!
+"But right now, this is living. As long as I'm alive, I want to keep living. Howard is kind, and Sonia's cooking is delicious. Delicious is justice! Delicious makes my body happy. My body craves deliciousness and life! Then I will think about living! I will live properly!!"
 
 *「でも今、コレは生きてる。生きてる以上は生きて行きたい。ハワードさんは優しくてソニアさんの料理は美味しい。美味しいは正義！美味しいは身体が喜ぶ。身体は美味しいと生きるを渇望している！ならば生きる事を考える！ちゃんと生きる！！」*
 
 &nbsp;
 
-I know it's kind of obvious, but think .......
+It's something so obvious, yet... I thought.
 
 *なんか当たり前の事なんだけどさ……とか考える。*
 
 &nbsp;
 
-But people have to convince themselves first, no matter how cryptic they may be, you know?
+"But even so, as a human, I have to convince myself first, no matter how unreasonable it may be."
 
 *「そんでも人間、屁理屈でも何でも良いからまず、自分を説得しないといけないからねぇ～」*
 
 &nbsp;
 
-It's so annoying~~ ....... Phewhhhhh, I rolled over again, turned onto my back and exhaled grandly.
+It's troublesome, isn't it... I rolled over once more and lay on my back, exhaling dramatically.
 
 *めんどくさいよねぇ～～……。ぷはぁーーーっと、もう一度転がって仰向けになり盛大に息を吐き出した。*
 
@@ -499,71 +498,71 @@ It's so annoying~~ ....... Phewhhhhh, I rolled over again, turned onto my back a
 
 &nbsp;
 
-So if this is not a dream, what is it?
+So, if this is not a dream, then what is it?
 
 *では、これが夢ではないとしたら何なのか？*
 
 &nbsp;
 
-In the game? In the game? No, that's exactly what I don't have.
+Is it a game? Am I inside a game? No, that can't be it.
 
 *ゲームか？ゲームの中か？いや、それこそ無いわ。*
 
-If you had said you were playing a VRMMO, a virtual experience game like the ones in anime and novels, I might still have seen such a possibility, but what I was playing was a regular PC MMO.
+Is it a VRMMO like those in anime or light novels? If I were playing a virtual reality game, I might feel some possibility, but what I was playing was a regular PC MMO.
 
 *アニメやラノベに出てくる様なVRMMO？ヴァーチャルな体感ゲームをやっていたとか言うなら、まだそんな可能性も感じたかもしれないけど、自分がやっていたのは普通にPCでのMMOだ。*
 
-It would be absurd and impossible to say that we have suddenly come to a real and virtual game world!
+Suddenly being thrown into a real, virtual game world is just absurd and impossible!
 
 *いきなりリアルでヴァーチャルなゲーム世界に来てしまったとか、それこそ無茶だ無理ゲーだ！*
 
-It is still more convincing to be told that it is a dream.
+Saying it's a dream is still more convincing.
 
 *夢だと言われた方がまだ説得力がある。*
 
-I guess there is no such thing as being in a different game.
+The idea of being in a different game is definitely out of the question.
 
 *違うゲームの中ってのはやっぱ無しだろう。*
 
 &nbsp;
 
-The game elements are generally thin, aren't they?
+In general, the game-like elements are quite thin, right?
 
 *大体にしてゲーム的要素が薄くね？*
 
-Well, sure, I can use my skills and I have an inventory at ......, but I don't get a window or anything, and I don't know what my status is.
+Sure, I can use skills and have an inventory... but there are no windows popping up, and I can't see any stats.
 
 *まぁ確かにスキルは使えるしインベントリもある……けど、ウィンドウとか出ないし、ステータスも判らない。*
 
-The upper and lower limits of ability can change depending on how much Ki or power is put in. ......
+The limits of my abilities can change based on how I put in my "ki" or "power"...
 
 *『氣』や『力』の入れ方一つで能力の上限下限が幾らでも変わるし……。*
 
-I don't suppose you have any numerical data on their abilities? I'm not sure.
+I can't help but think there are no numerical data for abilities.
 
 *能力の数値データとか無いんじゃね？とか思ってしまう。*
 
 &nbsp;
 
-After all, is it a good idea to transfer to another world like some skeletal Guilmouth or a programmer who was summoned while taking a nap, like a novel?
+Is it more like a light novel scenario where some skeleton guild master or a programmer summoned during a nap is involved in this world transfer?
 
 *やはり、どこかの骸骨なギルマスや、仮眠中に召喚されたプログラマーみたいなラノベっぽく、異世界転移ってのが落とし所か？*
 
-In fact, I was falling asleep myself and ............ probably.
+In reality, I did fall asleep... probably.
 
 *実際自分寝落ちしてたし…………多分。*
 
-Oh, and did I mention that the players are all characters and go to another world?
+Oh, there was also a story about players being transported as characters to another world, right?
 
 *あ、プレイヤー達が丸ごとキャラとして、異世界へって話しもあったっかな？*
 
 &nbsp;
 
-Either way, I'm now in ...... an unknown world, with no friends or acquaintances, and thrown out alone in the form of a play character, a novel-like otherworldly transition .......
+Either way... being thrown into an unknown world without any companions or acquaintances, in the form of a player character, is a light novel-like world transfer... that's the current situation.
 
 *どっちにしても……どことも知れない世界に、仲間も知り合いも無く、プレイキャラクターの姿でたった一人で放り出された、ラノベ的異世界転移……ってのが今の現状。*
 
-Is that FA?
+So, that's probably the conclusion, right?
 
 *それでFAかな？*
 
@@ -573,63 +572,63 @@ Is that FA?
 
 &nbsp;
 
-So, if you are going to live in such a different world, there are a few things you need to think about. ......
+If I'm going to live in such a different world, there are a few things I need to consider...
 
 *で、そんな異世界で生きて行くのならば、考えておかなきゃイケナイ事が幾つかある……。*
 
 &nbsp;
 
-The first absolutely critical case is ....... How do we live? In other words, how do we live? It is.
+The absolutely critical issue is... how to live? In other words, how to sustain myself?
 
 *まず絶対的にクリティカルな案件は……。どうやって生きて行くか？つまりどうやって生活するか？だ。*
 
 &nbsp;
 
-When I say I have money, it's game currency.
+Even if I have money, it's game currency.
 
 *お金があると言ってもゲーム通貨だしね。*
 
-I don't think that one can be used as it is.
+I can't imagine that it can be used as it is.
 
 *あれがそのまま使えるとは思えない。*
 
-It looks like a gold coin, but I don't know the value of gold here.
+It looks like gold coins, but I have no idea what the value of gold is here.
 
 *見た目は金貨っぽいが、此処での金の価値がわからん。*
 
-Is it really money in general? If they say it's money for a toy or something, you can't even look at it.
+Is it really gold? If someone said it's toy money, that would be a disaster.
 
 *大体本当に金なのか？玩具のお金とか言われたら目も当てられないぞ。*
 
 &nbsp;
 
-You could sell your belongings for money, but you should refrain from selling weapons and armor because they seem to come with all sorts of dangers.
+Selling my belongings for money is an option, but weapons and armor seem to come with various dangers, so it might be better to avoid that.
 
 *持ち物を売ってお金にするのもアリだが、武器防具は色々な危険が付いて来そうだから控えた方が良いな。*
 
 &nbsp;
 
-Would you be okay with something bland like fur or a jar?
+Furs or pots might be safe enough,
 
 *毛皮とか壺とか当たり障りの無い物なら平気かな？*
 
-The main problem is that I don't know where to sell them. ......
+but the biggest problem is... I have no idea where to sell them...
 
 *何処で売ったらいいかワカランってのが一番の問題なんだが……。*
 
 &nbsp;
 
-Objectively speaking, I am now an out-of-town kid who doesn't speak the language well and doesn't know the world.
+Objectively speaking, I am a foreign child who can't speak well and knows nothing about the world.
 
 *客観的に見て、今の自分は言葉もよく喋れない世間も知らない国外のガキだ。*
 
-The right choice for a child suddenly thrown out in the middle of nowhere, with no one he or she knows, is to take .......
+The correct choice for a child suddenly thrown into an unknown place without any acquaintances is...
 
 *突然どことも知れない、知り合いも居ない場所に放り出された子供が取るべき正しい選択は……。*
 
 &nbsp;
 
-Rely on trusted adults! This is the only way.
+To rely on a trustworthy adult! That's the only option.
 
 *信頼の置ける大人を頼る！これしか無い。*
 
@@ -637,45 +636,45 @@ Rely on trusted adults! This is the only way.
 
 &nbsp;
 
-In modern Japan, we should be able to rely on the police force, but I don't know if there is one here.
+In modern Japan, I would rely on the police, but I have no idea if they exist here.
 
 *現代日本なら警察機構を頼るべきなんだが、ココにあるのかがワカラン。*
 
 &nbsp;
 
-There is an order of knights, and I have heard glimpses of a similar organization, but they don't seem to be in this village.
+I heard that there is a knight order that seems to be a similar organization, but it doesn't seem to be in this village.
 
 *騎士団ってのがあって、それが似たような組織っぽいのはチラリと聞いた話では伺えたけど、この村には居ないっぽい。*
 
 &nbsp;
 
-But fortunately, from what I saw in the temple, Mr. Cloud seems to have a certain status and trust in this village, so it is right to consult with him.
+However, fortunately, from what I saw at the temple, Cloud seems to hold a certain position and trust in this village, so consulting with Cloud is the right move.
 
 *でも、幸いな事に神殿での様子を見るに、クラウドさんはこの村ではそれなりの地位なり信頼を持たれてるご様子だ、クラウドさんに相談するのが正解だな。*
 
 &nbsp;
 
-We can't stay here forever, can we?
+I can't stay here forever, after all.
 
 *何時までも、ココでお世話になっている訳にもいかないもんね。*
 
-If we do well, we may be able to get them a place to live or a job.
+If things go well, I might be able to get help finding a place to live or a job.
 
 *上手くすれば、住む場所や仕事を紹介して貰えるかも知れない。*
 
 &nbsp;
 
-Oooh, I think we can expect that much.
+Yeah, that seems like a reasonable expectation.
 
 *ウン、そのくらいは期待できそう。*
 
-I'll get him to talk to you earlier today when he has time!
+I should talk to him as soon as possible if I have time today!
 
 *今日早速、時間があったら話しを聞いてもらお！*
 
 &nbsp;
 
-As for the living infrastructure, I'd start with that and then go to .......
+As for establishing a living foundation, that should come first...
 
 *生活基盤については、まずはそれから……ってトコだな。*
 
@@ -683,23 +682,23 @@ As for the living infrastructure, I'd start with that and then go to .......
 
 &nbsp;
 
-...So.
+...And then.
 
 *…で、だ。*
 
-There are some things we need to know. The first of these is the issue of bravery.
+There are things I need to know. The most important of which is the hero issue.
 
 *知らなきゃいけない事もある。その筆頭が勇者問題。*
 
 &nbsp;
 
-That and otherworldly transplants.
+And the issue of world travelers.
 
 *それと異世界転移者。*
 
 &nbsp;
 
-I only know from what I heard from Henry at the Temple. ......
+I only know what I heard from Henry at the temple...
 
 *神殿で、ヘンリーさんから聞いた話からしか分かんないけど……。*
 
@@ -707,95 +706,95 @@ I only know from what I heard from Henry at the Temple. ......
 
 &nbsp;
 
-Two hundred years ago, a person from another world with great power appeared in this world.
+Two hundred years ago, a powerful being from another world appeared in this world.
 
 *200年前に、この世界に現れた大きな力を持つ別世界の人間。*
 
-He saved this country from something 200 years ago, brought the country together and laid the foundation for the modern era.
+Two hundred years ago, they saved this country from something, united the nation, and laid the foundation for the present.
 
 *200年前に何かからこの国を救って国を纏め上げ、現代の礎を造った。*
 
 &nbsp;
 
-I seem to ...... think it's something. ...... something.
+That's what I've heard, but... I can't help but feel... just a hunch.
 
 *らしいんだが……何となく思うんだけど……何となくだけどね。*
 
-This brave man was a ...... contemporary, wasn't he?
+This hero... might have been a modern person, right?
 
 *この勇者って、……現代人だったんじゃね？*
 
 &nbsp;
 
-No, I think the evidence is thin, but ...... what can I say, the progress of civilization in this world is ...... something of a chink in the armor.
+I know the reasoning is weak, but... somehow, the level of civilization in this world feels... a bit disjointed.
 
 *いや、根拠は薄いと思うんだけど……なんというか、この世界の文明の進度って……なんかチグハグなんだよね。*
 
 &nbsp;
 
-The only transportation was horse-drawn carriages, and apparently no internal combustion engines existed.
+The only means of transportation seems to be horse-drawn carriages, and it appears that internal combustion engines don't exist.
 
 *交通機関は馬車くらいで、どうやら内燃機関は存在していないらしい。*
 
 &nbsp;
 
-I think it's about 18th-19th century as far as lifestyle is concerned. ......
+From what I can see of the lifestyle, it seems to be around the 18th to 19th century...
 
 *生活様式を見る限り18～19世紀くらいだと思うんだけど……。*
 
-In our world, the Industrial Revolution would have occurred, steam engines would have been developed, and trains would have been running, but apparently that is not the case.
+In our world, that would be the time of the industrial revolution, when steam engines were developed and trains were running, but it seems that doesn't exist here.
 
 *我々の世界なら産業革命が起きて、蒸気機関とか発達して列車が動いてた頃だが、どうもそれが無いっぽい。*
 
 &nbsp;
 
-There is no lifeline.
+There are no lifelines either.
 
 *ライフラインも無い。*
 
-There was no running water, it was a well, and in the kitchen they used a rowing pump to get water out.
+There are no water pipes, just wells, and in the kitchen, water is drawn with a hand pump.
 
 *水道は無くて井戸だ、台所では手漕ぎポンプで水を出してた。*
 
-Naturally, there is no electricity or gas. The ovens are wood-fired, and the lights are lamps and candles.
+Of course, there is no electricity or gas. Ovens are wood-fired, and lighting is provided by lamps and candles.
 
 *当然電気もガスも無い。オーブンは薪で、明かりはランプと蝋燭だ。*
 
-Even so, you can even use the shower in a warm bath.
+Yet, somehow, there are warm baths and even showers.
 
 *そのくせ温かいお風呂にシャワーまで使える。*
 
-There was even a cordless hair dryer.
+There are even hair dryers without cords.
 
 *コードの無いドライヤーまであった。*
 
 &nbsp;
 
-What surprised me was the washlet! Why is there one?
+What surprised me was the washlet! Why is that here!?
 
 *驚いたのはウォシュレット！なんであんの！？*
 
 &nbsp;
 
-I was so surprised! I was suddenly pushed up by the warm water!
+I was so shocked! Suddenly being hit with warm water was a big deal!
 
 *もーービックリしちゃったわよ！イキナリ温水に突き上げられちゃうんだモン！*
 
-This is a very serious situation from a maiden's point of view! I made a weird noise and Elrose was surprised and laughed at me! I made a strange voice and Elrose was surprised and laughed at me. ......
+For a girl, this is a serious situation, right!? Ughhh! I made a strange sound and Elrose-san was surprised and laughed at me...
 
 *乙女的には大変な事態ですよコレ！？うぴゃぁぁぁ！とか変な声あげちゃって、エルローズさんに驚かれて笑われちゃったし……。*
 
-Aah! I'm getting embarrassed just remembering it!
+Ah! Just recalling it makes me feel embarrassed!
 
 *あぁっ！思い出しただけで恥ずかしくなってきた！*
 
 &nbsp;
 
-Absolutely ridiculous! It's crazy to think that the standard of living is on par with modern times when there is not even a foundation of infrastructure! It looks like they just inserted some technology or knowledge from the side.
+This is definitely strange! How can the standard of living be on par with modern times without even the foundation of infrastructure? It looks like some technology or knowledge was inserted from the side.
 
 *絶対におかしい！インフラの土台さえ無いのに生活水準が現代並みとかどうかしてる！どっか横から技術だか知識だかを挟み込んだ様にしか見えない。*
 
-What the hell did you do? Brave man!
+What did you do!? Hero!
 
 *何やった！？勇者！*
 
@@ -803,47 +802,47 @@ What the hell did you do? Brave man!
 
 &nbsp;
 
-There may or may not have been other watchers besides the brave men and their attendants. ......
+There may have been other world travelers besides the hero and their companions, or there may not have been...
 
 *勇者と随行者以外にも渡界者は居たのかもしれないし、居なかったかもしれない……。*
 
-Well, I have no idea about this area at this stage.
+Well, I have no idea about that at this stage.
 
 *まぁこの辺は今の段階では全く分りませんけどね。*
 
 &nbsp;
 
-But if they were there, I don't think it's wrong to track their whereabouts.
+But if there were, I don't think it's wrong to pursue their whereabouts.
 
 *でも居たとして、その行方を追うのは間違ってないと思う。*
 
 &nbsp;
 
-Where did the brave men come from, what did they do and where did they go?
+Where did the heroes come from, what did they do, and where did they go?
 
 *勇者たちは何処から来て何をやって何処へ行ったか？*
 
-Is this the place to start looking?
+That's probably the first thing to investigate.
 
 *コレが取敢えず調べる所かな？*
 
-If they were able to return to where they came from. ...... if they had the means to return.
+If they were able to return to their original place... if there is a means to return.
 
 *もし彼らが元の場所へ帰る事が出来ていたなら。……帰る手段があるのなら。*
 
 &nbsp;
 
-I have to go home too. ......... what? From ...... where? ...... where? ...... where? .......
+Can I also return... what is... where from? ...Where is it? ...Where to? ...What...?
 
 *自分も帰る事が………なにが？……どこから？……どこが？……どこに？……。*
 
 &nbsp;
 
-Let's not, it's a coy thought.
+Let's stop, these thoughts are getting scary.
 
 *やめよう、コワイ考えになってくる。*
 
-Well, "Chasing the Legend of the Brave" is a definite.
+Well, "pursuing the hero legend" is a confirmed matter.
 
 *まぁ『勇者伝説を追う』は確定事項で。*
 
@@ -851,27 +850,27 @@ Well, "Chasing the Legend of the Brave" is a definite.
 
 &nbsp;
 
-Another matter of the greatest concern.
+Another major concern.
 
 *もう一つ、最大級の懸念案件。*
 
-Was the brave man a game player?
+Was the hero a game player?
 
 *勇者はゲームプレイヤーだったのか？*
 
-If the brave ones are, so are their attendants?
+If the hero was, were their companions as well?
 
 *勇者がそうなら随行者もか？*
 
-Were there others?
+Were there others besides them?
 
 *それ以外にも居たのか？*
 
-Are you still there?
+Are there still others now?
 
 *今も居るのか？*
 
-Will there be more to come?
+Will more come in the future?
 
 *これからも来るのか？*
 
@@ -879,15 +878,15 @@ Will there be more to come?
 
 &nbsp;
 
-I'm a small fry player in the game, though I came to this world and became a warrioress.
+So far, I've come to this world and been invincible, but in the game, I was a weak player.
 
 *今のトコ自分はこの世界に来て無双したけど、ゲーム内では雑魚プレイヤーだ。*
 
-I am confident that if a high level player were there, he would be killed instantly.
+If there are high-level players, I have no confidence that I wouldn't be instantly killed.
 
 *高レベルプレイヤーが居たら瞬殺される自信はある。*
 
-When the PKer comes, there is not a single pool.
+If a PKer comes, I wouldn't stand a chance.
 
 *PKerが来たら一溜まりもない。*
 
@@ -895,45 +894,45 @@ When the PKer comes, there is not a single pool.
 
 &nbsp;
 
-If by now, those who have crossed over to this world ...... who are to come were high level, I would be a small fry commoner.
+It's entirely plausible that the hero was a high-level player.
 
 *今までに、この世界へ渡って来た人……これから来る人が高レベルだったなら、自分は雑魚庶民もいいとこだ。*
 
-It is quite possible that the brave man was a high level player.
+<b>
 
 *勇者が高レベルプレイヤーだったってのは十分考えられる。*
 
 &nbsp;
 
-At least I don't think of myself as a brave man.
+I have the awareness of being a commoner.
 
 *少なくとも自分は勇者になろうなんて思わない。*
 
-I'm aware of the common people.
+<b>
 
 *庶民の自覚あるからね。*
 
 &nbsp;
 
-What would you do if you were born a man and you didn't want to be a man? I know there are some people who think like ......, but I don't.
+I’m the type who thinks, "Please do your best in places unrelated to me."
 
 *男と生まれたからには天下狙わずどうする？……的な発想する人も居るんだろうけど自分には無いし。*
 
-I'm the type of person who thinks, "Please do your best in a place that has nothing to do with me. ......
+<b>
 
 *そう云うのは、どうかコチラとは関係無いトコで頑張って下さいね……と考えるタイプですから。*
 
 &nbsp;
 
-It is impossible for me to take care of the majority of people other than myself!
+I can barely manage to take care of family, friends, and those around me!
 
 *そんなね、己以外の大多数の面倒見るなんて自分には無理ですからね！*
 
-At best, they will be busy taking care of their family, friends, relatives, and others around them!
+I'm just a team leader for a few people!!
 
 *精々家族とか友だちとか身内とか、身の回りの人らの面倒見るので精一杯になっちゃいますよ！*
 
-I'm a team leader with a few people!
+<b>
 
 *出来て数人のチームリーダーっすからね！！*
 
@@ -941,13 +940,13 @@ I'm a team leader with a few people!
 
 &nbsp;
 
-I have to be careful and alert in advance to avoid mistakes, but when mistakes occur, I follow up with them, listen to their complaints, comfort them, and scold them. When the boss told me that it was impossible to adjust the schedule, I would say, "That's impossible! I would say, "That's impossible! Even with the team's help, I managed to make it on time, but they looked at me like I deserved it! But I couldn't say anything. Still, the drinks at the party were delicious, and I was glad to be a part of this team. ......
+Yet, the drinks at the celebration are delicious, and I can't help but think how glad I am to be on this team...
 
 *ミスしないように前もって注意警戒しつつも、ミス出たらフォローして、愚痴聞いてやったり、慰めてやったり、叱ったり。上からスケジュール調整の無理言い渡されて、そんなん無理！！と言ったり言われたり。それでもチームに助けられつつ何とか間に合わせても、出来て当然みたいな顔で受け取られて、労いくらい掛けろよコノヤロ！と思っても言えなくて。それでも打ち上げの酒は美味いんで、このチームで良かったなぁとか思ってしまう……。*
 
 &nbsp;
 
-I am such a commoner!
+That's the kind of commoner I am!!
 
 *そんな庶民なんです！！*
 
@@ -955,29 +954,29 @@ I am such a commoner!
 
 &nbsp;
 
-Mr. President? It's hard work, isn't it? You're responsible for the lives of so many people, so please do your best!
+The boss? That's tough, right? You're carrying the responsibility for many lives, so do your best!
 
 *社長？大変だよね？大勢の生活の責任背負ってんだから頑張って下さいよ！*
 
-I can't do it! Just thinking about it makes me sick to my stomach!
+I can't do that! Just thinking about it gives me a stomach ache!
 
 *ボクには出来ません！考えただけで胃に穴が空く！*
 
-Dream big? Under the sun? I don't know! You can look at it on your own!
+Dream big? The world? I don't know!! Just keep dreaming!!!
 
 *夢をでっかく？天下？しらねぇよ！！勝手に見てろ！！！*
 
-I don't want to smoke brandy and watch the night view from a high floor of the Hills.
+I don't even want to look at the night view from a high floor in Hills while sipping brandy.
 
 *別にヒルズの高層階からブランデー燻らせて夜景を見たいとも思わないし。*
 
-I like to be on the ground! I like to drink hoppy drinks while eating yakitori at a keg table at a standing bar in Noge!
+I love the ground! Eating yakitori at a standing bar in Noge while drinking hoppy is the best!!
 
 *オレは地べたが好きなんだ！野毛の立ち飲み屋の樽テーブルで焼き鳥食いながらホッピー飲むのが美味いんだよ！！*
 
 &nbsp;
 
-Oh! I want to eat shirokoro!
+Ah! I want to eat shirokoro!!!
 
 *ああ！シロコロ喰いてぇ！！！*
 
@@ -985,53 +984,53 @@ Oh! I want to eat shirokoro!
 
 &nbsp;
 
-...... Oops, my bad. That was some personal bitching. ...... Well, in short, I wanted to strongly assert that I am a commoner from the bottom up! I wanted to strongly insist that I am a commoner from the bottom of my heart.
+...Oops, my apologies. I let out some personal gripes there... Well, in short, I wanted to strongly assert that I am fundamentally a commoner!
 
 *……おっと、失礼しました。なんか個人的な愚痴が出てましたね……。まぁ要するに自分は根っからの庶民である！と強く主張したかった訳です。*
 
 &nbsp;
 
-You'll have to be prepared for a lot of things. ......
+There are various things I need to prepare for...
 
 *色々と覚悟も決めなきゃいけないだろうしね……。*
 
 &nbsp;
 
-To be honest, I wonder if an irregular being like myself is allowed to be in this world. I also think about it. ......
+Honestly, I wonder if it's okay for an irregular existence like mine to be in this world?
 
 *正直、自分の様なイレギュラーな存在がこの世界に居て良いのか？とも考える……。*
 
-Therefore, they should not act in a conspicuous manner.
+That's why I shouldn't take actions that stand out.
 
 *だから、目立つ様な行動はとるべきでは無いのだ。*
 
-If this is true, perhaps they should just hunker down somewhere.
+Ideally, I should probably hide away somewhere quietly.
 
 *本当なら、どこかでヒッソリと身を隠すべきなのかもしれない。*
 
-If you can't do that, at least build a modest life as a commoner.
+If I can't do that, then at least I should strive to build a modest life as a commoner.
 
 *それが出来ないなら、せめて慎ましく庶民としての生活を築いて行けば良いのだ。*
 
 &nbsp;
 
-Yes, let's try to integrate ourselves into this world as common people.
+Yes, I will make an effort to blend into this world as a commoner.
 
 *そう、庶民としてこの世界に融け込む様に努力をしよう。*
 
 &nbsp;
 
-If there are high-level players, it could be an END at that point if you stand out badly and are noticed by them.
+If there are high-level players, standing out and attracting their attention could lead to an end for me.
 
 *高レベルプレイヤーが居るのなら、悪目立ちして彼らに目を付けられたらその時点でendにも成りかねない。*
 
-Bright commoners who are rooted in the community without being conspicuous or showing off! That's what we are aiming for!
+I aim to be a bright commoner rooted in the community without standing out!
 
 *目立たず出しゃばらず、地域に根差す明るい庶民！目指すところはそれ！*
 
 &nbsp;
 
-Know thyself, and seek to live within your means, without being extravagant!
+Know yourself, avoid arrogance, and seek a lifestyle that suits your means!
 
 *己を知り、奢る事無く、身の丈に合った生活を模索するのだ！*
 
@@ -1045,31 +1044,31 @@ Know thyself, and seek to live within your means, without being extravagant!
 
 &nbsp;
 
-"...... know thyself and ......?"
+"......Know thyself..."
 
 *「……己を知り……か」*
 
 &nbsp;
 
-He rolls over on his back on the bed and mutters to himself as he looks at his right hand raised above him.
+I lay on my back on the bed, looking at my raised right hand and murmured.
 
 *仰向けにベッドに転がり、上にあげた右手を見ながら呟く。*
 
 &nbsp;
 
-You can find it at .......
+"The mind and body are one... huh."
 
 *「『心と身体はひとつ』……ね」*
 
 &nbsp;
 
-Keep your right hand raised and clench your fist. ......
+I raised my hand and clenched my fist...
 
 *右手を上げたまま拳を握りしめ……。*
 
 &nbsp;
 
-A beautiful girl in body, but an old man in brain! The brain is an old man!
+"My body is a beautiful girl! My mind is an old man!!"
 
 *「身体は美少女！頭脳はオッサン！！」*
 
@@ -1077,19 +1076,18 @@ A beautiful girl in body, but an old man in brain! The brain is an old man!
 
 &nbsp;
 
-With a slap, he drops his hand forcefully onto his forehead and .......
+I let my hand fall weakly onto my forehead...
 
 *パタリと力なく手を額の上に落し……。*
 
 &nbsp;
 
-'If ......, then what's in your heart? What's ...... the heart ......?"
+"......Then, what about my heart? ...What is my heart...?"
 
 *「……なら、心は？……心は何なんだろね……？」*
 
 &nbsp;
 
-There is no one anywhere to answer that question.
+No one is there to answer that question.
 
 *その問いに答える者は何処にもいない。*
-

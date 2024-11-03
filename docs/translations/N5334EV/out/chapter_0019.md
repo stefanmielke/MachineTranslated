@@ -1,51 +1,50 @@
-# 19 Susie Cloud's First Day of School
+# Chapter 19: Suzy Cloud's First Day at School
 
 ## 19話　スージィ・クラウドの初登校
 
-Come on! The number of characters will be bumped up from here! (Explosion)
+Alright! From here on, the characters are going to increase rapidly! (LOL)
 
 *さあ！こっからキャラがボコボコ増えます！（爆*
-
 
 ----------------
 
 &nbsp;
 
-'Susie, would you be interested in going to school to see?'
+"Ms. Suzy, would you be interested in attending school?"
 
 *「スージィさん、学校に通って見る気はありませんか？」*
 
 &nbsp;
 
-It was two days after I became Suzy Cloud that Henry told me this.
+It was two days after I became Suzy Cloud when Mr. Henry said that to me.
 
 *そうヘンリーさんに言われたのは、わたしがスージィ・クラウドになってから二日後の事だった。*
 
 &nbsp;
 
-It was sudden, and I was just getting a raspberry tart, so I tilted my head with my fork in my mouth, a little embarrassed.
+It was sudden, and I was just enjoying a raspberry tart, so I tilted my head slightly with a fork still in my mouth, feeling a bit embarrassed.
 
 *突然だったし、丁度木苺のタルトを頂いていたとこだったので、少しはしたないけど、フォークを咥えたまま小首を傾げてしまった。*
 
 &nbsp;
 
-"In about two weeks, this term will be over. ......
+"There's only about two weeks left in this term, though..."
 
 *「後二週間ほどで今期は終わってしまいますが……」*
 
-'Hmmm, I was thinking that school would eventually... but is it okay if I go before the end of this semester?'
+"Hmm, I was considering school eventually... but is it alright to go within this term?"
 
 *「ふむ、学校はいずれ…と考えていたが、今期の内に行ってしまって良いのかな？」*
 
-Yes, after this period we will be on a long vacation, and the beginning of the school year is two months away. Wouldn't it be better for you to spend two months of summer with friends your own age instead of spending it alone? I think it would be better for you to spend two months of summer with friends your own age rather than spending it alone.
+"Yes, after this term, there will be a long vacation, and the new school year starts in two months. Wouldn't it be better to spend those two months with friends around the same age rather than alone? That's what I think."
 
 *「はい、この期を過ぎると長期休暇に入ってしまい、学年始めは2か月後です。お１人で過ごされるより、同じ年頃のお友だちで、夏の2か月過ごされた方が良いのでは？と愚考いたします」*
 
-'Indeed! That's for sure! Let's get ready as soon as possible! Henry, can you take care of the formalities?"
+"Indeed! That's absolutely right! Let's get ready right away! Henry, can you handle the procedures?"
 
 *「確かに！確かにその通りだ！早速準備をしよう！ヘンリー、手続きは頼めるか？」*
 
-I'll leave it to you. I have already talked to Daisy about this. It is her opinion that I should go to school this term."
+"Leave it to me. I've already discussed this with Daisy. In fact, it was her suggestion to go to school within this term."
 
 *「お任せください。既にデイジーとは、この事について話は済んでおります。寧ろ今期中に学校へ、と言うのは彼女の意見です」*
 
@@ -57,7 +56,7 @@ Who is Ms. Daisy? I asked.
 
 &nbsp;
 
-Daisy is my wife who made this tart, and she is also a school teacher in the village of Amkham."
+"Daisy is my wife who made this tart and is also a teacher at the school in Amukam village."
 
 *「デイジーはこのタルトを作った私の妻で、アムカム村の学校の教師でもあるのですよ」*
 
@@ -67,75 +66,75 @@ He told me.
 
 *と教えてくれた。*
 
-I'm sorry, but I'm not sure I understand! By the way, you mentioned that Daisy made the cherry pie the other day!
+Oh! Speaking of which, you mentioned that Ms. Daisy made the cherry pie the other day!
 
 *をを！そう言えば、この前のチェリーパイもデイジーさんが作られたと仰っていましたね！*
 
-There's something wonderful about a teacher who is good at baking!
+A teacher who is good at baking is quite wonderful!!
 
 *お菓子作りが得意な先生って、何か素敵ですね！！*
 
 &nbsp;
 
-But I think the development is too sudden. ......?
+But, it feels like the development is a bit too sudden... doesn't it?
 
 *でも、展開がいきなり過ぎな気もします……よ？*
 
 &nbsp;
 
-Does Susie not like going to school?"
+"Does Suzy dislike going to school?"
 
 *「スージィは学校へ行くのは嫌かね？」*
 
-No, I'd like to, but I'm a little nervous.
+"No... I want to... go... but... I'm a little... worried?"
 
 *「いえ・・・いって・・・みたい・・・です・・・けど・・・すこし・・・しんぱい？」*
 
 &nbsp;
 
-Isn't it difficult for an unidentified person, who doesn't even know where he/she came from, to suddenly fit in at a school? Normally, people would be wary, right?
+Isn't it difficult for an unknown person whose background is unclear to suddenly blend into a school? Normally, wouldn't they be cautious?
 
 *何処から来たかも分らない身元不明な人間が、いきなり学校に溶け込むのって難しいんじゃないのかな？普通は警戒されるよね？*
 
-When I tell them that.　I said, "That's not true!　I said,
+When I conveyed such thoughts, Mr. Howard said, "That's not the case!"
 
 *そんな事を伝えると。　そんな事は無いぞ！　と、*
 
 &nbsp;
 
-Mr. Howard told me that the village of Amkamu values the strong, and that if I could get Mr. Howard's approval and also show that I had defeated Wolf, the people of the village would accept me without any problems.
+According to Mr. Howard, in Amukam village, there is a trend of valuing the strong, and with Mr. Howard's endorsement and the achievement of defeating a wolf, the villagers would accept me without any problem...
 
 *ハワードさんが言うには、このアムカム村は強い者を貴ぶと云う風潮があり、ハワードさんのお墨付き、更にはウルフを倒した実績が示されれば、何の問題も無く村の人間には受け入れるだろう…と。*
 
 &nbsp;
 
-What's that? A gymnastic hamlet? I'm a little taken back.
+What is that? An athletic village? That's a bit off-putting.
 
 *ナニソレ？体育会系村落？ちょっと引くわー。*
 
 &nbsp;
 
-Well, I thought there would be no problem, so I decided to go to the school from the beginning of the week.
+Well, that’s why it was decided that I would start attending school from the beginning of the week without any issues.
 
 *まぁだから問題無いだろう、とサックリ週明けから通う事に決まってしまった。*
 
 &nbsp;
 
-I was thinking at ...... that when our Howard Dad decides to do something like this, he has a tremendous ability to follow through.
+...I thought about it, but once my dad Howard decides on something, his follow-through is incredible.
 
 *……思ったんだけど、ウチのハワードパパってばこうしようって決めると、その後の行動力がすんごいのよね。*
 
-They quickly make arrangements and get things done in no time at all.
+He quickly makes arrangements and moves things along rapidly.
 
 *サクサク段取り決めて、みるみる事を進めちゃう。*
 
 &nbsp;
 
-Is this what you call a managerial personality? Well, if Mr. Shacho is like this, we can all go along with him without any worries!
+Is that what they call an entrepreneurial spirit? Well, with a president like him, everyone can feel secure following along!
 
 *経営者体質っていうの？ま、こんなシャチョさんなら皆安心して着いて行けるよね～！*
 
-I'm a little proud of myself.
+Hehe, I felt a bit proud.
 
 *ふふン、ちょと誇らしかったりしる。*
 
@@ -143,25 +142,25 @@ I'm a little proud of myself.
 
 &nbsp;
 
-When I went home and told her about the school, it seemed to turn off something in Sonia.
+Then, when I got home and told my family about school, it seemed like something switched on in Sonia.
 
 *ンで、お家に帰って学校の事を伝えたら、ソニアさんの何かのスイッチが入ってしまった様だ。*
 
-Is your nose breathing strangely? What, are you putting more effort into it than you should?
+She was unusually excited? W-wait, isn't she putting in a bit too much effort?
 
 *妙に鼻息が荒い？な、なんだか必要以上に力入ってません？*
 
-The next day, Sonia and I decided to go to town to get a few things for me.
+The next day, Sonia and I decided to go to town together to gather various things for me.
 
 *翌日、わたしの物を色々揃える為に、ソニアさんと二人で街まで行くことになった。*
 
 &nbsp;
 
-The first time is the crucial time, so you have to be well equipped! says Sonia-mama.
+Since the first impression is important, Sonia said we must prepare properly!
 
 *最初が肝心なのだから、装備はしっかり整えなければいけない！とソニアママは仰る。*
 
-Is the equipment....let's see, is there a battle? It's a school, right?
+Equipment? Is there... combat involved?! This is school, right?!
 
 *装備って…せ、戦闘でもあるんですか？！学校ですよね？！*
 
@@ -169,55 +168,55 @@ Is the equipment....let's see, is there a battle? It's a school, right?
 
 &nbsp;
 
-Sonia's legs are not strong to begin with, and although she has no problem moving around the house, she is unable to stand for long periods of time or walk long distances.
+It was only then that I learned that Sonia originally had weak legs. While she had no problem moving around the house, she couldn't stand for long periods or walk long distances.
 
 *この時になって初めて知ったんだけど、ソニアさんは元々脚が丈夫では無く、家の中を動く分には問題無いけれど、長時間立ちっ放しとか、長い距離を歩く事が出来ない。*
 
-He said that when he goes away, he uses a wheelchair as well as a horse-drawn carriage.
+She mentioned that when going on long trips, she also used a wheelchair besides a carriage.
 
 *遠出をする時は、馬車以外で車椅子も利用すると言っていた。*
 
 &nbsp;
 
-Even in the house, he leaves the heavy lifting to Elrose, as it is hard on his legs to carry too many heavy things.
+Even at home, if she carries something too heavy, it puts a strain on her legs, so she leaves the heavy work to Elrose.
 
 *家の中でも、あまり重い物を持つと脚に負担がかかるので、力仕事はエルローズさんに任せているそうだ。*
 
 &nbsp;
 
-This is! I must properly support Sonia-mama! Physically! Mentally!
+This is it! I have to support Sonia properly! Physically! Mentally!!
 
 *これは！わたしがちゃんとソニアママを支えないといけない！物理的にも！精神的にも！！*
 
 &nbsp;
 
-On the way to town, the carriage was steered by Sonia.
+On the way to town, Sonia handled the carriage.
 
 *街までの道中、馬車はソニアさんが操車した。*
 
-I admire you even more that you are not just a ...... classy lady to be able to do this.
+I was even more impressed to find out she could do such things... she’s not just a refined lady.
 
 *こんな事まで出来るなんて……只の品の良いご婦人では無いのだなと、更に尊敬してしまう。*
 
 &nbsp;
 
-But I have to learn to steer the car too, to reduce the burden on Sonia-mama! I made a mental note to do so.
+But to reduce Sonia's burden, I also need to learn to handle the carriage! I etched that into my heart.
 
 *でもソニアママの負担を減らす為にも、自分も操車覚えないとな！と心に刻んだ。*
 
 &nbsp;
 
-On the road, it was just the two of us with Sonia, and I was strangely excited about something, so we talked a lot again about a lot of unimportant things.
+During the journey, it was just Sonia and me, and we were unusually high-spirited, chatting about all sorts of things.
 
 *道中はソニアさんと二人だけで、何か妙にテンションが上がってて、また取り留めない話を沢山してしまった。*
 
 &nbsp;
 
-But the secret is that it was mostly about food!
+But it was a secret that most of the conversation was about food!
 
 *でも、大体が食べ物の話だったのは秘密だ！*
 
-He also promised to teach me how to cook a little from now on.
+We also promised to gradually teach each other cooking.
 
 *これから少しずつ調理を教えて貰う約束もした。*
 
@@ -227,43 +226,43 @@ He also promised to teach me how to cook a little from now on.
 
 &nbsp;
 
-The road leading to the town ...... Copetown is made of red earth, which contrasts with the translucent green of the grass and trees around the road, making it easy on the eyes.
+The road to the town... to Coop Town was packed with red soil, and the contrast with the transparent green of the surrounding grass and trees was easy on the eyes.
 
 *街へ……コープタウンへ続く道は、赤い土で固められていて、道の周りの草木の透き通る様なグリーンとのコントラストが目に優しい。*
 
-Wheat fields spread out peacefully, and woods and forests with clusters of trees appear in places.
+The tranquil expanse of wheat fields and the clusters of trees peeking out here and there.
 
 *長閑に広がる麦畑と、所々に顔を出す木々の集まる林や森。*
 
-Although not as high as Deipala, the peaks of the mountains in a light purple haze can be seen in the distance to the south.
+Though not as tall as the Dipaura, the peaks of the faintly purple mountains visible in the distance to the south.
 
 *デイパーラ程の高さは無いけれど、南の彼方に見える薄紫に霞む山々の峰たち。*
 
-Such a view was pleasing to my eyes from the carriage.
+Such scenery was delighting my eyes from atop the carriage.
 
 *そんな景観が、馬車の上からわたしの眼を楽しませてくれていた。*
 
 &nbsp;
 
-The sky was a dazzling, piercing deep sky blue, and a mass of white clouds without height were being swept away by the wind.
+The sky was a dazzling deep sky blue, with low, white clouds drifting in the wind.
 
 *空は眩しいくらいに突き抜けたディープスカイブルーで、高さの無い真っ白な雲の塊が風に流されていた。*
 
 &nbsp;
 
-Holding my hat in the wind, I inhale the breeze with all my might, and the smell of wheat, greenery, and sky fills my chest, making me feel very good.
+As I held onto my hat against the wind and took a deep breath, the scents of wheat, greenery, and sky filled my chest, making me feel very good.
 
 *風に揺れる帽子を押さえながら思いっきり風を吸い込むと、麦と緑と空の匂いが胸一杯に広がってとても気持ちが良い。*
 
 &nbsp;
 
-Sonia looked at me with loving eyes as I did so.
+Sonia was watching me with affectionate eyes.
 
 *そんな様子を、ソニアさんに愛おしげな眼差しで見つめられていた。*
 
 &nbsp;
 
-I was embarrassed when our eyes met, but for some reason that made me very happy.
+I felt embarrassed when our eyes met, but for some reason, it made me very happy.
 
 *目が合って恥ずかしかったけれど、それが何故だかとても嬉しかった。*
 
@@ -271,67 +270,67 @@ I was embarrassed when our eyes met, but for some reason that made me very happy
 
 &nbsp;
 
-We used a horse-drawn carriage to get to town, but Sonia's hand was always taken as we walked to the stores.
+We used the carriage to get to town, but we walked to the shop, so I held Sonia's hand the whole time.
 
 *街までは馬車を使ったが、お店への移動は徒歩になったのでソニアさんの手は常に取っていた。*
 
 &nbsp;
 
-I laugh and say, "Don't worry so much, I'll be fine.　I laugh and say, but I'm ...... worried! I won't let go of your hand!
+"You don't have to worry so much, it's fine!" she said with a smile... but I'm worried! I won't let go of your hand!!
 
 *そんなに心配しなくても平気よ？　と笑って言うけれど……心配だもの！手は離しません！！*
 
 &nbsp;
 
-A fashion show was held at the store!
+At the shop, a fashion show was held!
 
 *お店ではファッションショーが執り行われました！*
 
-Audience, Sonia Mama. Model, Susie Cloud.
+Audience: Sonia. Model: Suzy Cloud.
 
 *観客、ソニアママ。モデル、スージィ・クラウド。*
 
 &nbsp;
 
-Well, in short, a dress-up doll? They are dressed this way and that way, and Sonia-mama chooses the clothes and goes .......
+In short, it was like a dress-up doll? I was dressed in various outfits, with Sonia choosing them...
 
 *まぁ要するに着せ替え人形？あれやこれやと服を取っ替え引っ替え着せられて、ソニアママが選んで行く……という。*
 
 &nbsp;
 
-There are also hats, shoes, new baskets, stationery, and finally underwear.
+There were also hats, shoes, a new basket, stationery, and finally, underwear.
 
 *他にも帽子や靴、新しいバスケットや文具、最後には下着も。*
 
 &nbsp;
 
-I was a little embarrassed to wear underwear, but Sonia was in high spirits, and she chose a wide range of underwear, from cute little ones to slightly more adult-like ones.
+Underwear was a bit of a high hurdle and embarrassing, but Sonia was in high spirits, choosing a wide range from cute to slightly adult-like items.
 
 *下着はやっぱちょっとハードル高く恥ずかったのだけれど、ソニアさんはノリノリで幼可愛いものからちょっとアダルティな物まで、幅広く選んで行った。*
 
-But what about silk string pants and quirky 13 year olds? I thought so. ......
+However, I wondered if something like silk string panties was really appropriate for a 13-year-old...
 
 *でも、シルクの紐パンとか流石に13歳にはどうなの？と思ったのだが……。*
 
 &nbsp;
 
-It's what you don't see that counts when it comes to a woman's personal appearance!　I can't say anything if you say with a straight face.
+When she said, "The unseen aspects of a woman's grooming are important!" with a serious face, I couldn't say anything.
 
 *女の身嗜みは見えない所こそが重要なの！　と真顔で言われてしまうと何も言えない。*
 
 &nbsp;
 
-After all the shopping was done, I asked the shopkeeper to carry my bags to the carriage and load them, and a pile was formed on the back of the ...... cart.
+After finishing all the shopping and having the clerk carry and load our things onto the carriage... a mountain of items had formed in the back.
 
 *買い物が全部終り、荷物を店員さんに馬車まで運び積み込んで貰ったら……荷台に山が出来上がっていた。*
 
-I couldn't help but look at Sonia-mama and laugh at each other.
+Sonia and I exchanged glances and burst into laughter.
 
 *思わずソニアママと見つめ合い、ケラケラと笑い合ってしまった。*
 
 &nbsp;
 
-We need Howard to do his best," said Sonia with a dazzling smile.
+"We need to make sure Howard helps out too," Sonia said with a dazzling smile.
 
 *ハワードにも頑張って貰わないとね　と、ソニアママが眩しい位な笑顔で仰った。*
 
@@ -353,95 +352,95 @@ We need Howard to do his best," said Sonia with a dazzling smile.
 
 &nbsp;
 
-The morning of the day of school was difficult.
+The morning of the day I was to go to school was hectic.
 
 *学校へ行く当日の朝は大変だった。*
 
-No, actually, it was hard from the day before when I was choosing what to wear. ...... What to wear? Sonia and Elrose argued and argued over what to wear.......
+Actually, it had been hectic since the day before when we were choosing what to wear... What should I wear? Sonia and Elrose were arguing back and forth...
 
 *いや、実際の所は着て行く服を選んでいた前日から大変だったんですけどね……何を着せるか？でソニアさんとエルローズさんが侃々諤々と……。*
 
 &nbsp;
 
-In the end, it became a pinafore to wear.
+In the end, I decided to wear a pinafore.
 
 *結局、着て行くのはピナフォアになった。*
 
-Well, it's called an apron dress.
+Well, it's an apron dress, I guess.
 
 *まぁエプロンドレスってやつですかね。*
 
-This is the one that is not a jumper skirt.
+Not a jumper skirt.
 
 *ジャンパースカートでないヤツです。*
 
-It has huge ruffles on the shoulders like feathers, and the ribbons at the back are huge.
+It had big frills on the shoulders like wings, and the ribbon in the back was also quite large.
 
 *肩の所に羽みたいにでっかいフリルが付いてて、後ろのリボンがまた大っきい。*
 
 &nbsp;
 
-The dress worn under the apron is apple green.
+The dress I wore under the apron was apple green.
 
 *エプロンの下に着るワンピースは、アップルグリーン。*
 
-The skirt is also voluminous with many pleats.
+It also had many pleats in the skirt, making it voluminous.
 
 *これもスカートのプリーツが多目でボリューミィ。*
 
-The ruffles at the hem are large, and the collar is also large and ruffled.
+The hem frills were large, and the collar was big with frills.
 
 *裾のフリルも大きめで、襟も大きくてフリル付。*
 
-The sleeves are fluffy and long buff.
+The sleeves were long and puffed out.
 
 *袖はフワッとした感じのロング・バフ。*
 
 &nbsp;
 
-On her feet are ruby red lace-up boots in a color similar to her hair.
+On my feet were ruby red lace-up boots that matched my hair color.
 
 *足元は髪と似た色のルビーレッドのレースアップブーツ。*
 
-Rounded tips and thick soles.
+The tips were rounded, and the soles were thick.
 
 *先っぽが丸くて靴底厚め。*
 
-It's strung from the instep to the end of the tube with a thin black cord.
+They were tightened with black thin laces from the instep to the toe.
 
 *甲から筒先まで黒い細紐で絞られてる。*
 
 &nbsp;
 
-Her hair is in a pigtail, not a twin-tail, with a zigzag parting in the back and tied up on both sides.
+My hair was styled in pig tails, with a zigzag parting in the back and tied on both sides.
 
 *髪は、後ろをジグザグの分け目にして両側で纏めたツイン・テールならぬピッグ・テールだ。*
 
-The hair is tied up with a vivid light blue hair string to form a large bowknot.
+The ties were vivid blue hair ribbons, making large bows.
 
 *纏めた所はビビットな水色の髪紐で結んで、大きな蝶結びを作ってある。*
 
-...... is kind of an overabundance of cute ingredients in this whole thing!
+...Isn't this a bit too cute overall!?
 
 *……なんかコレ全体的に可愛い成分過多じゃないですか！？*
 
 &nbsp;
 
-I feel like a princess somewhere, don't I?
+I feel like a princess from somewhere, right?
 
 *なんだかどこかのお姫様みたいですね？*
 
-I said to Sonia, shyly and jokingly, "Oh, what? Suzy is a princess, right?　I was told with a straight face again.
+When I jokingly said this to Sonia, she replied seriously, "Oh? Suzy is a princess, you know?"
 
 *と照れて冗談めかしてソニアさんに言ってみたら　あら？スージィはお姫様よ？　と、またもや真顔で言われてしまった。*
 
 &nbsp;
 
-What do you want me to do?
+What am I supposed to do about that!?
 
 *わたしにどうしろと言うのでせう！？*
 
-You will die of shame!
+I'm going to die of embarrassment!!
 
 *恥ずか死んでしまいますよ？！！*
 
@@ -463,23 +462,23 @@ You will die of shame!
 
 &nbsp;
 
-The school is located about 5 km in a straight line from the Cloud residence.
+The school is located about 5 kilometers in a straight line from the Cloud residence.
 
 *学校は、クラウド邸から直線距離で5キロ程の場所にある。*
 
 &nbsp;
 
-Surrounded by a windbreak of evergreen trees, it was a church-like building with white exterior walls and a blue gable roof.
+It was surrounded by a windbreak of evergreen trees and looked like a church with white walls and a blue gabled roof.
 
 *常緑樹の防風林に囲まれ、白い外壁で青い切妻屋根の教会の様な建物だった。*
 
-Bells can be seen hanging from a tower extending from the building.
+I could see a bell hanging in the tower extending from the building.
 
 *建物から伸びている塔には鐘が吊られているのが見える。*
 
 &nbsp;
 
-Since it was Susie's first day at school, she rode to school in a carriage driven by Howard.
+Since it was Suzy's first day, she rode to school in the carriage driven by Howard.
 
 *スージィは初日と云う事もあり、この日はハワードの操車する馬車で登校をした。*
 
@@ -487,45 +486,45 @@ Since it was Susie's first day at school, she rode to school in a carriage drive
 
 &nbsp;
 
-In the office in the school building, I was greeted by Mrs. Jameson, Daisy Jameson.
+Inside the school office, she was welcomed by Mrs. Jameson, also known as Daisy Jameson.
 
 *校舎内の事務室で、ジェイムスン夫人ことデイジー・ジェイムスンに迎えられた。*
 
 &nbsp;
 
-He is in his mid-thirties.
+She appeared to be in her mid-thirties.
 
 *歳は30代中頃。*
 
-Her dark brown hair is braided and pulled back into a bun.
+Her dark brown hair was braided and gathered into a bun at the back.
 
 *ダークブラウンの髪を三つ編みにし、後ろで団子にして纏めている。*
 
-Overall, her hair is very shiny with no trailing hair and is carefully groomed.
+Overall, her hair was neatly styled with no stray hairs and had a beautiful sheen.
 
 *全体的に後れ毛も無く、丁寧に整えられている髪はとても艶やかだ。*
 
-The grayish-brown eyes, which exude intelligence, and the small glasses that hang over them.
+Her grayish-brown eyes conveyed intelligence, and she wore small glasses.
 
 *知性を感じさせる灰みがかったブラウンの眼と、それにかかる小さなメガネ。*
 
-And she had a friendly smile.
+She was a woman with a friendly smile that left a strong impression.
 
 *そして人懐っこい笑顔が印象的な女性だった。*
 
 &nbsp;
 
-Oh, she's an office worker who can do her job. And she seems to be in a responsible position!　is Suzy's inner voice.
+Ah, she seems like a capable office worker. Moreover, she looks like she holds a responsible position! thought Suzy's inner voice.
 
 *あ、仕事の出来るOLな人だ。しかも責任職っぽい！　とはスージィの内なる声。*
 
 &nbsp;
 
-She was dressed in a loose-fitting white blouse and a cold-colored, subdued-patterned scarf wrapped around her like a necktie, giving her an overall clean look.
+Her outfit consisted of a loose white blouse, a scarf with a calm pattern wrapped like a tie, giving an overall clean impression.
 
 *装いは、ゆったりとした白いブラウスに、寒色で落ち着いた柄のスカーフをネクタイの様に巻き、全体的に清潔感がある。*
 
-The tight skirt above the knee and black stockings really give her a female teacher look.
+The knee-length tight skirt and black stockings gave her a very teacher-like appearance.
 
 *膝上タイトスカートと、黒いストッキングが実に女教師風だ。*
 
@@ -533,11 +532,11 @@ The tight skirt above the knee and black stockings really give her a female teac
 
 &nbsp;
 
-Once there, Susie was taken by Daisy and escorted to the classroom.
+For a moment, Suzy was led by Daisy to the classroom.
 
 *一旦、スージィはデイジーに連れられ、教室まで案内された。*
 
-However, when she and Howard had to go through paperwork, Daisy called for one of the girls in the classroom, who left Susie in charge and went back to the office.
+However, since Howard had paperwork to handle, Daisy called over a girl who was in the classroom and entrusted Suzy to her before returning to the office.
 
 *しかし、ハワードと書類の手続きがあるとの事で、デイジーは教室内に居た一人の少女を呼び寄せ、その少女にスージィを任せて事務室へと戻って行った。*
 
@@ -547,239 +546,239 @@ However, when she and Howard had to go through paperwork, Daisy called for one o
 
 &nbsp;
 
-My name is Beatrice Croquis! My father has told me all about you!
+"I’m Beatrice Kuroki! I've heard about you from my father!"
 
 *「アタシはベアトリス・クロキ！アンタの事は父様からも聞いてるわ！」*
 
 &nbsp;
 
-The girl had back-curled, loosely wavy, tobiko hair that was slicked back with a catsuit, exposing her ample, broad forehead.
+The girl had wavy hair that reached her back, held back with a headband, exposing her broad forehead.
 
 *少女は、背中まである緩くウエーブのかかったとび色の髪をカチューシャで後に流し、豊かで広い額を露わにしていた。*
 
-Her fine, tight eyebrows and large amber eyes, which looked golden in some lights, both reflected the child's intelligence.
+Her finely shaped eyebrows and large amber eyes, which sometimes appeared golden in the light, reflected her intelligence.
 
 *細き引き締まった眉と、光によっては金色に見える大きなアンバーの瞳が、共にその子の聡明さを映し出していた。*
 
-The corners of her mouth turned up fearlessly, and her moderately scattered freckles seemed to show her strong spirit.
+With a confident smirk and a sprinkle of freckles, she seemed to embody a strong spirit.
 
 *不敵に口角を上げる口元、程よく散ったそばかすは彼女の気の強さを表している様だった。*
 
 &nbsp;
 
-She is somewhat smaller than Susie.
+She was slightly shorter than Suzy.
 
 *身長はスージィより幾分小さい。*
 
-The line of sight drops a little.
+Her gaze was a bit lower.
 
 *目線が少し下がる。*
 
-It was the first time I met someone smaller than myself when I first came here. I'm a little happy.
+This was the first time Suzy met someone shorter than her since coming here. It made her a little happy.
 
 *ここに来て初めて会った自分より小さい相手だった。少し嬉しい。*
 
 &nbsp;
 
-Susie Cloud...it's...nice to meet you...sir!
+"...I'm Suzy Cloud... nice to meet you!"
 
 *「・・・スージィ・クラウド・・・です・・・よろしく・・・です！」*
 
-I'm Bee, Tris, or whatever you want to call me! You can call me Bee, Tris, or whatever you want!"
+"Nice to meet you! You can call me Bea or Tris, however you like!"
 
 *「よろしくね！アタシの事はビーでもトリスでも、好きなように呼んでくれていいわよ！」*
 
-So... Bear child?"
+"...Then... Bea-chan?"
 
 *「・・・じゃ・・・ベア子？」*
 
-I said, "Wait a minute! Why? I don't know, but I don't like the sound of ......!
+"Wait a minute! Why? I don't really get it, but... I don't like that sound very much!"
 
 *「ちょっと待って！なんで？なんか良く分んないけど……あんまり好きな響きじゃないわね！」*
 
-...hmm...so...bayan?"
+"...Hmm... then... Bea-yan?"
 
 *「・・・ん・・・じゃ・・・ベーヤン？」*
 
-What?" No. ...... No! What is it? Something even worse than the last one! I don't know what it is!
+"Huh? No... no! What is it? It sounds even worse than the previous one! I don't really understand it, though!!"
 
 *「え？いや……いや！なんだろ？なんか前のよりもっと感じ悪いわね！良く分らないんだけど！！」*
 
-Mmm?"
+"...Muu?"
 
 *「・・・むぅ？」*
 
-Hmm, hmm! Well, okay! Let's just get along! Let me introduce you to my girl! Mia!
+"Y-yeah! Well, that's fine! For now, let's get along! Oh, let me introduce this girl too! Mia!"
 
 *「ん、ん！ま、まあいいわ！とりあえず仲良くやって行きましょ！えと、コッチの子も紹介しとくわ！ミア！」*
 
-I said, "Oh, um, my name is ...... Mia Mathieson. Nice to meet you."
+"Ah, um... I'm Mia Mathison. Nice to meet you."
 
 *「あ、え、あの……ミア・マティスンと言います。よろしくね」*
 
-I'm going to go to "・・・・・・・ eh? ... Oh... Oh, Suzy... Is it a cloud ・・・・・・・・? ... is ・・・・・・ desu."
+".........Eh? ...Ah... I'm Suzy... Cloud... ...yes? ...yes... ...yes."
 
 *「・・・・・・・え？・・・あ・・・あ、スージィ・・・クラウド・・・・・・・・です？・・・です・・・・・・デス」*
 
-I'm going to go to "...... What? Huh? Huh?"
+"......Eh? Um? Huh?"
 
 *「……え？えっと？え？」*
 
 &nbsp;
 
-The girl who introduced herself to Beatrice and somewhat flustered introduced herself as Mia was much taller than Suzy.
+Introduced by Beatrice, Mia, who seemed a bit flustered, was significantly taller than Suzy.
 
 *ベアトリスに紹介され、やや慌てた様子でミアと名乗った少女はスージィよりも随分身長が高い。*
 
-He looks to be 160 centimeters tall.
+She looked to be about 160 centimeters tall.
 
 *160センチはありそうだ。*
 
 &nbsp;
 
-Her hair is ash blonde with a slight bluish tinge, and her bangs are naturally slicked back at the level of her eyebrows.
+Her hair was an ash blonde with a slight bluish tint, naturally flowing at eyebrow height.
 
 *髪はやや青味がかったアッシュブロンドで、前髪を眉の高さで自然に流している。*
 
-Her long, almost waist-length back hair was braided into a loose braid and dropped forward over her right shoulder.
+Her long hair reached her waist, loosely braided, and fell over her right shoulder.
 
 *腰までありそうな長い後ろ髪を緩い三つ編みにし、右の肩口から前へ落していた。*
 
-The blue eyes of the ultramarine, like a cluster of blues, are very calm and reassuring to the viewer.
+Her ultra-marine blue eyes gathered like a cluster of blue, giving a gentle and reassuring feeling.
 
 *青が群れて集まったようなウルトラマリンの碧眼はとても穏やかで、見る者に安心感を与える。*
 
-And ..........
+And.........
 
 *そして………。*
 
 &nbsp;
 
-All three of us are the same age!"
+"We're all the same age!"
 
 *「アタシ達三人とも同い年だからね！」*
 
 &nbsp;
 
-What?　Suzy, whose eyes widened, looked back at Beatrice.
+What?! Suzy's eyes widened as she turned to Beatrice.
 
 *な、なんだと？！　と目を見開いたスージィがベアトリスを振り返った。*
 
-I know," Beatrice says, putting her hands on her hips and raising her eyebrows with half-open eyes!　Beatrice says, putting her hands on her hips and raising her eyebrows with half-lidded eyes.
+That's right! Beatrice said, placing her hands on her hips and raising an eyebrow.
 
 *そーなのよ！　と腰に手を当て半眼で眉を上げるベアトリス。*
 
 &nbsp;
 
-Suzy looks back at Mia again.
+Suzy looked back at Mia.
 
 *改めてミアを見返すスージィ。*
 
-Its gaze goes from its neck down to .......
+Her gaze traveled down from her neck...
 
 *その視線はその首から下へ……。*
 
-Dear fallen meat who sits there majestically!
+And there, proudly sitting, was the embodiment of voluptuousness!!
 
 *そこで堂々と鎮座しておられる堕肉様へ！！*
 
 &nbsp;
 
-Damn!
+"Ugh!!"
 
 *「くっ！！」*
 
 &nbsp;
 
-I couldn't help but scream in anguish.
+I couldn't help but let out a groan.
 
 *思わず苦悶の声を上げてしまった。*
 
 &nbsp;
 
-What? Huh? Huh?"
+"Eh? What? Huh?"
 
 *「え？あれ？え？」*
 
 &nbsp;
 
-Mia is puzzled as to what is wrong, and Beatrice shakes her head yare-yare.
+Mia looked confused, and Beatrice shook her head in exasperation.
 
 *どうしたのかと戸惑うミアと、ヤレヤレと首を振るベアトリス。*
 
 &nbsp;
 
-(Hey, what the heck! What the hell is this suicup? I guess it's an F! G shock! ...... She's 13 years old? What a thing to say! ......
+(What the heck is this!!! What is this watermelon cup!? Estimated F! No! G!? The shock of G! ...Is this really 13 years old?! What is this... ugh!
 
 *（な、なんっっってこったぃ！！！なんだこのスイカップはっ！？推定Ｆ！いや！Ｇか！？Ｇの衝撃！……コレで13歳ィ？！何と云う事でしょうっ……くうっ！*
 
-I'm sorry! I called myself a Toisy Rose! I was conceited! I was conceited! The real one is here!
+I'm sorry!! I was so arrogant to call myself Toyshi Rose! I was so conceited! The real deal is right here!!!
 
 *スイマセンでした！！自分をト〇イシー・ローズだなんて言って！驕っておりましたっ！自惚れておりました！！本物がここに居りましたぁぁ！！！*
 
-Duh! But what is this! My eyes are happy and my heart is filled with a sense of defeat! If I'm not careful, my knees will shatter and I'll end up with my hands on my knees! Agh!)
+Ugh! But what is this!? My eyes are filled with joy, yet this overwhelming sense of defeat wells up from the depths of my heart!! If I let my guard down, my knees might buckle, and I might end up on the ground!!! Ahhh!)
 
 *くぅぅ！しかし何コレ！？目は眼福眼福と喜んでいるのに、心の底から込み上げて来るこの絶・対・的な敗北感！！気を抜くと膝が砕けて両手を付いてしまいそぉぉぉ！！！あうっっ！）*
 
 &nbsp;
 
-Kuh! And when I look away, Beatrice is there.
+Ugh! When I averted my gaze, there was Beatrice.
 
 *くぅぅっ！と視線を逸らすと、そこにはベアトリスが居る。*
 
-Ah, yes, this is what age looks like. A sense of relief enveloped Suzy.
+Ah, that's right, this is what is appropriate for my age. A sense of relief enveloped Suzy.
 
 *あぁ、そうだ、コレが年相応だよな。と安心感がスージィを包む。*
 
 &nbsp;
 
-What did you just see that made you feel safe? Where did you just look for reassurance?
+"Hey! Where were you looking to feel relieved?!"
 
 *「ちょコラ！今どこ見て安心した？！」*
 
-What?
+"…Eh?"
 
 *「・・・え？」*
 
 &nbsp;
 
-Susie looks further into the day after tomorrow.
+Suzy turned her gaze further away.
 
 *更に明後日を向くスージィ*
 
 &nbsp;
 
-I'll tell you something! I'm in the growth phase! I'm growing up!
+"I'll have you know! I'm in my growth period! G-R-O-W-T-H P-E-R-I-O-D!!"
 
 *「い、言っておきますけどね！アタシは成長期なんですからね！成・長・期！！」*
 
-I'm... I'm... I'm... I'm..! I... am... a... growth... fan!"
+"Well! I... I'm in my growth... period too!!"
 
 *「わ！わたし・・・だって・・・せいちょう・・・き！！」*
 
-You know what I'm talking about!"
+"I knew you understood!"
 
 *「分ってんじゃないのよ！」*
 
 &nbsp;
 
-Hm! and the two girls sniffle, hold hands, and nod to each other.
+With a huff, the two girls clasped their hands and nodded at each other.
 
 *フン！と鼻息を飛ばし手を握り、頷き合う二人の少女達。*
 
-We seem to understand each other.
+It seemed they understood each other.
 
 *分かり合えたようだ。*
 
 &nbsp;
 
-Oh, what? Let's see... ...... Nice to meet you, okay? Susie-chan."
+"Ah, um... nice to meet you, Suzy-chan."
 
 *「あ、え？えーと……よろしくね？スージィちゃん」*
 
 &nbsp;
 
-One person was Mia, who was not keeping up with the situation.
+One girl was still trying to catch up with the situation.
 
 *1人、状況に追い付いて行っていないミアだった。*
 
@@ -787,159 +786,159 @@ One person was Mia, who was not keeping up with the situation.
 
 &nbsp;
 
-What's up? You look like you're having a lot of fun!
+"What’s going on? You all seem to be having a lot of fun, huh?!"
 
 *「なんだい？随分楽しそうだね！？」*
 
 &nbsp;
 
-When Suzy turned around to hear a voice behind her, she saw a tall girl standing there.
+Suzy turned around at the voice from behind and saw a tall girl standing there.
 
 *スージィは後ろからかけられた声に振り向くと、そこに長身の少女が立って居た。*
 
 &nbsp;
 
-She is only slightly shorter than Mia, but her confident appearance makes her appear larger than the others.
+She was only slightly shorter than Mia, but her confident demeanor made her appear larger.
 
 *ミアより少し低い程度なのだが、その自信に満ちた佇まいが彼女を他より大きく見せている。*
 
-Her brunette hair, long and tied back, shone cherry red in the light, and her cat-like eyes sparkled like aquamarines.
+Her long brunette hair, tied back, shimmered cherry red in the light, and her cat-like eyes sparkled like aquamarine.
 
 *長く後ろで束ねたブルネットの髪は光によってはチェリーレッドに輝き、ネコを思わせる瞳をアクアマリンの様にキラキラと煌めかせていた。*
 
 &nbsp;
 
-I just finished introducing myself! Susie, let me introduce you! The big one over here is Dana. The little one is Colin. They're both one level above us!
+"I just finished introducing myself! Suzy, let me introduce you! This tall one is Dana, and the small one is Colin. They're both a year older than us!"
 
 *「今、自己紹介を終わらせたところよ！スージィ、ついでに紹介しとくわ！コッチの大っきいのがダーナ。ちっさいのがコリン。二人ともアタシ達の1コ上よ！」*
 
-Ha-ha-ha! By the way... how nice of you, isn't it? I'm Dana McCain. I'm Dana McKane and you're the girl I've heard so much about. ...... It's nice to meet you! Nice to meet you!
+"Ha ha! 'On the side' is quite a statement! I'm Dana McCain. So you're the rumored girl... I'm glad to meet you! Looking forward to it from now on!!"
 
 *「はは！ついで…とは随分だね？あたしはダーナ・マッケイン。アンタが噂の娘さんかぁ……会えて嬉しいよ！これからよろしくな！！」*
 
-'Tiny ...... is terrible. I'm not that different from Bibi and I'm ......, sorry for all the fuss, okay? I'm Colin Saunders. Nice to meet you Susie."
+"Calling me 'small' is rude. I don't look that different from Bea... Sorry for being so loud! I'm Colin Saunders. Nice to meet you, Suzy."
 
 *「ちっさい……って酷いわ。私ビビとそんなに変わらないのに……、騒がしくてごめんなさいね？私はコリン・ソンダース。よろしくねスージィ」*
 
-Susie Cloud...it's nice to meet you...please...come in..."
+"Suzy Cloud... nice to meet you... please take care of me..."
 
 *「スージィ・クラウド・・・です・・・よろしく・・・おねがい・・・します」*
 
 &nbsp;
 
-There was another girl in Dana's shadow.
+Behind Dana, there was another girl.
 
 *ダーナの陰にもう一人少女が居た。*
 
-The petite girl who gave her name as Colin was not much taller than Beatrice.
+Colin, who introduced herself, was not much shorter than Beatrice.
 
 *コリンと名乗った小柄な少女の身長は、ベアトリスと左程変わらない。*
 
-She is an elegant girl with calm dirty blonde hair that is later braided down in a fishbone.
+She had dirty blonde hair tied back in a fishbone braid, giving her an elegant appearance.
 
 *落ち着いたダーティブロンドの髪を後でフィッシュボーンで編み下ろし、上品な雰囲気を持つ少女だ。*
 
-Behind his large round glasses, his bluish-gray eyes softly look out at everyone.
+Her large round glasses framed soft grayish-blue eyes that gently surveyed everyone.
 
 *大きな丸眼鏡の奥にある、青味がかったグレーの瞳は柔らかく皆を見渡している。*
 
 &nbsp;
 
-Wow, cat-eyed and tangerine-eyed sisters," Suzy said to herself.
+Wow, they look like cat-eyed and tangerine-eyed older sisters, Suzy thought to herself.
 
 *わあ、ネコ目とミカン目のお姉さん方だ　とスージィが独り言ちる。*
 
 &nbsp;
 
-Rumor?
+"Uh, rumor... what?"
 
 *「う、うわさ・・・て？」*
 
-It's a rumor, u-wa-sa. A beautiful girl with great skills appears! I mean, ......!"
+"That's right, it's a rumor. The legendary beautiful girl appears! ...and so on!!"
 
 *「そう噂だよ、ウ・ワ・サ。凄腕美少女現る！……ってね！！」*
 
-Bwhooooo!"
+"Bufoh!"
 
 *「ブフゥォっ！」*
 
 &nbsp;
 
-Susie blew it.
+Suzy burst out laughing.
 
 *スージィが吹出した*
 
 &nbsp;
 
-"Soooooo...? ... huh?"
+"Su... super? ...Huh?"
 
 *「す、すご？・・・うぇ？」*
 
 &nbsp;
 
-Mia and Colin, who shouted, "Oh?　Mia and Colin say
+"Oh?!" Mia and Colin exclaimed.
 
 *おお？！　と声を出すミアとコリン*
 
 &nbsp;
 
-I'm all for strongmen in this village," he said! Especially when they are this cute!"
+"In this village, the strong are very welcome! And if they're this cute, even more so!!"
 
 *「この村で強者は大歓迎だからね！それがこんな可愛いとなれば尚更だよ！！」*
 
 &nbsp;
 
-Suddenly, he hugs me on the shoulder and slides his cheek against me.
+Suddenly, I was pulled in, and my cheeks were rubbed against theirs.
 
 *いきなり肩を抱かれ、頬を摺り寄せられてしまう。*
 
 &nbsp;
 
-Oh! Dana, it's not fair! Me too, me too!"
+"Ah! Dana, that's unfair! Me too, me too!"
 
 *「ああ！ダーナずるいわ！私も私も！」*
 
-"Fubue hehehe...?"
+"Fubueh!?"
 
 *「ふぶえっへぇっ・・・！？」*
 
 &nbsp;
 
-On the other cheek, Colin was in close contact with me, and my cheek was sandwiched and rubbed together by the two of them, causing me to make funny noises.
+On the other side, Colin was pressed against my cheek, and I was sandwiched between the two, causing me to make strange sounds.
 
 *反対側の頬にはコリンが密着し、二人に頬が挟まれ擦り合わされ、おかしな声が出てしまった。*
 
-Oh, my God! You look like a doll!　Colin said! It's as soft and fluffy as a baby's!　Dana cheered.
+"You're like a doll!" Colin exclaimed, while Dana shouted, "Wow! You're so soft like a baby!"
 
 *もう！お人形さんみたいーー！　とコリンが言えば　ひゃぁ！赤ちゃんみたいにモッチモチだぁ！　とダーナが歓声を上げる。*
 
-Mia was second-guessing whether to go or go back around it.
+Mia seemed to hesitate, wondering whether to join or step back.
 
 *ミアがその周りを、行こうか戻ろうかと二の足を踏んでいた。*
 
-They want to cuddle together.
+It seemed she wanted to join the hug.
 
 *一緒に抱き着きたいらしい。*
 
 &nbsp;
 
-Beatrice sighs in frustration.
+Seeing this, Beatrice sighed, "Oh dear."
 
 *それを見て、ベアトリスが　ヤレヤレ　とため息を付く。*
 
 &nbsp;
 
-Oh, my gosh, even the smell is so cute! Even the smell is cute! Hehe! Kara and her friends are going to be so disappointed!
+"Wow! You even smell cute! Hehe! Carla will be so jealous!!"
 
 *「うひゃーっ！もう匂いまでかわいぃよーーー！へへ！カーラ達悔しがるぞぉーーっ！！」*
 
-Kara is the most senior student, one level above Dana and her friends! There are two more, Jessica and Alicia! All three of them graduate next week, so they only come here once in a while!"
+"Carla is a senior, one year older than Dana and the others! There are two more, Jessica and Alicia! All three will graduate next week, so they won't be coming around much anymore!"
 
 *「カーラって言うのはダーナ達よりも1コ上の最上級生でね！後二人、ジェシカとアリシアが居るの！三人とも来週で卒業だから、もうたまにしか来ないのよ！」*
 
 &nbsp;
 
-Beatrice explained, but Suzy was having none of it.
+Beatrice explained, but Suzy was too overwhelmed to focus.
 
 *とベアトリスが説明してくれたが、スージィはそれどころでは無い。*
 
@@ -947,43 +946,43 @@ Beatrice explained, but Suzy was having none of it.
 
 &nbsp;
 
-The two of them are squirming around, and before long they are joined by Mia, who is hugging them behind their backs, making things very difficult.
+I was being hugged by the two, and before I knew it, Mia had joined from behind, making it a chaotic situation.
 
 *二人にもみくちゃにされ、いつの間にか後ろで抱き着いているミアまで加わって大変な事になっている。*
 
-For what it's worth, both upperclassmen have more magnificent chests than Suzy.
+Unintentionally, both upperclassmen had more prominent chests than Suzy.
 
 *何気に上級生は二人とも、胸部がスージィより立派だ。*
 
-Both arms and backs are swallowed by waves of rich flesh.
+My arms and back were engulfed in waves of soft flesh.
 
 *両腕と背中が豊かな肉の波に飲み込まれている。*
 
 &nbsp;
 
-It is like a small boat being swallowed and tossed about by the surging waves against the stormy sea.
+It felt like a small boat being tossed around in turbulent waves.
 
 *その様は荒波に逆巻く波濤に飲まれ翻弄される小舟の様だ。*
 
 &nbsp;
 
-Is this heaven? My back! My arms! I'm wrapped in a happy sensation!
+(What in the world is this situation?! Is this heaven?! My back! My arms! I'm enveloped in a blissful sensation!!
 
 *（なななななななんですかーーーこの状況はーーーーっっ！！ココは天国ですかぁぁーーーーっっっ！？背中が！腕が！幸せな感覚に包まれてゆぅーーーーっっ！！*
 
-I'm so glad I'm alive! (Ahhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh ！！！！)
+I'm so glad to be alive! Ahhhhhhhhhh!)
 
 *生きてて良かったぁっ！あぁーーーーーーーーーっっっンん！！！！）*
 
 &nbsp;
 
-Aaahh...! Hyahhhh..! Huff!
+"Ah! Huh...! Hah!"
 
 *「あふぇ！ひふゃっっ・・・！はふぁ！！」*
 
 &nbsp;
 
-There was Suzy, swung up and down, a whirling, whirling eyeball.
+There was Suzy, spinning around and getting dizzy.
 
 *そこには上へ下へと振り回され、グルグルの渦巻き目玉になっているスージィが居た。*
 
@@ -991,123 +990,123 @@ There was Suzy, swung up and down, a whirling, whirling eyeball.
 
 &nbsp;
 
-It's getting kind of noisy!"
+"It seems like things are getting lively!"
 
 *「なんだか騒がしくなってきたわね！」*
 
 &nbsp;
 
-Beatrice mutters in dismay as the younger children look on in the distance.
+As the younger kids watched from a distance, Beatrice muttered in exasperation.
 
 *年下の子供たちが遠巻きで見守る中、ベアトリスが呆れて呟く。*
 
 &nbsp;
 
-And then someone came along to add even more noise.
+Then, someone else appeared, adding to the chaos.
 
 *と、そこへ更に騒がしさを増量させる者が現れた。*
 
 &nbsp;
 
-Aaaaahhhhhhhhhh? Isn't that Suzy? Why? Why are you in the classroom? Eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee!
+"Ahhhhhhhhhh?! Is that Suzy?! Why?! Why are you in the classroom?! Eeeeeh?!"
 
 *「あぁーーーーーーーーーーーーーーーっっっ？？！！！スージィじゃないかっっ？！！なんで！？なんで教室にいんのっ！？？えぇーーーーーっっ？！！」*
 
 &nbsp;
 
-As soon as they came flapping into the classroom, they started shouting and making a lot of noise.
+As soon as he burst into the classroom, he shouted loudly and began to cause a commotion.
 
 *バタバタと教室に入って来た途端、大声を上げ騒ぎ出した。*
 
 &nbsp;
 
-Oh... Huh? Irving? ...Hello?
+"Uh... huh? ...Arvin? ...Hello?"
 
 *「あ・・・あれ？・・・アーヴィン？・・・こんにち・・・は？」*
 
-What's the matter, Susie? What are you doing here? Ah! Is Susie going to school too? Are you going to be with us from now on? Yay!!! ！！！！"
+"What’s going on, Suzy?! Why are you here?! Oh! Could it be that Suzy is going to school too? We'll be together from now on?! Yayyyyyyyyyyy!!!!"
 
 *「どうしたのさスージィ？！どうしてここに？！あ！もしかしてスージィも学校に通うの？これからは一緒か？！やったーーーーーーっっ！！！！」*
 
 &nbsp;
 
-Irving was about to hug Suzy when Beatrice entered the room and blocked his way.
+Arvin approached Suzy as if he were about to hug her, but Beatrice quickly stepped in his way.
 
 *アーヴィンは今にもスージィに抱き付きそうな勢いで近づいて来るが、その間にベアトリスが入り行く手を阻んだ。*
 
 &nbsp;
 
-Hey, Irving, what are you talking about? Irving, what are you talking about? How do you know about this girl?
+"Wait a minute! Arvin, what’s going on?! How do you know this girl?!"
 
 *「ちょっと！アーヴィンどう云う事！？どうしてアンタがこの子の事知ってんの！？」*
 
-Ugh." Bibi! Nothing! It doesn't matter!
+"Uh! Bibi?! W-well, it doesn't matter!"
 
 *「う！ビビ！？べ別に！ど、どうだってイイだろ！」*
 
 &nbsp;
 
-Mmm! and Beatrice raises her eyebrows.
+Beatrice frowned, furrowing her brow.
 
 *むぅ！！とベアトリスが眉間に眉を寄せる。*
 
 &nbsp;
 
-I met you the other day in the woods when we were collecting the two-headed bore, didn't I? Furey said you were sloppily stretching your nose!
+"You met her when you were out collecting two-headed boars in the forest, right? Fred said you were slacking off and drooling over her!"
 
 *「この前、森でツーヘッドボア回収する時会ったんだよな？だらしなく鼻の下伸ばしてたってフレ兄ぃが言ってたよ！」*
 
-""Of! I didn't stretch it!
+"I-I wasn't drooling!!"
 
 *「の！伸ばして無い！！」*
 
-'Hmmm...... I see! ...... Irving is still so fast, isn't he? ...hmmm, I see!
+"Hmm... I see! ...So Arvin is quick on the draw, huh? ...I see, I see!!"
 
 *「ふーん……そうなんだ！……アーヴィンってばやっぱり手が早いんだ？…ふーん、そうなんだ！！」*
 
-No, no! Bibi! No! That's not what I meant!
+"N-no! Bibi! That's not it!!"
 
 *「い、いや！ビビ！違う！！そう云う事じゃなくてっ！！」*
 
 &nbsp;
 
-Under the nose? Did it grow?　Suzy tilted her head....
+Was I drooling? Suzy tilted her head in confusion...
 
 *鼻の下？伸びてた？　と小首を傾げるスージィだったが…。*
 
 &nbsp;
 
-"Brother Frey?"
+"…Fred?"
 
 *「・・・フレ兄ぃ？」*
 
 &nbsp;
 
-Who's that? asked Dana.
+Who is that? I asked Dana.
 
 *誰それ？とダーナに問いかけた。*
 
 &nbsp;
 
-Fred McCain. I was with Irving the other day collecting a bore, don't you remember? He has the same hair and eye color as me. ......"
+"Fred McCain. He was out collecting boars with Arvin the other day, but you don't remember him? He has the same hair and eye color as me..."
 
 *「フレッド・マッケイン。この前アーヴィンと一緒にボアの回収やってたんだけど、憶えて無いかい？アタシと同じ髪と目の色なんだけど……」*
 
 &nbsp;
 
-Hmm~? Was there such a person?　Susie thinks, tilting her head once again.
+Hmm? Was there someone like that?? Suzy tilted her head again, thinking.
 
 *ん～～？居たっけそんな人？？　と、もう一度小首を傾げて考えるスージィ。*
 
 &nbsp;
 
-"Oh... I'm so sorry for your loss, Frey. ......"
+"Ah... Fred, my condolences..."
 
 *「あぁ…フレ兄ぃ、御愁傷様だ……」*
 
 &nbsp;
 
-Sadly, Dana shook her head.
+Dana shook her head sadly.
 
 *悲しげにダーナが首を振っていた。*
 
@@ -1115,103 +1114,100 @@ Sadly, Dana shook her head.
 
 &nbsp;
 
-Another boy approached Suzy in the midst of such chaos.
+Amidst the chaos, another boy approached Suzy.
 
 *そんなカオスが渦巻く中でもう一人、少年がスージィに近づいて来た。*
 
 &nbsp;
 
-She is much shorter than Suzy, with curly reddish-brown hair, a freckled face, and denim overalls with the sleeves of the shirt she wears inside rolled up sloppily.
+He was much shorter than Suzy, with curly red-brown hair, a freckled face, and wearing denim overalls with his shirt sleeves rolled up carelessly.
 
 *身長はスージィより随分小さい、天パで赤茶のクセっ毛、そばかすだらけの顔、デニムのオーバーオールで中に着ているシャツの袖をだらしなく捲り上げている。*
 
 &nbsp;
 
-I'll be damned! He is the picture of a mischievous little boy.
+Wow! He looked like a mischievous little rascal.
 
 *をを！イタズラ小僧を絵に描いた様な子だ。*
 
 &nbsp;
 
-And as Suzy looks at him with half admiration, the child also looks up at Suzy with his sparkling blue eyes wide open in curiosity.
+As Suzy half-admired him, he looked up at her with sparkling blue eyes full of curiosity.
 
 *とスージィが半ば感心して見ていると、その子も興味津々にキラキラした青い眼を大きく開いて、スージィを見上げてくる。*
 
 &nbsp;
 
-The girl came right up to Susie and suddenly, without any preamble, rolled up her skirt.
+When he got right in front of Suzy, he suddenly lifted her skirt without any preamble.
 
 *その子はスージィの目の前まで来ると突然、何の前置きも無く彼女のスカートを捲り上げた。*
 
 &nbsp;
 
-The fabric of the skirt, rolled up, spreads wide.
+The fabric of the lifted skirt spread wide.
 
 *捲り上げられたスカートの布地が大きく広がる。*
 
-The light blue silk string panties, which had just been unloaded that day, were exposed to the public in all their glory.
+The light blue silk string panties that had just been put on that day were fully exposed to everyone.
 
 *その日降ろしたばかりの際どいカットを施された薄水色のシルクの紐パンが、余す事無く衆目の前に晒された。*
 
 &nbsp;
 
-For a moment, it was as if time had stopped.
+For a moment, time seemed to stop.
 
 *一瞬、時が止まった様だった。*
 
 &nbsp;
 
-Suddenly, the surrounding girls stopped moving, their eyes wide with astonishment, while the boys close to their age who were witnessing the event throbbed with joy.
+The surrounding girls widened their eyes in shock, and the nearby boys erupted in cheers.
 
 *突然の事に、周りの女子たちは驚愕に目を見開き動きを止め、目撃していた年の近い少年たちは喜びにどよめいた。*
 
 &nbsp;
 
-Damn! You badass Stefan! Shit! Hold on!
+"Ugh! That little brat, Stefan!! Tch! Wait!!!"
 
 *「くっ！このワルガキステファン！！ちっっ！待て！！！」*
 
 &nbsp;
 
-Dana was the first to react, but the boy called Stefan fled like a gust of wind.
+The first to react was Dana, but before she could catch him, the boy called Stefan had already escaped like the wind.
 
 *いち早く反応したのはダーナだったが、それより早くステファンと呼ばれた少年は疾風の如く逃げ去った。*
 
 &nbsp;
 
-I'm so proud of you! Stefan!!!!!!!!!!!!!!!!!!!!!!!!!!"
+"Well done, Stefan!!!"
 
 *「でかした！ステファン！！！」*
 
-Irving?
+"Arvin?!!!"
 
 *「アーヴィン？！！！」*
 
-'Yes, sir! Boys! You shouldn't stare so much.
+"Hey! Boys!? That's not something to stare at, you know?!"
 
 *「はい！男子たち！？そんなに見つめる物では無いわよ？！」*
 
-"Oh...oh...oh...oh...oh...oh..! I've never... been... ripped... off... before!"
+"Whoa! ...she just got... her skirt... lifted... for the first time!"
 
 *「ふぉ！・・・すかーと・・・めくり・・・はじめて・・・され・・・た！」*
 
-"Oh, ...... Suzy? I don't think you're supposed to be impressed there, I think you're supposed to be angry."
+"Oh... Suzy-chan? I think that's not the part to admire, but to get angry about?"
 
 *「あ……スージィちゃん？そこは感心するトコじゃなくて怒るトコだと思うよ？」*
 
 &nbsp;
 
-Entropy in the classroom further increased.
+The entropy in the classroom increased even further.
 
 *教室内のエントロピーが更に増大していった。*
-
-
 
 &nbsp;
 
 ----------------
 
-Finally...yay! I was able to get the lucky guy to show up! ...... was a long time(+_+)
+Finally... finally! The role of the comic relief has been introduced!! ...It took a long time (+_+)
 
 *やっと…やぁっと！ツッコミ担当を登場させられました！！……長かった(+_+)*
-

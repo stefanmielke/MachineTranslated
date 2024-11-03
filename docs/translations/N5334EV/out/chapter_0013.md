@@ -1,27 +1,26 @@
-# 13 Howard Cloud Enjoying a meal
+# Episode 13: Howard Cloud Enjoys a Meal
 
 ## 13話　ハワード・クラウド食事を楽しむ
 
-This is Mr. Cloud's perspective.
+From Cloud's perspective.
 
 *クラウドさん目線です。*
-
 
 ----------------
 
 &nbsp;
 
-When I led her out of the forest and into the carriage, she was surprised to see the horse.
+As we left the forest and approached the carriage, the girl was astonished by the horse.
 
 *森を出て馬車に案内すると、娘は馬を見て驚いていた。*
 
-Is this what you call a horse? When I told him that it was, he touched its mane and scales with curiosity, and was impressed and surprised at the same time.
+She asked, "Is this what a 'horse' is?" When I confirmed, she touched its mane and scales with curiosity, repeatedly expressing her admiration and surprise.
 
 *これが『馬』というものなのか？と尋ねて来たので　そうだ　と教えると、珍しげに鬣や鱗を触って、しきりに感心したり驚いたりしていた。*
 
 &nbsp;
 
-Were there no horses in this girl's country? What kind of means of transportation and transport did they use? My curiosity is boundless.
+Could it be that there were no horses in this girl's country? How did they travel or transport goods? My curiosity knows no bounds.
 
 *この娘の国に、馬は居なかったのだろうか？移動手段や輸送はどんな方法で行っていたのだろう？興味は尽きないな。*
 
@@ -29,53 +28,53 @@ Were there no horses in this girl's country? What kind of means of transportatio
 
 &nbsp;
 
-On the way to the mansion, I talked with the girl about many things.
+On the way to the mansion, I talked with the girl about various things.
 
 *屋敷までの道すがら、少女とは色々と話をした。*
 
-She must be from outside of Japan, after all. The girl seemed to understand what we were saying, but she was not used to speaking.
+She must be from a foreign land. It seems she understands the language I speak, but she is not used to speaking it herself, struggling to form words despite her earnest efforts.
 
 *やはり国外の人間なのだろう。少女は此方が話す言葉はどうやら分かるようだが、話す事には慣れていないらしく、拙いながらも懸命に言葉を紡いでくる。*
 
 &nbsp;
 
-This girl really doesn't know how she got to the forest.
+This girl truly does not know how she ended up in the forest.
 
 *この娘は、本当に自分がどうやって森まで来たのか分らないのだそうだ。*
 
-You say you found yourself in the woods, but what the hell happened?
+She says she found herself there without realizing how, but what on earth happened?
 
 *気が付いたら森の中だったと言うが、一体何があったのか？*
 
-That forest is no place for such a girl to be alone.
+That forest is not a place where such a girl could be alone.
 
 *あの森は、こんな少女が一人で居られる場所では無いのだ。*
 
 &nbsp;
 
-There is no doubt that he is capable of defeating Wolf, but he cannot stay alone for days at a time.
+Certainly, there is no doubt about her ability to fell a wolf, but it is not a place where one could stay alone for days.
 
 *確かにウルフを斬り伏せた実力に間違いは無かろうが、一人で何日も居られるモノでは無い。*
 
-And now, moreover, we are in an unusual situation.
+Especially now, when the situation is abnormal.
 
 *ましてや今は、異常な事態になっているのだ。*
 
 &nbsp;
 
-I'll explain that in detail.
+When I explained this to her carefully.
 
 *その事を丁寧に説明すると。*
 
 &nbsp;
 
-It's... difficult... for... you.
+"That sounds... terrible..."
 
 *「大変・・・なの・・・ですね」*
 
 &nbsp;
 
-I think he understood how dangerous he was in the situation, because he answered with a slightly stiffened face.
+She replied with a slightly stiff expression, and I believe she understood how dangerous my situation had been.
 
 *と、少し強張った顔で答えてくれたので、自分が如何に危険な状況下に居たのか、理解してくれたと思う。*
 
@@ -83,29 +82,29 @@ I think he understood how dangerous he was in the situation, because he answered
 
 &nbsp;
 
-Still, they seemed to enjoy the scenery of the village to the fullest along the way.
+Even so, she seemed to thoroughly enjoy the scenery of the village along the way.
 
 *それでも、道中は村の景色を存分に堪能していた様だ。*
 
 &nbsp;
 
-Across the undulations, wheat fields continue to spread to the horizon.
+The wheat fields stretching endlessly over the undulating hills.
 
 *起伏を越えて、地平まで広がり続ける麦畑。*
 
-Hodgson's Pond is filled to the brim with water, reflecting the clouds and thickets like a mirror surface, and sparkling in the sunlight.
+Hodgson's pond, brimming with water, reflecting the clouds and thickets like a mirror, sparkling in the sunlight.
 
 *満々と水を湛え、雲と雑木林を鏡面の様に映し、陽の光を煌めかせるホジスンの池。*
 
-The avenues of poplars that stand tall and majestic are lined with endless avenues of blackberry trees.
+The poplars standing majestically, lining the endless black poplar avenue.
 
 *泰然と立つポプラが、何処までも並び続くクロキの並木道。*
 
-She looked at them all with a twinkle in her eye.
+She gazed at each one with shining eyes.
 
 *彼女は、どれも目を輝かせて見入っていた。*
 
-It is a joy to hear that people like the village where you live.
+It is truly delightful to think that she likes the village where I live.
 
 *自分の暮らす村が気に入って貰えると云うのは、何とも嬉しい物だ。*
 
@@ -113,61 +112,61 @@ It is a joy to hear that people like the village where you live.
 
 &nbsp;
 
-If you cross the tree-lined street and go south down the road beyond, you will see our house on the hillside.
+Crossing the avenue and heading south down the road ahead, my home on the hill comes into view.
 
 *並木道を越え、その先にある道を南に下れば、丘陵の上にある我が家が見えて来る。*
 
-Since we are going around from the north, we can only see the roof of the mansion surrounded by a windbreak and a few white exterior walls, but in another five minutes we will be there.
+Since we are approaching from the north, only the roof of the mansion surrounded by windbreaks and the white outer walls can be seen, but we will arrive in just five minutes.
 
 *北側から回り込んでいるので、防風林で囲まれた屋敷の屋根と、白い外壁が僅かに見えるだけだが、もう5分もすれば到着する。*
 
 &nbsp;
 
-They say that just as you walk up this gentle slope on the south side, you can see the carriage coming up from the living room.
+As we climb this gentle slope from the south, it seems that Sonia can see the carriage coming up from the living room.
 
 *南側のこの緩い坂を登って行くと、ちょうどリビングからは馬車が上がって来る所が見えるらしい。*
 
-Sonia said she could tell when I was coming back from this area.
+It seems that Sonia can tell I am back from this point.
 
 *ソニアはこの辺りから、ワシの帰りが分るのだそうだ。*
 
 &nbsp;
 
-When we pulled the carriage into the grounds and attached it to the front of the mansion, Sonia was already at the front door.
+After guiding the carriage onto the property and stopping in front of the mansion, Sonia was already at the entrance.
 
 *馬車を敷地内に入れ、屋敷の前に付けると、既に玄関先にソニアは居た。*
 
-He realizes that the person who brought him here is not Will and looks quizzical.
+Noticing that the person I brought was not Will, she looked puzzled.
 
 *連れて来た者がウィルで無い事に気づき、訝しげな顔をしている。*
 
 &nbsp;
 
-I could see Sonia gasp as she helped the girl get out of the carriage.
+As I helped the girl down from the carriage, I could see Sonia gasp.
 
 *少女が馬車から降りるのに手を貸していると、ソニアが息を呑むのが分かった。*
 
 &nbsp;
 
-Ravi ......?"
+"Ravi...?"
 
 *「ラヴィ……？」*
 
 &nbsp;
 
-Sonia's murmur reminds me of the pain deep in my chest.
+Sonia's murmur reminded me of the pain deep in my chest.
 
 *ソニアの呟きに、胸の奥の痛みを思い出す。*
 
 &nbsp;
 
-"Howard ....... What happened to Will? Who is the boy ............?"
+"Howard... Where is Will? And who is this child...?"
 
 *「ハワード……。ウィルはどうしたの？その子は…………どなた？」*
 
 &nbsp;
 
-Sonia asked as if she remembered, without taking her eyes off the girl.
+Sonia asked, not taking her eyes off the girl, as if she had just remembered something.
 
 *ソニアが、少女から目を離すことなく、思い出したように尋ねて来た。*
 
@@ -179,35 +178,35 @@ Sonia asked as if she remembered, without taking her eyes off the girl.
 
 &nbsp;
 
-The girl bowed her head in greeting, and Sonia responded by smiling and introducing herself.
+The girl greeted while bowing her head, and Sonia responded with a smile, introducing herself in return.
 
 *少女が頭を下げながら挨拶をすると、ソニアもそれに応え、微笑んで自己紹介を返していた。*
 
 &nbsp;
 
-I protected ...... in the woods, or rather, saved my life."
+"I saved her from the forest... or rather, she is my lifesaver."
 
 *「森で保護した……、と言うより命の恩人だ」*
 
 &nbsp;
 
-Sonia's eyes widened at the words "saved my life.
+At the words "lifesaver," Sonia's eyes widened.
 
 *命の恩人　という言葉にソニアは目を見開いた。*
 
-Apparently, he noticed dirt and damage to the girl's clothes and the eagle's shirt.
+It seems she noticed the girl's clothes and the dirt and damage on my shirt.
 
 *どうやら少女の服や、ワシのシャツの汚れや傷みに気が付いたようだ。*
 
 &nbsp;
 
-What happened? Are you hurt? Are you two all right?
+"What happened?! Are you hurt?! Are you both alright?!!"
 
 *「何があったの？！怪我は？！二人とも大事は無いの？！！」*
 
 &nbsp;
 
-Sonia's face was tense and she rushed to me as if in a panic. ......
+Sonia's face stiffened, and she rushed over in a fluster, but...
 
 *ソニアが顔を強張らせ、慌てた様に駆け寄って来たが……。*
 
@@ -215,7 +214,7 @@ Sonia's face was tense and she rushed to me as if in a panic. ......
 
 &nbsp;
 
-Gurrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr.
+Gurugyurururururururururururururu
 
 *グるギュるるるるるるるるるるるるる*
 
@@ -223,17 +222,17 @@ Gurrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr.
 
 &nbsp;
 
-It rang grandly again.
+It made a grand sound again.
 
 *また盛大に鳴ったな。*
 
 &nbsp;
 
-Apparently, they were reacting to the savory smells wafting from the house.
+It seems that she reacted to the delicious aroma wafting from the house.
 
 *どうやら、家から漂ってくる香ばしい匂いに反応したらしい。*
 
-This is definitely the smell of an herb bird roasting in the oven.
+This is undoubtedly the smell of herb-roasted chicken from the oven.
 
 *コレは間違いなくオーブンでハーブ鳥を焼く匂いだ。*
 
@@ -241,105 +240,105 @@ It is truly appetizing!
 
 *実に食欲をそそられる！*
 
-There is no reason not to stimulate this hungry girl's stomach.
+There is no way this hungry girl’s stomach would not react.
 
 *この腹ペコ少女の胃袋を刺激しない訳がない。*
 
 &nbsp;
 
-Hearing the sound, Sonia, who was about to run over, froze.
+Hearing that sound, Sonia, who was about to rush over, froze.
 
 *その音を聞いて、駆け寄ろうとしていたソニアが固まった。*
 
-In contrast, the girl turned bright red and turned over on the spot.
+In contrast, the girl turned bright red and looked down at the ground.
 
 *対して少女は、真っ赤になってその場で俯いてしまった。*
 
 &nbsp;
 
-Bufo!"
+"Bufu!"
 
 *「ブフォッ！」*
 
 &nbsp;
 
-I can't help but blow up unbearably at the sight of them.
+Seeing that, I couldn't help but burst out laughing.
 
 *その姿を見て、つい堪え切れずに吹き出してしまう。*
 
-The girl pulled and held back tears and looked up at me with a red face and a bitter look on her face.
+The girl, trembling and holding back tears, looked up at me with a resentful red face.
 
 *少女はプルプルしながら涙を堪え、赤い顔で恨めしそうにコチラを見上げて来た。*
 
 &nbsp;
 
-Nope! I am sorry.
+No! I’m sorry.
 
 *いや！申し訳ない。*
 
-But you know, your tummy rumbles at just the right time.
+But you see, your stomach made a sound at just the right moment.
 
 *でもね、キミのお腹が余りにもタイミング良く鳴るのでね。*
 
-See, the tension that existed earlier has cleanly disappeared from Sonia.
+Look, the tension that was there with Sonia just a moment ago has completely disappeared.
 
 *ご覧よ、ソニアから先程まであった緊張感が綺麗に消えている。*
 
-Your tummy is definitely reading the air, isn't it? I'm sure of it.
+Your stomach is definitely reading the room, right? No doubt about it.
 
 *キミのお腹の虫は、絶対に空気を読んでいるね？間違いない。*
 
 &nbsp;
 
-Howard! It's rude to laugh at a girl! Poor thing, she's so red ......"
+"Howard! It's rude to laugh at a girl! Poor thing, she's so red..."
 
 *「ハワード！女の子を笑うなんて失礼よ！可哀相に、こんなに赤くなって……」*
 
-I'm sorry. But I'd like to eat before we talk. I'll leave the carriage here. Can you prepare it for me?"
+"Ah, I apologize. But you see, I want to eat before we talk. I’ll leave the carriage, so could you prepare the meal?"
 
 *「ああ、すまなかった。しかしね、話より先に食事にしたいんだ。ワシは馬車を置いて来るから、用意を頼めるか？」*
 
-I'm going to go to ......, yeah, yeah! Yes, I do! Let's do that! Let's talk over dinner! ...... But first, ......, Elrose! Elrose please!
+"…Yes, yes! That sounds good! Let’s eat while we talk! …But first… Elrose! Elrose, please!!"
 
 *「……ええ、ええ！そうね！そうしましょう！！お食事をしながらお話をしましょう！……でも、その前に……、エルローズ！エルローズお願い！！」*
 
 &nbsp;
 
-When Sonia came to the girl, she bent down to the girl's eye level and called for Elrose in the house, using her own apron to clean the dirt off her face.
+Sonia came to the girl, bent down to her eye level, and while wiping the dirt from her face with her apron, called for Elrose from inside the house.
 
 *ソニアは、少女の前まで来ると、その場で少女の目線までかがみ、自分のエプロンで彼女の顔の汚れを落としながら、家の中のエルローズを呼んだ。*
 
 &nbsp;
 
-Elle Rose, I need to bathe her and clean her up. Please hurry up and get ready. I'll go get you a change of clothes."
+"Elrose, I want to give this child a bath and clean her up. Please hurry and prepare. I’ll get some clothes ready."
 
 *「エルローズ、この子をお風呂に入れて綺麗にしたいの。急いで準備お願い。私は着替えを用意して来るから」*
 
 &nbsp;
 
-Elrose, who had just emerged from the mansion, looked at the girl and Sonia alternately in surprise, then bowed lightly and immediately returned to the mansion.
+Elrose, peeking out from the mansion, looked surprised as she glanced between the girl and Sonia, then lightly bowed and quickly returned inside.
 
 *屋敷から顔を出したエルローズは、驚いた様に少女とソニアを一度交互に見た後、軽く一礼して直ぐ様屋敷内へ戻って行った。*
 
 &nbsp;
 
-"You're a good girl, just be patient a little bit longer, okay? Let's have dinner right after I get you cleaned up, okay?"
+"Be a good girl and just hold on a little longer, okay? Once you're clean, we’ll eat right away?"
 
 *「いい子だから、もう少しだけ辛抱してね？綺麗にしたら直ぐお食事にしましょう？」*
 
 &nbsp;
 
-Sonia follows the girl into the mansion.
+Following behind, Sonia led the girl into the mansion.
 
 *後を追う様にソニアに連れられ、少女も屋敷へ入って行く。*
 
 &nbsp;
 
-Now, I must quickly give Regulus a fodder and go into the mansion myself.
+Now, I need to hurry and feed Regulus and get inside the mansion.
 
 *さて、早くレグルスに飼い葉をやってワシも屋敷へ入らなくては。*
 
-Whether it's the smell of the herb bird or the effects of her stomach bug, my stomach has been rumbling for some time now.
+Thanks to the smell of the herb chicken or the influence of that girl’s stomach, mine has been growling non-stop since earlier.
 
 *ハーブ鳥の匂いのお蔭か、あの子の腹の虫の影響か、此方の腹も先程から鳴りっ放しだ。*
 
@@ -353,195 +352,195 @@ Whether it's the smell of the herb bird or the effects of her stomach bug, my st
 
 &nbsp;
 
-While waiting at a table lined with food, a girl ...... Susie, accompanied by Sonia, entered the dining room, saying with a faltering, "Sorry to keep you waiting.
+As I waited at the table set for the meal, Sonia brought the girl… Suzy, who entered the dining room awkwardly, saying, "I’m sorry to keep you waiting."
 
 *食事の並んだテーブルで待っていると、ソニアに連れられて少女……スージィが、たどたどしく　　おまたせしました　と言いながら食堂へ入ってきた。*
 
 &nbsp;
 
-It looks different.
+She looked transformed.
 
 *見違えた。*
 
-When polished up nicely, it had a well-defined face, just as I had expected.
+Once cleaned up, she had the neat features I had expected.
 
 *綺麗に磨き上げられると、思っていた通り整った面立ちをしていた。*
 
-Her red hair is tucked back and she wears a pale blue loungewear.
+Her red hair was tied back, and she wore a light blue nightgown.
 
 *赤い髪を後ろに纏め、浅葱色の部屋着を着ている。*
 
 &nbsp;
 
-Oh, and the size is just right, ......, it matches her hair color well.
+Ah, the size fits just right... it matches her hair color well.
 
 *ああ、サイズも丁度良いのか……、彼女の髪の色と良く合っている。*
 
 &nbsp;
 
-Suzy is a little embarrassed and restless.
+Suzy seemed a bit shy and restless.
 
 *スージィは、少し恥ずかしそうに落ち着かなげだ。*
 
-When Elrose seats her, she stares at the food on the table as if devouring it.
+Once Elrose seated her, she stared intently at the dishes on the table.
 
 *エルローズが席に着かせると、テーブルの上の料理を食い入るように見つめている。*
 
-That's exactly what I'm leaning forward to do.
+She was practically leaning forward.
 
 *それこそ身を乗り出す勢いで。*
 
-Kore Kore Kore, don't make me drool, okay?
+Now, now, you mustn't drool!
 
 *コレコレ、涎は垂らせてはいかんよ？*
 
 &nbsp;
 
-Now, I've left you with a lot of food, haven't I? Eat as much as you like.
+"Alright, we've kept you waiting long enough, haven't we? Please eat without hesitation."
 
 *「さあ、随分とお預けをしてしまったね？どんどん遠慮なく食べなさい」*
 
 &nbsp;
 
-Vashi and Sonia, smiling, offered Suzy a meal, and Elrose served her with a share of the herb bird.
+Sonia and I smiled as we encouraged Suzy to eat, and Elrose served the herb chicken.
 
 *ワシとソニアが、微笑みながらスージィに食事を勧め、エルローズがハーブ鳥を取り分けて差し出した。*
 
 &nbsp;
 
-At first he was reserved and asked me with his eyes if he could eat the bird, holding it close to his mouth, which was stuck in the fork in his hand.
+At first, she hesitated, bringing the chicken skewered on her fork close to her mouth, looking to see if it was okay to eat.
 
 *最初は遠慮がちに、手に持ったフォークに刺さる鳥を口元に近づけながら、食べて良いのかと目で聞いて来た。*
 
-Laughing and nodding broadly, he bit down at once, as if determined to do so.
+When I laughed and nodded vigorously, she seemed to gather her resolve and took a big bite.
 
 *笑いながら大きく頷くと、意を決した様に一気に食い付いた。*
 
-That's what it sounded like, like a real 'crackling' sound.
+It truly sounded like a "crunch."
 
 *それこそ本当に『パクリ』と言う音がした様に思えた。*
 
 &nbsp;
 
-Once the bird is in his mouth, Suzy's expression melts away.
+The moment the chicken touched her mouth, Suzy's expression melted away.
 
 *鳥を口に含んだ途端、スージィの表情が溶けて行く。*
 
-It looks so happy.
+She looked incredibly happy.
 
 *それはそれは幸福そうに。*
 
 &nbsp;
 
-With a fork in his left hand in his mouth, he holds his cheek with his right hand, his face tilted lightly to the right, shaking it lily-white.
+With the fork still in her left hand, she pressed her cheek with her right hand, tilting her face slightly to the right as she swayed it gently.
 
 *左手のフォークを咥えたまま、右手で頬を押さえ、軽く右に傾いた顔がユルユルと振られている。*
 
 &nbsp;
 
-Nnnnnn...mmmm...mmmm!!!!"
+"Mmnnnn... Mmmmmm!!!"
 
 *「ンンんんんっ・・・まぁぁぁぁっっっ！！！」*
 
 &nbsp;
 
-Suzy's face lit up.
+Suzy's expression lit up.
 
 *パァァァっとスージィの表情が輝いた。*
 
-Is it my imagination that it really looked like a light went on?
+Did it really seem like a light turned on? Or was it just my imagination?
 
 *本当に光が灯った様に見えたのは気のせいか？*
 
 &nbsp;
 
-It didn't stop there.
+From there, she couldn't stop.
 
 *そこからはもう止まらなかった。*
 
 &nbsp;
 
-The food that had been prepared in large portions for Will, who is a glutton, disappears one after another.
+The meal prepared in abundance for the big eater Will was disappearing one after another.
 
 *大食漢のウィルの為に、多めに用意されていた食事が次々と消えて行く。*
 
 &nbsp;
 
-Oh, Oishii! It's ・・・・ Oishii! ・・・・Ooh, oishi! Oihi・・・・ ugh... hiccup... Oihi・・・・ ugh・・・・ oihi...!"
+"Delicious! ...So delicious! ...So yummy... Oh! So good... Ugh... Hic... So good... Ugh... So delicious..."
 
 *「お、おいっし！・・・・おいしです！・・・・おいっひぃのぉ・・・・お！おいふぃっ・・・・うぐぅ・・・ヒック・・・おいっふぇ・・・・うぇ・・・・おいひぃぃ・・・っっ」*
 
 &nbsp;
 
-He chews his food without stopping, and continues to eat, praising the flavors as if he were about to cry.
+Without stopping her hands, she chewed the food, praising the taste with tears in her eyes as she continued to eat.
 
 *手を止める事無く料理を咀嚼し、泣きそうな勢いで味を称え食べ続けている。*
 
-...... No, you're actually crying.
+...No, she is actually crying.
 
 *……いや、実際泣いているな。*
 
 &nbsp;
 
-You girls shouldn't eat with tears in your eyes. The dishes aren't going anywhere, so calm down and eat properly, okay? Okay?"
+"Hey, a girl shouldn't eat while crying. The food isn't going anywhere, so calm down and eat properly, okay?"
 
 *「ホラ、女の子が泣きながらお食事してはいけないわ。お料理は何処にも行かないから、落ち着いてちゃんと食べなさい？ね？」*
 
-"Ha-hi... yes... hi-hi... hi-hi... hi-hi..."
+"Y-yes... Hehe... So good..."
 
 *「はヒ・・・はい・・・ふひっ・・・おいひ・・・ひふ」*
 
 &nbsp;
 
-Sonia takes care of Suzy's meals, wiping her tears, her mouth, and the food.
+Sonia, while managing her own meal, diligently wiped Suzy's tears, cleaned her mouth, and brought the dishes closer to her, taking care of her.
 
 *ソニアが自分の食事もそこそこに、涙を拭いたり口元を拭ったり料理を手元に寄せたりと、スージィの食事の世話を甲斐甲斐しく焼く。*
 
-Elrose also shares the food, replaces plates and refills the soup, and in the end the two of them take care of her.
+Elrose also served food, exchanged plates, and refilled the soup, so in the end, the two of them were taking care of her.
 
 *エルローズも料理を取り分け、皿を交換しスープを継ぎ足したりと、結局二人で彼女の面倒を見ている。*
 
 &nbsp;
 
-You look as if you're taking care of a little girl's food, but you're not that young to be a little girl, are you? Both of you.
+It was as if they were looking after a small child, but even though she is a girl, she isn't that young, is she? Both of them.
 
 *まるで幼子の食事の世話をしている様だが、少女と言ってもそこまで幼くは無いぞ？二人とも。*
 
-Still, seeing the two of them happily taking care of her makes my cheeks relax.
+Even so, watching the two of them happily take care of her made me smile.
 
 *それでも、楽しそうに彼女の世話をする二人を見ていると、コチラも頬が緩む。*
 
 &nbsp;
 
-Where did that much food disappear into this petite body?
+Where on earth did all that food go in this petite body?
 
 *あれだけの量の食材が、この小柄な体のどこに消えたのだろうか？*
 
 &nbsp;
 
-Eventually, the meal was over, and I tasted a sip of after-dinner tea made by Elrose. ......
+Eventually, the meal came to an end, and after savoring a sip of the tea Elrose brewed...
 
 *やがて食事も終わり、エルローズの淹れた食後のお茶を一口味わうと……。*
 
 &nbsp;
 
-Haaaa...ocha...yummy..."
+"Ahhh... the tea is... delicious..."
 
 *「はあぁぁ・・・おちゃも・・・おいしぃ・・・」*
 
 &nbsp;
 
-Suzy muttered with a face that looked as happy as if she were debauched, while letting out a loud exhale.
+With a deep sigh and a blissful, melting expression, Suzie murmured.
 
 *と大きな吐息を漏らしながら、蕩ける様に幸せそうな顔でスージィが呟いた。*
 
-The expression on their faces causes Eagle's and Sonia's faces to become prodigal.
+Caught up in her expression, both Sonia and I couldn't help but let our own faces soften as well.
 
 *その表情に釣られて、ワシとソニアの顔も蕩けてしまう。*
 
 &nbsp;
 
-Later, over after-dinner tea, I told Sonia about what had happened today.
+After that, while drinking the post-meal tea, I told Sonia about what had happened today.
 
 *その後、食後の茶を飲みながら今日あった事をソニアに話した。*
 
@@ -549,81 +548,81 @@ Later, over after-dinner tea, I told Sonia about what had happened today.
 
 &nbsp;
 
-That Will is no longer able to come.
+That Will could not come.
 
 *ウィルが来れなくなった事。*
 
 &nbsp;
 
-Encountering a two-headed boa and a gray wolf in the forest.
+That I encountered a two-headed boar and a gray wolf in the forest.
 
 *森でツーヘッド・ボアとグレイ・ウルフに遭遇した事。*
 
 &nbsp;
 
-Suzy told him that she had defeated one of the wolves and detoxified the eagle's poison.
+When I told her that Suzy had defeated one of the wolves and detoxified me...
 
 *スージィがウルフ一体を倒し、ワシの毒を解毒した事を教えると。*
 
 &nbsp;
 
-Is this the young lady? ......?"
+"This young lady did that...?"
 
 *「このお嬢様がですか……？」*
 
 &nbsp;
 
-Elrose said in surprise.
+Elrose exclaimed in surprise.
 
 *と、エルローズが驚きの声を上げた。*
 
-Sonia is also wide-eyed and surprised.
+Sonia's eyes widened in astonishment as well.
 
 *ソニアも目を見開き驚いている。*
 
 &nbsp;
 
-I'm going to take you to Henry's after this ......"
+"I plan to take her to Henry's place afterward..."
 
 *「この後、ヘンリーの所へ連れて行こうと思っている……」*
 
 &nbsp;
 
-After he finished telling her the whole story, he told Sonia as he sipped his tea.
+After conveying everything, I sipped my tea and told Sonia.
 
 *一通り伝え終えた後、茶を啜りながらソニアに告げた。*
 
 &nbsp;
 
-What are you planning to do with her?
+"What do you intend to do with this child afterward?"
 
 *「この子を、この後どうなさるお積りですか？」*
 
 &nbsp;
 
-Sonia puts down her tea cup and quietly asks with her eyes downcast.
+Sonia set down her teacup and quietly asked, keeping her eyes downcast.
 
 *ソニアが茶器を置き、目を伏せたまま静かに尋ねてくる。*
 
 &nbsp;
 
-We need to talk to them. If we don't know where they came from, we can't deliver them to their families. That's what the temple is for."
+"A consultation is necessary. We must at least know where she came from to return her to her family. That is what the temple is for."
 
 *「相談は必要だな。来た場所だけでも分らねば、家族の元へ届けてやることも出来ん。その為の神殿だ」*
 
-"...... yes, that's right. ............ I can't imagine how concerned the parents are about ........."
+"…Yes, that is true... How worried her parents must be..."
 
 *「……そう、そうですわね…………。親御さんが、どれ程心配しておられるか………」*
 
 &nbsp;
 
-Do you want me to go somewhere?
+"Um... am I... going somewhere...?"
 
 *「あ、あの・・・わたし・・・どこか・・・いく・・・ですか？」*
 
 &nbsp;
 
-Susie raised her eyebrows a little and asked.
+Suzy asked with a slight furrow in her brow.
 
 *スージィが少し眉を寄せ尋ねて来た。*
 
@@ -631,57 +630,56 @@ Susie raised her eyebrows a little and asked.
 
 &nbsp;
 
-Well! I'm sorry. I know it makes you anxious, doesn't it? But don't worry! We'll be right back here. Right, Howard? Right, Howard?
+"Well! I’m sorry. It must make you anxious, right? But don’t worry! You can come back here right away. Right? Isn’t that so, Howard?"
 
 *「まあ！ごめんなさいね。不安になってしまうわよね？でも大丈夫よ！直ぐここに戻って来れますから。ね？そうでしょハワード？」*
 
-Of course! I'll be back when I'm done. You are my benefactor, and I must ask you to stay in the house tonight!
+"Of course! Once the business is done, I’ll bring you back. You are my lifesaver, after all, so you must relax in the mansion tonight!"
 
 *「勿論だとも！用事が済んだら戻って来るよ。君はワシの恩人だからね、今夜は屋敷で寛いで貰わねばならん！」*
 
-'Well then, sir, are you sure you want to prepare dinner as planned?
+"Then, sir, is it alright to prepare dinner as planned?"
 
 *「それでは旦那様、夕食の用意は予定通りでよろしいですか？」*
 
-Oh, for God's sake. I'll be back in time for dinner, of course. We'll be back in time for dinner, of course.
+"Ah, please do. I’ll certainly be back by dinner. If I remember correctly, we were using deer, right?"
 
 *「ああ、頼むよ。当然夕食までには戻る。確か、鹿を使うのだったね？」*
 
-Yes, the deer we got is just about ready to eat, it was Will's favorite, and we were going to have a full course of venison tonight."
+"Yes, the deer we received is just right for eating, and since it was Will's favorite, we had planned a full course with venison for tonight."
 
 *「そうですよ、頂いた鹿が食べ頃ですから、ウィルの好物でしたからね、今夜は鹿肉でフルコースの予定でしたもの」*
 
-"...shi-shika... fu-furukosu... o-niku?"
+"...Deer... full course... meat?"
 
 *「・・・し、しか・・・ふ、ふるこーす・・・おにく？」*
 
-Oh? Susie-chan reacted. I just ate so much food, but you really are a glutton.
+"Oh? Suzy-chan reacted to that. Hehe, even though you just ate so much, you really are a glutton."
 
 *「あら？スージィちゃんが反応しちゃったわ。フフ、今こんなに食べたばかりなのに、本当に食いしん坊さんだこと」*
 
 &nbsp;
 
-Sonia laughs colossally.
+Sonia laughed heartily.
 
 *ソニアがコロコロと笑う。*
 
-When Suzy turns red and looks down, Elrose consoles her with a smile, saying, "That's how it is when you're in the middle of eating.
+As Suzy turned red and looked down, Elrose smiled and comforted her, saying that’s just how growing kids are.
 
 *スージィが赤くなって俯くと、エルローズが　食べ盛りはそんなものですよ　と笑顔で慰める。*
 
 &nbsp;
 
-I haven't had such a pleasant dining experience in years.
+How many years has it been since I’ve had such a joyful dining table?
 
 *何年振りだろう、こんな楽しい食卓は。*
 
-When was the last time I saw Sonia smile so happily?
+How long has it been since Sonia has laughed so happily?
 
 *いつ振りだろう、ソニアがこんなに楽しそうに笑うのは。*
 
 &nbsp;
 
-I can't help but wish that if it were possible, days like this would come again.
+If only I could wish for such days to return once more.
 
 *叶うのならば、こんな日々が再び訪れてくれる事を願わずにはいられない。*
-

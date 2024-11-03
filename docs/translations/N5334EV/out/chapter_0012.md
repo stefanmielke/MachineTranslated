@@ -1,17 +1,16 @@
-# 12 Howard Cloud is very surprised.
+# Episode 12: Howard Cloud is Greatly Surprised
 
 ## 12話　ハワード・クラウド大いに驚く
 
-A new chapter is starting. And finally, it's a human village ^^;
+A new chapter begins. And finally, we are in the human settlement.＾＾；
 
 *新章スタートします。そんで、ようやく人里です＾＾；*
-
 
 ----------------
 
 &nbsp;
 
-Howard Cloud was depressed.
+Howard Cloud was feeling melancholic.
 
 *ハワード・クラウドは憂鬱であった。*
 
@@ -19,55 +18,55 @@ Howard Cloud was depressed.
 
 &nbsp;
 
-Now Howard is steering a one-horse cart pulled by a black horse, making his way home.
+Currently, Howard was driving a one-horse carriage pulled by a black horse, making his way home.
 
 *今ハワードは黒毛の馬に引かれた一頭立ての馬車を操車して、家路を辿っている。*
 
 &nbsp;
 
-He wears a black sun hat and jacket with a white shirt, gray head hair and mustache peeking out of the hat, and his posture as he steers the carriage is straight and unlevel.
+Wearing a black sun hat and jacket with a white shirt, his gray hair and mustache peeking out from under the hat, he sat straight and composed while handling the carriage.
 
 *黒い日除け帽と上着に白いシャツ、帽子から覗くグレーの頭髪と口髭、馬車を操る姿勢は真っ直ぐで澱みが無い。*
 
-His appearance and appearance alone seem to reveal that he is an honest man.
+His appearance alone suggested that he was an honest man.
 
 *その出で立ち、姿だけで彼が実直な人間である事が窺い知れるようだ。*
 
 &nbsp;
 
-Behind the dark eyebrows stand strong gray eyes.
+Behind his thick eyebrows, strong gray eyes were gazing.
 
 *濃い眉の奥には、強い眼差しの灰色の目が佇んでいる。*
 
-But it is by no means intimidating.
+However, there was nothing intimidating about it.
 
 *しかしそれは決して威圧を感じさせる物では無い。*
 
-It has a warmth that is rather familiar.
+Rather, it exuded a friendly warmth.
 
 *寧ろ親しみ易い暖か味を湛えている。*
 
-He is looking thoughtful with a slightly twisted mouth buried in his beard.
+At that moment, he slightly twisted his mouth, which was hidden by his beard, into a thoughtful expression.
 
 *そんな彼が髭に埋まった口元を少しだけ歪め思案顔だ。*
 
 &nbsp;
 
-Normally, this carriage would have carried my nephew Will, who was on his way back to our home in Amkham.
+Under normal circumstances, his nephew Will would have been riding in this carriage, and they would have been on their way back to their home in Amukam together.
 
 *本来であれば、この馬車には甥のウィルを乗せ、共にアムカムにある我が家への帰路に就いている筈だった。*
 
-But what awaited Howard at the stagecoach stop was a letter handed to him by the governor.
+However, what awaited Howard at the stagecoach stop was a letter handed to him by the driver.
 
 *だが駅馬車の停車場でハワードを待っていたものは、御者から手渡された一通の手紙だ。*
 
 &nbsp;
 
-It was from my nephew, who was really unable to take time off due to a sudden exam.
+It was from his nephew, apologizing for not being able to keep their promise due to an unexpected exam that left him no time.
 
 *それは甥からの物で、急な試験でどうしても時間が取れなくなった事。*
 
-It was filled with polite apologies for not keeping my promise and words of exertion for my aunt and uncle.
+The letter was filled with polite apologies for not being able to keep the promise and words of concern for his uncle and aunt.
 
 *約束を守れない事に対する丁寧な謝罪と、伯父と伯母への労りの言葉で埋められていた。*
 
@@ -75,43 +74,43 @@ It was filled with polite apologies for not keeping my promise and words of exer
 
 &nbsp;
 
-Will, the son of Howard's brother Philip, is a vivacious young man, 17 this year, a sophomore at a high school in DeKembel, one of the 12 cities.
+Will, the son of Howard's brother Philip, was a lively 17-year-old young man in his second year at a high school in Dekkenbel, one of the twelve cities.
 
 *ハワードの弟フィリップの息子であるウィルは、12都市の一つデケンベルにある高等校の2回生に在籍している今年17歳の快活な若者だ。*
 
 &nbsp;
 
-He comes to visit Amcam for a week each summer and spends time with the Cloud family.
+Every summer, he would come to Amukam for about a week and spend time with the Cloud family.
 
 *夏は毎年1週間ほどアムカムへ遊びに来て、クラウド家で過している。*
 
 &nbsp;
 
-For the Claudes, who have no children, Will's visit is an event they look forward to every year.
+For the childless Cloud couple, Will's visits were an eagerly awaited event each year.
 
 *子供のいないクラウド夫妻にとって、ウィルの訪問は毎年心待ちなイベントなのだ。*
 
-After entering a boarding school, he was scheduled to come here at the beginning of the summer vacation.
+Since he entered the boarding high school, it had been arranged that he would come directly here at the start of the long summer vacation.
 
 *全寮制の高等校へ進学してからは夏の長期休暇が始まると、そのままこちらへ来る手筈になっていた。*
 
 &nbsp;
 
-How could I comfort my wife Sonia? I was looking forward to it so much.
+How to comfort his wife Sonia? She had been looking forward to it so much.
 
 *妻のソニアをどう慰めたものか。あれだけ楽しみにしていたのに。*
 
-For a week, he and his maid, Elrose, had been happily preparing for the event.
+For over a week, she and the maid Elrose had been happily preparing, discussing this and that.
 
 *一週間も前から女中のエルローズと二人で、ああでもないこうでもないと楽しそうに準備に勤しんでいたのだ。*
 
-I can see the disappointment in their eyes.
+He could easily picture the disappointment on their faces.
 
 *二人の落胆ぶりが目に浮かんでしまう。*
 
 &nbsp;
 
-Howard was sighing thoughtfully as he drove his carriage homeward.
+As he sighed thoughtfully, Howard urged the carriage onward toward home.
 
 *ハワードは、思案気に嘆息しながら帰路へと馬車を進ませていた。*
 
@@ -119,89 +118,89 @@ Howard was sighing thoughtfully as he drove his carriage homeward.
 
 &nbsp;
 
-The suddenness of the exam at this time of the year is also understandable.
+At this time of year, an unexpected exam could be roughly guessed.
 
 *この時期に突然の試験と云うのも大体察しは付く。*
 
-Nine times out of ten, it is probably related to the anomaly in the Deipala Mountains.
+It was most likely related to the disturbances in the Deipara Mountains.
 
 *十中八九デイパーラ山脈の異変絡みだろう。*
 
 &nbsp;
 
-Sacred Daypara, where the gods are said to dwell.
+The sacred Deipara, said to be inhabited by gods.
 
 *神々が棲まうと言われる聖なるデイパーラ。*
 
-It was two days ago that something unusual happened there.
+The disturbances there occurred two days ago.
 
 *そこに異変が起きたのは二日前の事だ。*
 
 &nbsp;
 
-Some say the mountains shone.
+Some said the mountains shone.
 
 *山々が輝いたと言う者も居る。*
 
-Numerous witnesses claim to have seen the flashes.
+Many witnesses claimed to have seen flashes of light.
 
 *閃光を見たと言う目撃者は数多い。*
 
-Then the clouds scraped away and the atmosphere trembled.
+Afterward, the clouds dissipated, and the atmosphere trembled.
 
 *その後に雲が掻き消え大気が震えた。*
 
-Atmospheric vibrations are experienced by everyone in this village.
+The vibrations in the air were something anyone from this village would have experienced.
 
 *大気の振動はこの村の者なら誰もが経験した事だ。*
 
 &nbsp;
 
-And the mountains changed shape. Even the tops of Mother Dare had been carved away and greatly transformed.
+And the mountains changed shape. Even the peak of Mother Dear was significantly altered.
 
 *そして山々が形を変えた。母なるデアの頂さえ、その身が削られ大きく変貌していたのだ。*
 
 &nbsp;
 
-Some are calling this the wrath of the gods or the resurrection of the evil gods.
+Some people were clamoring that this was the wrath of the gods or the revival of an evil deity.
 
 *これを神々の怒りだとも邪神の復活だとも騒ぐ者も居る。*
 
 &nbsp;
 
-In any case, the impact on various regions is immeasurable.
+In any case, the impact it had on various regions was immeasurable.
 
 *いずれにしても各地に与えた影響は計り知れない。*
 
-Perhaps a survey team will be formed.
+A survey team would likely be organized.
 
 *恐らくは調査団が編成されるのであろう。*
 
-The organization of personnel is an urgent task.
+The staffing of personnel was urgent.
 
 *人員の編成は急務だ。*
 
 &nbsp;
 
-Also, the mountain range of the gods has changed. There will be those who deceive people's minds, and there could be the activation of demonic beasts in various places.
+Moreover, with the disturbances in the gods' mountains, there would likely be those who would sow discord among the people, and the activation of magical beasts in various places was also possible.
 
 *また、神々の山脈の異変だ、人心を惑わす輩も現れるだろうし各地で魔獣の活性化もあり得る。*
 
-Security against them also needs to be strengthened.
+Strengthening security against these threats was necessary.
 
 *それらに対する警備力の強化も必要だ。*
 
-Inevitably, there will be a shortage of labor.
+Inevitably, there would be a shortage of manpower.
 
 *必然的に人手不足になる。*
 
 &nbsp;
 
-Will is an excellent knight candidate student.
+Will was an excellent candidate for knighthood.
 
 *ウィルは優秀な騎士候補の学生だ。*
 
-The on-the-job training, which is called an examination, will probably be conducted to fill the vacancies left by the allocated personnel.
+As a supplementary force for the allocated personnel, a practical training exam would likely be conducted.
 
 *割かれた人員に対する補充要員として、試験と云う名の実地研修が実施されるのだろう。*
 
@@ -209,7 +208,7 @@ The on-the-job training, which is called an examination, will probably be conduc
 
 &nbsp;
 
-Howard was thinking about this now as he passed by a side road in the Amcam forest.
+As Howard passed through a side road of the Amukam Forest, he was contemplating such matters.
 
 *ハワードは今、アムカムの森の脇道を通りながらそんな事を考えていた。*
 
@@ -217,33 +216,33 @@ Howard was thinking about this now as he passed by a side road in the Amcam fore
 
 &nbsp;
 
-Amcam Forest.
+The Amukam Forest.
 
 *アムカムの森。*
 
-It is the end of this country that stretches to the north of the village of Amkam.
+This is the edge of the country that spreads to the north of the village of Amukam.
 
 *アムカムの村北側に広がるこの国の果てだ。*
 
 &nbsp;
 
-The forest that bears the name of this village is actually a part of the southern edge of the Irosio Great Forest.
+Though the forest bears the name of this village, it is actually part of the southern end of the Iroshio Great Forest.
 
 *この村の名前を有する森だが、その実はイロシオ大森林の南端の一部の事だ。*
 
 &nbsp;
 
-If there was something wrong in the Deipala Mountains, it is not surprising that the Irosio Forest, which spreads out at the foot of the mountains, was also affected in some way.
+If there were disturbances in the Deipara Mountains, it would not be surprising if there were some effects on the Iroshio Great Forest that spreads at its foot.
 
 *デイパーラ山脈に異変があったなら、その麓に広がるイロシオ大森林にも何らかの影響があったとしても可笑しくは無い。*
 
-For those who live in this village, the vigilance of the Amkamu forest is one of the most important matters as it is part of their daily life.
+For the people living in this village, vigilance against the Amukam Forest is a part of their lives and one of the most important matters.
 
 *この村に住む者にとって、アムカムの森の警戒は生活の一部でもあり最も重要な案件の一つだ。*
 
 &nbsp;
 
-Besides, there is no one in the country who knows this forest better than the people of this village.
+Moreover, there is no one in this country who knows this forest better than the villagers.
 
 *それに、この村の民以上にこの森に詳しい者はこの国には居ない。*
 
@@ -251,7 +250,7 @@ Besides, there is no one in the country who knows this forest better than the pe
 
 &nbsp;
 
-(If a full-scale survey team heads for the Irosio Great Forest, we will have to allocate personnel from this village as well. (If a full-scale survey team heads for the Great Forest of Irosio, we will have to allocate personnel from this village. But we will still have to go as far as we can.)
+(If a full-fledged survey team heads to the Iroshio Great Forest, personnel will have to be allocated from this village as well. It is impossible to reach Deipara by passing through Iroshio. Still, we must advance as far as we can.)
 
 *（本格的な調査団がイロシオ大森林へ向かう事になれば、この村からも人員を割かねばならん。イロシオを抜けデイパーラへ辿り着くなど到底できるものではない。それでも行ける所まで進まねばなるまいな）*
 
@@ -259,17 +258,17 @@ Besides, there is no one in the country who knows this forest better than the pe
 
 &nbsp;
 
-Howard contemplates as he drives the carriage.
+As Howard drove the carriage, he was deep in thought.
 
 *ハワードは馬車を走らせながら思索する。*
 
 &nbsp;
 
-Now Howard was moving westward on a side road with the Amcam forest to his right.
+Now, Howard was moving westward along the side road with the Amukam Forest to his right.
 
 *今ハワードはアムカムの森を右手に見て、その脇道を西へ向けて移動していた。*
 
-A protective fence made of thick logs is set up at the edge of the forest to enclose it.
+A thick log fence surrounded the edge of the forest.
 
 *森の縁には太い丸太で組まれた防護柵が、森を囲う様に設置されている。*
 
@@ -277,75 +276,75 @@ The road was built along that fence.
 
 *道はその柵に沿って作られていた。*
 
-Although it was not necessary to take this road, I wanted to check the current state of the forest.
+It was a path that would not normally need to be taken, but he wanted to check the current state of the forest.
 
 *本来なら通る必要のない道だが、森の現状も確認しておきたかった。*
 
 &nbsp;
 
-To tell you the truth, I chose to take the long way around when I thought about when I would tell my wife about Will....
+To be honest, thinking about how to tell his wife about Will made him choose a longer route.
 
 *本音を言えば、妻へウィルの事を伝える時の事を考えると、つい大回りな道を選択してしまったのだが…。*
 
 &nbsp;
 
-Suddenly, I felt something different in the forest to my right.
+Suddenly, he felt something unusual in the right side of the forest.
 
 *ふと、右の森の中に何時もとは違う何かを感じた。*
 
 &nbsp;
 
-The village is the guardian of the Amkam forest and also manages it.
+The Amukam Forest is managed by the villagers who act as its guardians.
 
 *アムカムの森は村が守り人となり管理もしている。*
 
-There are no demonic beasts from the edge of the forest to about 2 to 300 meters deep, at first.
+Within 200 to 300 meters from the edge of the forest, magical beasts do not usually appear.
 
 *森の端から2～300メートル程奥までは、まず魔獣は出ない。*
 
 &nbsp;
 
-This is because the villagers are always on the alert, and if a magical beast is discovered, it is quickly dealt with.
+Villagers are always on guard, and if they spot a magical beast, they promptly deal with it.
 
 *常に村人が警戒に当たっていて、魔獣を発見すれば速やかに処理を行っているからだ。*
 
 &nbsp;
 
-A weak demonic beast that makes its home on the periphery of the forest can be dealt with by village children with no problem.
+Weak magical beasts that make their homes on the outskirts of the forest can be handled without issue even by village children.
 
 *森の外周を住処にするような弱い魔獣なら、村の子供でも問題なく対処できる。*
 
 &nbsp;
 
-Occasionally, there are more powerful demonic beasts that come up from the depths, but when that happens, the village's protectorate takes care of the matter.
+Occasionally, more powerful magical beasts rise from deeper within, but in those cases, the village's civil protection group takes action.
 
 *時折、もっと深淵から上がってくる強力な魔獣もいるが、その時は村の護民団が事に当たる。*
 
 &nbsp;
 
-In terms of pure combat power alone, the Protectorate is no match for the Knights of the Royal City.
+In terms of pure combat power, the civil protection group's strength is not inferior to that of the knight order in the royal capital.
 
 *純粋な戦闘力だけ見れば、護民団のそれは王都の騎士団にも引けは取らない。*
 
 &nbsp;
 
-Rather, those at the higher levels would even surpass the Knights.
+In fact, those of higher rank can even surpass the knight order.
 
 *むしろ上位の者ならば騎士団をも上回る。*
 
 &nbsp;
 
-Now, an unusual presence was drifting in from the forest.
+Now, an unusual presence was wafting from within that forest.
 
 *今、その森の中から只ならぬ気配が漂って来ていた。*
 
-Since the Daypara anomaly, the village has raised the alert level of the forest.
+Since the disturbances in Deipara, the village had raised the alert level for the forest.
 
 *デイパーラの異変以降、村では森の警戒レベルを上げている。*
 
 &nbsp;
 
-Even now, many villagers are patrolling in and out of the forest, keeping a watchful eye on things, and if there is anything out of the ordinary, an alarm should immediately sound in the village.
+Even now, many villagers were patrolling inside and outside the forest, keeping a watchful eye, and if there were any abnormalities, an alarm would immediately sound in the village.
 
 *今も多くの村人が森の中へ外へと巡回し目を光らせ、異常があれば直ちに村に警報が響く筈だ。*
 
@@ -353,7 +352,7 @@ Even now, many villagers are patrolling in and out of the forest, keeping a watc
 
 &nbsp;
 
-（Maybe something slipped through the net.)
+(There may be something that has slipped through the security net.)
 
 *（警戒網から抜けたモノが居るのかもしれんな）*
 
@@ -361,41 +360,41 @@ Even now, many villagers are patrolling in and out of the forest, keeping a watc
 
 &nbsp;
 
-Howard stopped the carriage in alarm.
+Howard, on guard, stopped the carriage.
 
 *ハワードは警戒しつつ馬車を停めた。*
 
-Just before the fence breaks and the path extends into the woods at a crossroads.
+He was just before a T-junction where the fence ended and the road extended into the forest.
 
 *ちょうど柵が途切れ、森の中へと道が伸びる丁字路の手前だ。*
 
-He placed his sunshade hat on the seat and got out of the carriage with his beloved sword in hand.
+He placed his sun hat on the seat, drew his beloved sword, and got off the carriage.
 
 *日除け帽を座席に置き、愛用の剣を手に馬車を降りた。*
 
 &nbsp;
 
-He tells the horses to stay where they are and stops the wheels of the carriage.
+He instructed the horse to stay put and stopped the carriage's wheels.
 
 *馬にこの場で留まるよう言い含め、馬車の車輪を止める。*
 
-The horse, named Regulus, has been with us for more than 20 years now.
+This horse, named Regulus, had been with him for over 20 years.
 
 *レグルスと言う名のこの馬はもう20年以上共に過ごしている。*
 
 &nbsp;
 
-He must be quite old for a person his age.
+In human years, it must be quite old.
 
 *人の年齢にすれば結構な歳の筈だ。*
 
-I think as I stroke the fine scratches on the scales of his paws.
+As he stroked the fine scars on its front legs, he thought.
 
 *前脚の鱗の細かい傷を撫でながら思う。*
 
 &nbsp;
 
-The horse, which had been with Howard for a long time and was exceptionally smart, made eye contact with Howard's words and began to graze on the grass at his feet.
+Having been together for so long, this exceptionally intelligent horse seemed to understand Howard's words, meeting his gaze and starting to nibble on the grass at its feet.
 
 *付き合いが長い上、殊の外賢いこの馬はハワードの言葉が分ったとばかりに目を合わせ、足元の草を食み始めた。*
 
@@ -403,7 +402,7 @@ The horse, which had been with Howard for a long time and was exceptionally smar
 
 &nbsp;
 
-(If I leave the wagon here, someone on patrol will soon find it and realize that I entered the forest from here. It would be quicker if August found me.)
+(If I leave the carriage here, someone on patrol will soon find it and realize that I have entered the forest from here. It would be quick if August found it.)
 
 *（馬車をここへ止めて置けば、程なく見回りの誰かが見つけ、ワシがここから森へ入った事に気付くだろう。オーガスト辺りが見つけてくれれば話しは早いのだがな）*
 
@@ -411,43 +410,43 @@ The horse, which had been with Howard for a long time and was exceptionally smar
 
 &nbsp;
 
-With this in mind, Howard enters the forest with his beloved sword at his waist.
+Thinking such things, Howard, with his sword at his waist, entered the forest.
 
 *そんな事を考えながらハワードは、腰に愛剣を携え森へと入って行く。*
 
 &nbsp;
 
-This path leads into the forest for about 100 meters to a small clearing.
+This path leads about 100 meters into the forest and opens into a small clearing.
 
 *この道は森の中へ100メートル程進むと、ちょっとした広場に出る。*
 
-The villagers had cleared the area in a circle with a radius of about 10 meters.
+It was a place cleared by the villagers in a circular shape with a radius of about 10 meters.
 
 *村人達で半径10メートル程の円形に拓いた場所だ。*
 
 &nbsp;
 
-This is the relay point when they are on alert in the forest, or in some cases, as a battle point, battles with demonic beasts take place.
+This serves as a relay point for vigilance in the forest and, depending on the situation, battles with magical beasts may also take place here.
 
 *ここが森の中で警戒に当たる時の中継点となったり、場合によってはバトルポイントとして魔獣との戦闘も行われる。*
 
 &nbsp;
 
-These places are everywhere in the forest.
+Such places are scattered throughout the forest.
 
 *こういった場所は森の彼方此方に在る。*
 
-A road extended from here to the east and west, and a plaza similar to this place was built at the end of the road.
+From here, paths extend east and west, leading to similar clearings further ahead.
 
 *ココからも東西に道が伸び、その先にこの場所と同じような広場が作られていた。*
 
-They are spread out in the forest like an ant's nest, every 500 meters to 1 kilometer.
+They are spread throughout the forest like an ant nest, every 500 meters to 1 kilometer apart.
 
 *500メートルから1キロ置きに、アリの巣のように森の中に広げているのだ。*
 
 &nbsp;
 
-Howard stepped into the square.
+Howard stepped into that clearing.
 
 *ハワードはその広場の中へ足を踏み入れた。*
 
@@ -455,7 +454,7 @@ Howard stepped into the square.
 
 &nbsp;
 
-（Well, thankfully they didn't attack me on the way here, but I guess that means they're watching us, too. Hmmm...3, or is there 4? No, there's something unusual about the presence. It's clearly different from that of a small fish...!)
+(There are indeed some... Thankfully, nothing attacked me on the way here... Are they watching me? Hmm... Three? No, there are four? This is bad; the presence is unusual. It's clearly different from that of weaklings...!)
 
 *（居るな…有難い事に途中の道すがら襲って来る事が無かったが…向こうも様子を見ていると云う事か？ふむ…3？いや、4は居るか？イカンな、気配が尋常では無いぞ。雑魚のそれとは明らかに違う…！）*
 
@@ -463,35 +462,35 @@ Howard stepped into the square.
 
 &nbsp;
 
-It's almost noon, the sun is high and the sun is shining brightly.
+It was nearing noon, and the sun was high, shining brightly.
 
 *そろそろ昼に差し掛かる頃だ、陽は高く日差しは眩しい。*
 
-But the forests of Amkam are deep.
+However, the Amukam Forest is deep.
 
 *だがアムカムの森は深い。*
 
-There are many places where the sun does not reach even at this hour.
+Even at this time, there are many places where sunlight does not reach.
 
 *この時間でも陽が届かぬ場所も多い。*
 
-However, there is ample sunlight in this plaza.
+Yet, this clearing received ample sunlight.
 
 *しかし、この広場には十分な陽が差し込んでいる。*
 
 &nbsp;
 
-Therefore, the shadows of the trees make it even more difficult to see what is behind them.
+That is why the shadows of the trees made it even harder to see the figures lurking deeper within.
 
 *だからこそ樹木の陰がなお一層、その奥に居るモノの姿を見辛くする。*
 
 &nbsp;
 
-I know there is something moving, and there is also the sound of something heavy being dragged along.
+He could sense movement; he heard the sound of something heavy dragging.
 
 *動いている物がいるのが分る、ズルッズルと重い何かを引き摺るような音もする。*
 
-Two pairs of red eyes glow.
+Two pairs of red eyes glowed.
 
 *2対の赤い目が光る。*
 
@@ -499,7 +498,7 @@ Another pair nearby.
 
 *その近くにもう一対。*
 
-There is another pair a little further away, and another pair beside them.
+Further away, another pair, and yet another pair close by.
 
 *更に少し離れた場所にも一対、そしてその傍にもう一対。*
 
@@ -507,7 +506,7 @@ There is another pair a little further away, and another pair beside them.
 
 &nbsp;
 
-(Noooo...four of them...no? No!)
+(Hmm. Four creatures... No? That's not right!)
 
 *（ぬぅ。4体か…いや？違うな！）*
 
@@ -515,37 +514,37 @@ There is another pair a little further away, and another pair beside them.
 
 &nbsp;
 
-One of them slowly emerges into the square.
+One of them slowly revealed itself in the clearing.
 
 *その内の一体がゆっくりと広場の中へ姿を現す。*
 
-It's a giant snake with red eyes.
+It was a giant snake with red eyes.
 
 *赤い目を持つ巨大な蛇だ。*
 
-The neck circumference is about 50 cm in diameter? It looks like it could swallow an adult as it is.
+Its neck was about 50 centimeters in diameter. It looked like it could swallow an adult whole.
 
 *首回りは直径50センチ程か？大人をそのまま呑み下せそうだ。*
 
-Another head with its thick neck. It is split off from the torso and protrudes.
+There was another head branching off from its thick neck.
 
 *その太い首を持つ頭がもう一つ。胴体から分れて出ている。*
 
-Two Head Boa" is the name of this magical beast.
+This magical beast was called the "Two-Headed Boa."
 
 *『ツーヘッド・ボア』この魔獣の呼び名だ。*
 
 &nbsp;
 
-The body supporting the two necks is thick and flat.
+The body supporting the two heads was thick and flat.
 
 *2つの首を支える胴体は太く平たい。*
 
-It is about two meters long, with a thin tail extending about one meter from its thick body.
+It was about 2 meters long, with a slender tail extending about 1 meter.
 
 *長さは2メートル程、その太い胴体から細くなった尻尾が1メートル程伸びている。*
 
-At the tip of it protruded a venomous yellow thorn, clearly a poisonous needle.
+At the tip of that tail, a poisonous yellow thorn protruded, clearly identifiable as a venomous spike.
 
 *その先端には毒々しい黄色の棘が、明らかに毒針と分る棘が突き出していた。*
 
@@ -553,7 +552,7 @@ At the tip of it protruded a venomous yellow thorn, clearly a poisonous needle.
 
 &nbsp;
 
-（I'm out! This is not good. Two Head Boa" is a magical beast that lives deeper than the middle layer. It's too much for the young guys to handle in the shallow layer. Even I am in a bad situation with my current equipment. But if the kids run into one, we can't take back what we lost!)
+(I was careless! This is bad. The "Two-Headed Boa" is a magical beast found in deeper layers. It's too much for younglings who only deal with shallow layers. Even I am in a precarious situation with my current equipment. But if the children were to encounter this, it would be disastrous!)
 
 *（抜かったわ！これは不味いぞ。『ツーヘッド・ボア』など中層以上の深い所にいる魔獣だ。浅層相手の若造どもでは荷が重すぎる。ワシとて今の装備だけでは相当にまずい。だが子供らが出くわしでもしたら取り返しがつかん！）*
 
@@ -561,43 +560,43 @@ At the tip of it protruded a venomous yellow thorn, clearly a poisonous needle.
 
 &nbsp;
 
-He puts his hand on the sword at his waist.
+He placed his hand on the sword at his waist.
 
 *腰の剣に手を当てる。*
 
-It's a longsword that I've used for years.
+It was a long sword he had used for many years.
 
 *長年使いこんだロングソードだ。*
 
-We are confident that we can compete with our mid-tier opponents.
+He had enough confidence to face opponents from the middle layers.
 
 *中層の相手にも十分太刀打ちできる自信はある。*
 
 &nbsp;
 
-But the "two-headed bore" is tricky.
+However, the "Two-Headed Boa" was troublesome.
 
 *だが『ツーヘッド・ボア』は厄介だ。*
 
-Two heads with ravenous fangs attack separately in coordination.
+With two heads bearing venomous fangs, they would coordinate and attack separately.
 
 *猛毒の牙を持つ頭が二つ、連携を取って別々に襲って来る。*
 
-If a human being is exposed to its poison, he or she will die in less than half an hour.
+If one were to be bitten by its poison, a human would not last half a moment before succumbing to death.
 
 *その毒にやられれば人間など半時も持たず死に至るだろう。*
 
 &nbsp;
 
-And then there's the poisonous stinger in the tail, which attacks from the other direction when you're focused on the head.
+And then there were the poisonous spikes on its tail; while focusing on the heads, it could attack from another direction.
 
 *そして尾の毒針だ、頭に意識を向けていると別の方向から襲って来る。*
 
-The poison is not immediately lethal, but it causes paralysis and deprives the body of its freedom.
+That poison would not lead to immediate death, but it would cause paralysis and rob the body of its freedom.
 
 *その毒は直ちに死に至るモノでは無いが、麻痺を引き起こし身体の自由を奪う。*
 
-It is not something to be taken lightly.
+It was not to be underestimated.
 
 *甘く見られるモノでは無い。*
 
@@ -605,35 +604,35 @@ It is not something to be taken lightly.
 
 &nbsp;
 
-In effect, the battle with the "two-headed boa" is the same as a three-on-one fight.
+In reality, fighting the "Two-Headed Boa" was like a 3-on-1 battle.
 
 *実質『ツーヘッド・ボア』との戦闘は3対1の戦いと同じだ。*
 
-They are not so naive that they can be defeated without being attacked at all.
+It was not an easy opponent that could be defeated without taking any damage.
 
 *攻撃を全く受け切らずに倒せるほど甘い相手ではない。*
 
-We need armor that can shrug off the poisonous fangs.
+Protective gear that could withstand its venomous fangs was necessary.
 
 *毒牙をしのげる防具は必要だ。*
 
 &nbsp;
 
-That's two of them. This is like a six-on-one fight.
+With two of them, it was like a 6-on-1 fight.
 
 *それが2体。これは6対1の戦いのような物だ。*
 
-Essentially, the right thing to do in this situation would be to flee immediately.
+Under normal circumstances, the correct action would be to flee immediately.
 
 *本来、この状況なら直ちに逃げ出すのが正解だ。*
 
-A head-on battle is insane.
+Engaging in a frontal battle was madness.
 
 *正面からの戦闘など正気の沙汰ではない。*
 
 &nbsp;
 
-But Howard took off his jacket and drew his longsword.
+But Howard discarded his jacket and drew his long sword.
 
 *だがハワードは上着を脱ぎ捨て、ロングソードを引き抜いた。*
 
@@ -641,7 +640,7 @@ But Howard took off his jacket and drew his longsword.
 
 &nbsp;
 
-(It's not like they're going to let us go anyway...)
+(After all, it doesn't seem like they will let me escape...)
 
 *（どうせ逃がしてくれそうには無いしな…）*
 
@@ -649,81 +648,81 @@ But Howard took off his jacket and drew his longsword.
 
 &nbsp;
 
-Another boa appeared a short distance away into the plaza.
+Another boa appeared from a slightly distant spot and entered the clearing.
 
 *もう一匹のボアが、少し離れた場所から広場へ姿を現した。*
 
-The double-headed one spreads out to the left and right, blocking the way, and comes at you from both sides as if to pinch you.
+It spread its two heads wide, blocking Howard's path, and approached him from both sides.
 
 *双頭を左右に広げ行く手を遮り、左右から挟み込むように迫って来る。*
 
 &nbsp;
 
-Then we must do it.
+Then, he had no choice but to fight.
 
 *ならば、やらずばなるまいよ。*
 
 &nbsp;
 
-and poised his longsword as if he were carrying it on his shoulder, and then he sat back down.
+He shouldered his long sword and lowered his stance.
 
 *とロングソードを肩へ担ぐように構え、腰を落とした。*
 
 &nbsp;
 
-Move before you get caught in the middle!
+He had to move before they could surround him!
 
 *挟み込まれる前に動く！*
 
 &nbsp;
 
-Kick the ground and in one breath, enter the bore on the right side, in time for the first one to appear.
+He kicked the ground and lunged toward the right boa, entering the range of the first one.
 
 *地を蹴り一息で右側のボアへ、最初に現れた方の間合いへ入り込む。*
 
 &nbsp;
 
-The longsword was brought down vigorously right in front of the right neck and slashed directly to the left side.
+He swung the long sword down vigorously in front of the right head and then slashed upward to the left.
 
 *ロングソードを右の首の目の前で勢いよく下に降ろし、そのまま左側へ斬り上げた。*
 
-The blade sharply slashed the left side of the neck at the throat.
+The blade sharply cut through the throat of the left head.
 
 *刃は鋭く左の首の喉元を切り裂いた。*
 
 &nbsp;
 
-It was not severed, but the weight of the neck caused it to buckle backwards and nearly shredded it.
+It did not sever it completely, but the weight of the head caused it to lean back, nearly tearing off.
 
 *切断には至らないが首の重さで後ろに仰け反り、千切れかけだ。*
 
-He continued to rotate his body and went around the back of the boa from the side of the shredded neck.
+Without losing momentum, he spun his body and circled around to the back of the boa, beside the nearly severed head.
 
 *そのまま体を回転させ、千切れかけの首の側からボアの後ろ側に回り込んだ。*
 
 &nbsp;
 
-Without killing the momentum, he swung his longsword and slammed it into the base of the poison needle.
+Without losing his speed, he raised the long sword and struck down at the base of the poisonous tail.
 
 *勢いを殺さずそのままで、ロングソードを振りかぶり毒針の付け根へ叩き付けた。*
 
-The remaining head turns its head to the back side in pain and anger at having its tail severed.
+The pain and anger from having its tail severed caused the remaining head to turn toward its back.
 
 *尾を断ち切られた痛みと怒りで、残った首が背中側に首を向ける。*
 
 &nbsp;
 
-But Howard doesn't waste any time, swinging his longsword horizontally from the left side.
+But Howard did not hesitate and swung the long sword horizontally from the left side.
 
 *だがハワードは間髪入れずロングソードを左側から水平に振り切る。*
 
-This time the boa's head fell clean off.
+This time, the boa's head was cleanly severed.
 
 *今度は綺麗にボアの首が落ちた。*
 
 &nbsp;
 
-The series of actions were fluidly executed in the blink of an eye.
+He executed the entire series of movements fluidly, all in the span of a brief moment.
 
 *一連の動作を流れるように、ほんの一瞬きの間にやってのけた。*
 
@@ -731,13 +730,13 @@ The series of actions were fluidly executed in the blink of an eye.
 
 &nbsp;
 
-The other boa followed immediately after Howard moved and tried to attack him from behind, but was unable to attack him because he was immediately behind the first one.
+The other boa, having followed Howard's movement, tried to attack him from behind, but it quickly lost its target as Howard hid behind the first one.
 
 *もう一匹のボアはハワードが動いた直後に後を追い、後ろから襲いかかろうとしたが、すぐさま一匹目の陰に彼が隠れてしまった為、攻めあぐねてしまった。*
 
 &nbsp;
 
-Now he is alert and angry, opening his mouth to show his fangs and making menacing noises, keeping time with Howard.
+Now, it was showing its vigilance and anger, baring its fangs and making threatening sounds while gauging the distance to Howard.
 
 *今は警戒と怒りを露わにし、口を開いて牙を見せつけながら威嚇音を出し、ハワードと間合いを取り合っている。*
 
@@ -745,7 +744,7 @@ Now he is alert and angry, opening his mouth to show his fangs and making menaci
 
 &nbsp;
 
-(Well, I say we're even!)
+(Well then, this makes it even!)
 
 *（さて、これでイーブンと云う訳だ！）*
 
@@ -753,41 +752,41 @@ Now he is alert and angry, opening his mouth to show his fangs and making menaci
 
 &nbsp;
 
-Turn a desperate situation upside down.
+He turned the dire situation around.
 
 *絶体絶命の状況をひっくり返す。*
 
-It's really painful.
+It was truly exhilarating.
 
 *実に痛快だ。*
 
-My mouth hangs open.
+He couldn't help but grin.
 
 *思わず口元が吊り上る。*
 
-He measures the distance around the bore by turning the tip of his longsword with his right and left hand.
+He twirled the tip of his long sword, measuring the distance as he circled around the boa.
 
 *クルリクルリとロングソードの切っ先を右で、左で回しながらボアを回り込むように距離を測って行く。*
 
 &nbsp;
 
-And then something moved at the edge of my vision.
+Then, something moved at the edge of his vision.
 
 *と、視界の端で何かが動いた。*
 
-I saw something pop out from behind a tree to my left.
+He saw something leap out from the shadows of the left trees.
 
 *左の樹木の陰から何かが飛び出して来たのが見えた。*
 
-The Grey Wolf.
+It was a "Gray Wolf."
 
 *『グレイ・ウルフ』だ。*
 
-It is a large, dark-gray wolf monster with long spines on its back.
+A large dark gray wolf-like magical beast with a long mane on its back.
 
 *背中に長いタテガミを生やしたダークグレイの大型狼の魔獣だ。*
 
-This guy is supposed to be in the middle tier or above.
+It should also be found in the middle layers.
 
 *コイツも本来は中層以上に居る筈だ。*
 
@@ -795,7 +794,7 @@ This guy is supposed to be in the middle tier or above.
 
 &nbsp;
 
-(Oh, no! I misjudged the signs! I knew there were three of them!)
+(I messed up! I misjudged the presence! There were indeed three creatures!)
 
 *（しまった！気配を見誤った！やはり3体居たのか！）*
 
@@ -803,63 +802,63 @@ This guy is supposed to be in the middle tier or above.
 
 &nbsp;
 
-Gray Wolf jumped straight at Howard's neck.
+The Gray Wolf lunged straight for Howard's neck.
 
 *グレイウルフは、真っ直ぐハワードの首筋目掛けて飛び掛って来た。*
 
-Its body is over two meters long.
+Its body exceeded 2 meters in length.
 
 *その身体は2メートルを超えている。*
 
 &nbsp;
 
-Even a physical hit is fatal.
+Just being tackled would be fatal.
 
 *体当たりされただけでも致命的だ。*
 
-Howard quickly falls over and ducks, but his claws gouge his left bicep through the top of his shirt.
+Howard instinctively dropped his body to evade, but its claws gouged into his left upper arm through his shirt.
 
 *ハワードは咄嗟に身体を倒して躱すが、その爪が左の二の腕をシャツの上から抉って行く。*
 
-Gray wolf claws are also hard and vicious.
+The Gray Wolf's claws were hard and vicious.
 
 *グレイウルフの爪も硬く凶悪だ。*
 
 &nbsp;
 
-He swung his longsword under Wolf's body as he fell over the body.
+As he fell, he swung his long sword beneath the wolf's body.
 
 *身体を倒しながらウルフの身体の下でロングソードを振り切った。*
 
-The blade slices straight across the wolf's belly, spilling its guts.
+The blade sliced through the wolf's belly horizontally, spilling its entrails.
 
 *刃はそのままウルフの腹を真横に切り裂き臓物を零れ落とさせる。*
 
-Just before my back touched the ground, I felt something close to my feet.
+Just before his back hit the ground, he felt something approaching his feet.
 
 *背が地に着く直前、何かが足元に迫って来るのを感じた。*
 
 &nbsp;
 
-I tried to duck, but I was too late, and I felt a gouge in the flesh above my left ankle.
+He tried to dodge, but it was too late; he felt the flesh above his left ankle being gouged.
 
 *躱そうとするが間に合わない、左の踝の上の肉が抉られたのが分った。*
 
 &nbsp;
 
-Ggh!"
+"Ugh!!"
 
 *「ぐっ！！」*
 
 &nbsp;
 
-As soon as his body hit the ground, he rolled his body to distance himself from the boa and immediately raised himself up.
+As his body hit the ground, he rolled away from the boa to create distance and quickly got back on his feet.
 
 *身体が地面に着くと同時に身体を転がしボアから距離を取り、すぐさま体を起こした。*
 
 &nbsp;
 
-The boa's poisonous needle had attacked Howard's left leg.
+The boa's poisonous spike was attacking Howard's left leg.
 
 *ボアの毒針がハワードの左足を襲っていた。*
 
@@ -867,7 +866,7 @@ The boa's poisonous needle had attacked Howard's left leg.
 
 &nbsp;
 
-（What's even? You careless bastard! I'm on a roll!)
+(What do you mean even? You fool! You got carried away!)
 
 *（何がイーブンかっ！この粗忽者がっ！調子に乗ったわ！！）*
 
@@ -875,11 +874,11 @@ The boa's poisonous needle had attacked Howard's left leg.
 
 &nbsp;
 
-He reprimands himself for not being alert to his surroundings.
+He scolded himself for neglecting to be vigilant.
 
 *周りへの警戒を怠った己を叱責する。*
 
-I already have no feeling from the left shin down.
+He had already lost feeling in his left leg below the knee.
 
 *既に左の脛から下の感覚が無い。*
 
@@ -887,7 +886,7 @@ I already have no feeling from the left shin down.
 
 &nbsp;
 
-(It's hard to say "while avoiding...". (It is difficult to say "while avoiding...", because the force of the blow may not be enough and it is impossible to avoid. Then let's give him a fatal blow. We can't let this thing go out unscathed!)
+(Dodging... is difficult. My power isn't enough, and I can't evade completely. Then, I'll just have to deal a fatal blow right here. I can't let this thing escape unscathed!)
 
 *（避けながら…と云うのは難しいな。一撃の力が足りんだろうし避けきれん。ならばこのまま致命の一撃をくれてやろう。コイツを無傷で外に出す訳にはいかん！）*
 
@@ -895,39 +894,39 @@ I already have no feeling from the left shin down.
 
 &nbsp;
 
-Howard sits down on the spot, holds his longsword to the left so that the tip of the longsword is on the ground, and gathers his strength.
+Howard crouched down, positioning the tip of his long sword on the ground to the left, gathering his strength.
 
 *ハワードはその場で腰を落とし、ロングソードの切っ先を地に付けるように左に構え、力を溜める。*
 
-I can hardly feel my left arm, and I sharpened all my nerves in order to swing the longsword with my body as it is.
+He could hardly feel his left arm; he focused all his senses to swing the long sword.
 
 *左腕の感覚も殆ど無い、このまま身体を発条にしてロングソードを振り切る為に、全神経を研ぎ澄ました。*
 
 &nbsp;
 
-Now that the prey has stopped moving, the boa is ready to finish it off at once.
+As the prey stopped moving, the boa lunged at Howard.
 
 *獲物が動きを止めた事で、ボアは一気に仕留めにかかる。*
 
-It opened its two-headed mouth and pointed it at Howard, closing the distance at once to thrust its venomous fangs into him.
+Opening its double mouths, it rushed toward him to stab its venomous fangs.
 
 *双頭の口を開きハワードへ向け、その毒牙を突き立てようと一気に距離を縮めて来た。*
 
 &nbsp;
 
-Howard's muscles creak, and he sinks deeper to measure the moment of release.
+Howard's muscles creaked as he sank deeper, timing the moment to unleash his attack.
 
 *ハワードはギシリと筋肉を軋ませ、解き放つ瞬間を計る為、更に身体を深く沈める。*
 
 &nbsp;
 
-However, he is dragged down by his left leg, which has lost all sensation, and his position is slightly disoriented.
+However, he was dragged down by his left leg, slightly losing his balance.
 
 *しかし、感覚の無くなった左脚に引き摺られ、僅かに体勢が崩れてしまう。*
 
 &nbsp;
 
-Boa leaped at him, but Howard was slow to make the initial move.
+The boa leaped at him, but Howard's initial movement was delayed.
 
 *ボアが躍りかかるが、ハワードは初動が遅れてしまった。*
 
@@ -935,15 +934,15 @@ Boa leaped at him, but Howard was slow to make the initial move.
 
 &nbsp;
 
-One step before the boa's fangs reach Howard.
+Just before the boa's fangs reached Howard,
 
 *ボアの牙がハワードへ届く一歩前。*
 
-Suddenly, a spear was thrust between them.
+a spear suddenly pierced the ground between them.
 
 *突然、槍が両者の間に突き刺さった。*
 
-Boa was startled by something stuck in the tip of his nose and was momentarily frightened.
+The boa flinched at the object that pierced its nose, momentarily stunned.
 
 *ボアは鼻先に刺さった物に驚き一瞬怯んだ。*
 
@@ -951,7 +950,7 @@ Boa was startled by something stuck in the tip of his nose and was momentarily f
 
 &nbsp;
 
-(Spear? No, a branch? This is a branch!)
+(A spear? No, a branch?! This is a tree branch!)
 
 *（槍？いや、枝か？！これは木の枝だっ！）*
 
@@ -959,37 +958,37 @@ Boa was startled by something stuck in the tip of his nose and was momentarily f
 
 &nbsp;
 
-Not missing that scare, Howard unleashes his power.
+Seizing the opportunity of its momentary hesitation, Howard released his strength.
 
 *その怯みを逃さず、ハワードが力を解き放つ。*
 
-Aim for the bottom of the neck, where this guy's heart is.
+He aimed for the area beneath the neck where its heart was located.
 
 *狙うは首の生え際の下、コイツの心臓のある場所だ。*
 
-The longsword is unleashed and powerfully cleaved horizontally.
+The long sword was swung powerfully and horizontally.
 
 *ロングソードは解き放たれるまま、力強く水平に薙ぎ払われる。*
 
 &nbsp;
 
-Both of the branches and the boa's torso were cut in two.
+Along with the piercing branch, he cleaved the boa's body in two.
 
 *突き立つ枝諸共ボアの胴体を両断した。*
 
 &nbsp;
 
-The body, split in two, writhes and thrashes about in agony, but the heartless body soon stops moving.
+The severed body writhed in agony, thrashing about, but without its heart, it soon ceased to move.
 
 *二つに分かれた身体は苦しげにその身を暴れさせ、のた打ち回るが心臓を失った身体は直ぐに動きを止めて行く。*
 
 &nbsp;
 
-Howard ran out of strength and collapsed in place.
+Howard exhausted his strength and collapsed to the ground.
 
 *ハワードは力を使い果たし、その場に倒れ込んだ。*
 
-The love sword also left his hand and fell to the side as if lined up.
+His beloved sword slipped from his hand and fell beside him.
 
 *愛剣もその手を離れ、並ぶように横へ落ちた。*
 
@@ -997,7 +996,7 @@ The love sword also left his hand and fell to the side as if lined up.
 
 &nbsp;
 
-(Oh no, I have to comfort Sonia. I shouldn't be lying here... but I can't feel my lower half anymore...)
+(This is bad; I need to comfort Sonia. I shouldn't be lying here like this... I can't feel my lower body anymore...)
 
 *（いかんなぁ、ソニアを慰めてやらねばならんのに。こんな所で寝てる場合では無いんだが…もう下半身の感覚がないわ…）*
 
@@ -1005,81 +1004,81 @@ The love sword also left his hand and fell to the side as if lined up.
 
 &nbsp;
 
-I was lying on my back, soaking up the sunlight, looking at the blue sky and thinking about that... but...
+Lying on his back, basking in the sunlight, he gazed at the blue sky and thought such things... when suddenly, he felt something move above his head.
 
 *仰向けになり日差しを浴びながら、青い空を眺めてそんな事を考えていた…が。*
 
 &nbsp;
 
-Suddenly, I felt something move above my head.
+He briefly felt alarmed,
 
 *フッと頭の上で何かが動く気配を感じた。*
 
-I was momentarily alarmed that he was still there, but it appeared to be a person.
+thinking it might still be there, but it seemed to be a person.
 
 *まだ居たのかと一瞬警戒したが、どうやら人のようだ。*
 
-The person came up to Howard, kneeled down, brought his face close to Howard's, and called out to him.
+The figure knelt beside Howard, leaning in close and speaking to him.
 
 *その人物はハワードの傍らまで来て膝を突き、顔を近づけ声を掛けて来た*
 
 &nbsp;
 
-"Are you sure...?"
+"Are you... okay?"
 
 *「ダイジョブ・・・です・・・か？」*
 
 &nbsp;
 
-Howard's breath caught for a moment as the figure entered his vision.
+When Howard saw the figure in his line of sight, his breath momentarily stopped.
 
 *視界にその人影が入った時、ハワードの息が一瞬止まった。*
 
 &nbsp;
 
-For a moment, I thought I saw someone overlapping with that shadow looking up.
+In that instant, he felt as if he saw someone overlapping with the shadow looking down at him.
 
 *刹那の間、見上げるその影に重なる人物を見た気がしたのだ。*
 
 &nbsp;
 
-(...! Oh no! Lavi? No way?)
+(...! No way! Ravi?! Could it be?!!)
 
 *（…！そんな！ラヴィ？！まさか？！！）*
 
 &nbsp;
 
-But I reminded myself that there is no such thing.
+But he quickly dismissed such thoughts.
 
 *だが、そんな事はある筈が無い…と思い直す。*
 
 &nbsp;
 
-The momentary illusion vanished and I saw the girl there.
+The fleeting illusion vanished, revealing a girl before him.
 
 *一瞬の幻影は消え去り、少女の姿をそこに見た。*
 
-A girl with bright, shiny red hair peeks out with cobalt green eyes that shimmer like crystal and asks anxiously, "What's going on?
+A girl with brilliantly shining red hair, peering down with cobalt green eyes that sparkled like crystals, asking with concern.
 
 *鮮やかな輝くような赤い髪の少女が、クリスタルのように煌めくコバルトグリーンの瞳で覗きこみ、心配そうに尋ねて来ているのだ。*
 
 &nbsp;
 
-It's a clear, gentle, lovely voice.
+Her voice was transparent, gentle, and lovely.
 
 *透き通った優しげで愛らしい声だ。*
 
 &nbsp;
 
-The girl's attire is something you don't see around here.
+The girl's attire was unlike anything seen around here.
 
 *その少女の装いはこの辺りでは見ない服装だ。*
 
-It is torn and stained here and there, as if it had wandered in the woods.
+It looked as if she had wandered through the forest, with various rips and dirt all over.
 
 *森の中を彷徨ったようにアチコチ破れたり汚れたりしている。*
 
-The same goes for his arms and legs, and his face is very dirty.
+Her arms and legs were similarly dirty, and her face was quite soiled.
 
 *手足も同様だ、顔も随分汚れている。*
 
@@ -1087,7 +1086,7 @@ The same goes for his arms and legs, and his face is very dirty.
 
 &nbsp;
 
-(A beautiful girl, poor thing, ruined... a stray?)
+(What a beautiful girl, but it's a shame she's in such a state... Is she a lost traveler?)
 
 *（美しい少女なのに可哀相に台無しだ…迷い人か？）*
 
@@ -1095,123 +1094,123 @@ The same goes for his arms and legs, and his face is very dirty.
 
 &nbsp;
 
-The girl then put her hand behind Howard's head.
+Then the girl reached her hand behind Howard's head.
 
 *すると少女はハワードの頭の後ろに手を差し入れた。*
 
 &nbsp;
 
-Hikage... I'm coming... now.
+"I'm going to... take you to the shade... now."
 
 *「ひかげ・・・いきます・・・いま」*
 
 &nbsp;
 
-Then he pulled his body closer.
+Saying this, she pulled him closer.
 
 *そう言って身体を引き寄せた。*
 
 &nbsp;
 
-Howard panics when he realizes that he is about to hug himself.
+Realizing that she was trying to lift him, Howard panicked.
 
 *自分を抱きかかえようとしていると判ったハワードが慌てる。*
 
 &nbsp;
 
-Wait a minute, you can't be alone..."
+"Wait, you can't do this alone..."
 
 *「ま、待ちなさい、一人では…」*
 
 &nbsp;
 
-Howard is 195 cm tall.
+Howard was 195 cm tall.
 
 *ハワードの身長は195cmある。*
 
-He is 62 this year, but he has never neglected his daily workout, and his body is still covered with muscles.
+At 62 years old, he had never neglected his daily training, and his body was still covered in well-defined muscles.
 
 *今年で62だが日々の鍛練は怠った事は無い、その身体は今だ隆々とした筋肉に覆われている。*
 
-It is not something that a very small girl alone can lift.
+There was no way a petite girl could lift him.
 
 *とても小柄な少女一人の力で持ち上がる物では無い。*
 
 &nbsp;
 
-But Howard's concern is not taken into account, as the girl picks him up without hesitation.
+However, disregarding Howard's concerns, the girl lifted him without hesitation.
 
 *しかし、そんなハワードの心配を余所に、少女は何の躊躇いも無く彼を抱き上げる。*
 
-Howard's eyes widen in surprise. He is speechless.
+Howard's eyes widened in surprise, speechless.
 
 *驚き目を見開くハワード。言葉も出ない。*
 
-Noticing Howard's gaze, the girl tilts her head and looks back at him with a curious expression.
+Noticing Howard's gaze, the girl tilted her head slightly, looking back at him with a puzzled expression.
 
 *そんなハワードの視線に気付き、少女はコテンと小首を傾げ不思議そうな顔で見返す。*
 
 &nbsp;
 
-Tottot and lightly carry Howard and lay him gently in the shade.
+She effortlessly carried Howard, gently laying him down in the shade.
 
 *トットットと軽々とハワードを運び、日影に優しく横たえる。*
 
 &nbsp;
 
-Ken... I'll get it... now.
+"I'll... bring the sword... now."
 
 *「けん・・・もってきます・・・いま」*
 
 &nbsp;
 
-With that, he left Howard and went back to where the sword was.
+Saying this, she left to retrieve the sword.
 
 *そう言うとハワードを置いて、剣のある場所まで戻って行った。*
 
 &nbsp;
 
-Ma ......."
+"Wait..."
 
 *「ま……」*
 
 &nbsp;
 
-There may still be hexenbiests around.
+There might still be magical beasts around.
 
 *まだ周りに魔獣がいるかもしれない。*
 
-I tried to warn him so, but I couldn't speak.
+He tried to warn her, but no sound came out.
 
 *そう注意を促そうとしたが声が出ない。*
 
-Paralysis has come around quite a bit.
+The paralysis had spread significantly.
 
 *麻痺がかなり回って来てしまった。*
 
 &nbsp;
 
-A girl picks up a longsword and walks toward us.
+The girl picked up the long sword and walked toward him.
 
 *少女がロングソードを拾い上げ、こちらへ向かって歩いてくる。*
 
-Behind her, a mass of dark gray came rushing out of the shadowy forest toward the girl.
+From the shadows of the dense forest behind her, a dark gray mass leaped toward her.
 
 *その後ろ、陰の濃い森の中からダークグレイの塊が少女へ向かって飛び出して来た。*
 
-Gray Wolf.
+It was the Gray Wolf.
 
 *グレイ・ウルフだ。*
 
 &nbsp;
 
-Oh, ......!"
+"Oh...!"
 
 *「あ……！」*
 
 &nbsp;
 
-Immediately, Howard tried to scream, but his voice was muffled.
+Howard instinctively tried to shout, but no voice came out.
 
 *咄嗟にハワードが叫びを上げようとしたが声が出ない。*
 
@@ -1219,7 +1218,7 @@ Immediately, Howard tried to scream, but his voice was muffled.
 
 &nbsp;
 
-What the heck! I can't believe that my inexperience has caused me to involve even this total stranger's daughter, if only by myself!
+What a disaster! Due to his own incompetence, not only was he in danger, but now this unknown girl was involved too!!
 
 *なんってこった！己が未熟さで自分だけならまだしも、この見ず知らずの娘まで巻き込んでしまうとは！！*
 
@@ -1227,31 +1226,31 @@ What the heck! I can't believe that my inexperience has caused me to involve eve
 
 &nbsp;
 
-What a blunder at the end of a life dedicated to the sword as a Protector.
+What a disgrace for the life he had dedicated to serving as a civil protector.
 
 *護民官として剣を捧げて来た人生の最後で、なんという失態であろうか。*
 
-He bites his lip in exasperation at himself.
+He bit his lip in frustration at himself.
 
 *己に対する憤りで唇を噛み切る。*
 
-At the very moment when it seemed that the fangs were about to reach the girl.
+Just as the wolf's fangs seemed about to reach the girl.
 
 *今まさにその牙が少女へ届くと思われた瞬間。*
 
 &nbsp;
 
-Fluttering, the girl danced.
+The girl suddenly leaped gracefully.
 
 *フワリ、と少女が舞った。*
 
 &nbsp;
 
-Gray Wolf becomes two.
+The Gray Wolf was cleaved in two.
 
 *グレイ・ウルフが二つになる。*
 
-It is separated diagonally from the base of the front legs to the back, and falls forward through the girl's side with the momentum of the leap.
+It was sliced diagonally from the base of its front legs to its back, and it fell forward, propelled by its own momentum, landing in front of the girl.
 
 *前脚の付け根から背中にかけて斜めに切り離され、跳び出した勢いのまま少女の脇を抜け前方に落下する。*
 
@@ -1259,37 +1258,37 @@ It is separated diagonally from the base of the front legs to the back, and fall
 
 &nbsp;
 
-A shiver ran down the spine of my motionless body.
+A shiver ran down Howard's spine as he lay motionless.
 
 *動かぬ体の背筋にゾクリと走る物があった。*
 
 &nbsp;
 
-What a beautiful sword.
+What a beautiful sword technique.
 
 *何と云う美しい剣筋だろうか。*
 
-The sword danced spontaneously, without any pretension or effort.
+There was no strain or tension; the sword danced naturally.
 
 *何の気負いも力みも無くただ自然に剣が舞った。*
 
-The sword blade enters the body as if it were being sucked in, and then slips out without any resistance.
+The blade slid in as if drawn in, passing through without any resistance.
 
 *スッと吸い込まれるように刀身が入り、何の抵抗も無く抜けて行く。*
 
-Was my sword this sharp? No. It is obvious that it is the strength of the wielder.
+Was his sword truly this sharp? No, it was clearly the skill of the wielder.
 
 *自分の剣はこれ程の切れ味を持っていたのだろうか？否、使い手の力量である事は明白だ。*
 
-It is a clear, unclouded movement.
+It was a movement so clear and unclouded.
 
 *一点の曇りも無い澄み切った動きだ。*
 
-How rough your sword is in comparison.
+In comparison, his own swordsmanship felt so rough.
 
 *それに比べ己が剣のなんと荒い事か。*
 
-I will never forget the beautiful light of that flowing tip.
+The glimmer of that flowing blade, that beautiful light, was something he would never forget.
 
 *あの流れるような切っ先の光跡、あの美しい光は忘れられる物では無い。*
 
@@ -1297,19 +1296,19 @@ I will never forget the beautiful light of that flowing tip.
 
 &nbsp;
 
-The hem of her skirt fluttered down as she shook her red hair and followed the fluffy girl's movements.
+The girl's red hair swayed, and her skirt fluttered down as if following her movements.
 
 *赤い髪を揺らし、フワッと少女の動きを追いかけるようにスカートの裾が舞い降りた。*
 
 &nbsp;
 
-"Last... this... is... fine."
+"This is... okay... now."
 
 *「さいご・・・これが・・・だいじょぶ」*
 
 &nbsp;
 
-The girl mutters as she looks down at what used to be Gray Wolf with cool eyes.
+With a calm gaze, the girl looked down at what was once the Gray Wolf and murmured.
 
 *涼しげな眼差しでグレイ・ウルフだった物を見下ろしながら少女が呟く。*
 
@@ -1317,19 +1316,19 @@ The girl mutters as she looks down at what used to be Gray Wolf with cool eyes.
 
 &nbsp;
 
-The girl looks at Howard and huffs.
+Then the girl suddenly noticed Howard and gasped.
 
 *と、少女がハワードを見てハッとする。*
 
 &nbsp;
 
-I'm sorry... poison... afraid... to... find... out.
+"I'm sorry... the poison... took longer... to notice."
 
 *「ごめなさい・・・どく・・・おそなった・・・きづくの」*
 
 &nbsp;
 
-He rushed over to Howard as if in a panic.
+She hurriedly rushed over to Howard.
 
 *慌てたようにハワードの元へ駆け寄って来た。*
 
@@ -1337,13 +1336,13 @@ He rushed over to Howard as if in a panic.
 
 &nbsp;
 
-He kneeled on Howard's left side as he lay down and placed his right palm over the wound in his shin.
+Kneeling beside Howard's left side, she placed her right palm over the wound on his shin.
 
 *横になったハワードの左側で膝を突き、脛の傷口の上へ右の掌を当てた。*
 
 &nbsp;
 
-I'll fix it... I'll fix it... now... wait.
+"I'm going to... heal... it... right away... wait."
 
 *「なおす・・・ます・・・すぐ・・・まって」*
 
@@ -1351,7 +1350,7 @@ I'll fix it... I'll fix it... now... wait.
 
 &nbsp;
 
-(Did you just say you're going to fix me? What the hell is she doing? No way! You think you can use the art of detoxification at such a young age?)
+(Did she just say she's going to heal me? What is this girl planning to do? Could it be! Can she use detoxification techniques at such a young age?)
 
 *（今治すと言ったか？何をする気なのだこの娘は？まさか！この若さで解毒の技が使えると？）*
 
@@ -1359,21 +1358,21 @@ I'll fix it... I'll fix it... now... wait.
 
 &nbsp;
 
-Whatever the girl does, her motionless body can only watch over her.
+Whatever the girl intended to do, Howard could only watch in his immobile state.
 
 *少女が何をするにしても動かぬ体では見守るしかない。*
 
-I can't hear him clearly, but I know he is muttering something.
+He could faintly hear her mumbling something.
 
 *ハッキリとは聞こえないが何やら呟くのが分る。*
 
 &nbsp;
 
-Light gathers between the legs and palms.
+Light gathered between her hands and feet.
 
 *脚と掌の間に光が集まる。*
 
-Howard's eyes widened again in surprise.
+Howard's eyes widened in astonishment once more.
 
 *ハワードの目が再び驚きで見開かれた。*
 
@@ -1381,7 +1380,7 @@ Howard's eyes widened again in surprise.
 
 &nbsp;
 
-(Oh! A healing glow? I didn't know it was really possible for a girl this young to use a light this warm?)
+(Oh! Healing light?! She can truly use it... and with such warmth, this young girl?)
 
 *（おお！癒しの輝きか？！本当に使えるとは…それもこれだけ暖か味のある光を、この歳若い少女が？）*
 
@@ -1389,67 +1388,67 @@ Howard's eyes widened again in surprise.
 
 &nbsp;
 
-Warmth spreads to the left leg, which should have lost sensation.
+He felt warmth spreading through his left leg, which had lost sensation.
 
 *感覚が無くなった筈の左脚に暖か味が広がる。*
 
-The warmth of the warmth circulates through the entire body.
+Slowly, he could feel that warmth circulating throughout his body.
 
 *ユックリとその温かさが全身を廻るのが分る。*
 
-The soft warmth sinks into the area of my left arm that was gouged out by the Wolf, as well as the lips I just bit off.
+The soft warmth seeped into the area where the wolf had bitten his left arm and even into the lip he had bitten earlier.
 
 *左腕のウルフに抉られた部分にも、先程噛み切った唇も、柔らかい温かさが沁みて行く。*
 
-I feel my whole body relaxing and my body becoming more at ease.
+He felt all the tension leave his body, and he relaxed.
 
 *全身から力が抜け、身体が楽になって行くのを感じる。*
 
 &nbsp;
 
-Suddenly, the light disappeared and a sense of reality returned to my body.
+Suddenly, the light vanished, and reality returned to his senses.
 
 *フッと光が消え身体に現実の感覚が戻って来た。*
 
 &nbsp;
 
-I... fixed... it... successfully.
+"I was able to... heal it... successfully."
 
 *「うまく・・・なおす・・・できました」*
 
-The girl breathed a sigh of relief and turned a happy smile to Howard.
+The girl sighed in relief, looking at Howard with a joyful smile.
 
 *少女がホッとしたように息をつき、嬉しそうな笑顔をハワードへ向けた。*
 
 &nbsp;
 
-"Oh, it moves, no scratches. Awesome."
+"Oh, I can move, and the wounds... are gone. Amazing."
 
 *「おお、動く、傷も…無い。凄いな」*
 
 &nbsp;
 
-Howard raised himself up and confirmed that the paralysis was gone from his body and that he could move.
+Howard sat up, confirming that the paralysis had lifted and he could move.
 
 *ハワードが身を起こし、身体から麻痺が取れ動ける事を確認した。*
 
-He touches his arms and legs and marvels at the fact that the scars are gone.
+He touched his arms and legs, astonished to find that the wounds had disappeared.
 
 *腕と脚にも触れ、傷が無くなっている事に感嘆する。*
 
 &nbsp;
 
-Many children this age can use healing techniques to speed the healing of wounds and alleviate pain.
+Healing techniques that speed up wound recovery and reduce pain can be used by many children of this age.
 
 *傷の治しを早め苦痛を軽減する癒しの技なら、このくらいの歳の子供でも使える者は少なくない。*
 
 &nbsp;
 
-However, only a well-trained priest could handle the healing techniques that completely heal wounds, detoxify them, and even allow them to move at a moment's notice.
+However, a healing skill that completely heals wounds, neutralizes poison, and even allows for immediate movement can only be performed by a properly trained priest.
 
 *だが傷を完治させ解毒を行い、あまつさえ直ぐさま動けるようにする治癒の技など、しっかりとした訓練を受けた神官でなくては扱えない。*
 
-Once again, I looked at the girl in amazement.
+He looked at the girl with renewed astonishment.
 
 *改めて驚きの目で少女を見た。*
 
@@ -1457,53 +1456,53 @@ Once again, I looked at the girl in amazement.
 
 &nbsp;
 
-Thank you, you've been a big help."
+"Thank you; I owe my life to you."
 
 *「ありがとう、君のおかげで助かった」*
 
 &nbsp;
 
-The girl is smiling happily.
+The girl smiled happily.
 
 *少女が嬉しそうに微笑んでいる。*
 
 &nbsp;
 
-'And who are you, then? I don't think you are a simple man, with your swordsmanship and healing. Where in the world did you come from? No, you are not from this country, are you?
+"By the way, who are you? Your swordsmanship and healing abilities are far from ordinary. Where do you come from? No, you are not from this country, are you?"
 
 *「それにしても、君は何者なんだね？剣技も癒しも、とても只者とは思えん。一体何処から来たのかね？いや、そもそもこの国の者ではないね？」*
 
 &nbsp;
 
-The girl seems to have frozen in her smile.
+The girl seemed to freeze, still smiling.
 
 *少女が微笑みのまま固まったようだ。*
 
 &nbsp;
 
-I'm sorry. I haven't even introduced myself yet, and you've been asking me a lot of questions in rapid succession. I'm Howard Cloud, and as you can see, I'm a rotting old geezer. I would like to thank you once again. Thank you, you saved my life."
+"Oh, I apologize. I shouldn't have bombarded you with questions without introducing myself first... I am Howard Cloud, a decrepit old man as you can see. I want to thank you again. Thanks to you, I have been saved."
 
 *「あっと、すまない。自己紹介もまだなのに立て続けに色々聞いてしまったね…。ワシはハワード・クラウドという、見ての通りくたばり損ないの老骨だ。改めてお礼を言わせて頂くよ。ありがとう、君のおかげで命を拾えた」*
 
 &nbsp;
 
-Howard stands up and thanks him while correcting his residency.
+Howard stood up, straightening himself as he expressed his gratitude.
 
 *ハワードは立ち上がり、居住いを正しながら礼を言う。*
 
 &nbsp;
 
-I am Suzy... my name is Suzy... thank goodness... safe... peace of mind..."
+"My name... is Suzy... I'm glad... you're safe... I was worried..."
 
 *「わたし・・・スージィ・・・いいます・・・です・・・よかった・・・ぶじ・・・あんしん・・・です」*
 
 &nbsp;
 
-The girl also smiled again at Howard and handed him the longsword in her hand.
+The girl smiled at Howard again, handing him the long sword she had been holding.
 
 *少女も改めてハワードへ笑顔を向けながら手に持っていたロングソードを手渡した。*
 
-Howard thinks as he receives the longsword.
+As Howard accepted the long sword, he pondered.
 
 *ハワードはロングソードを受けとりながら考える。*
 
@@ -1511,7 +1510,7 @@ Howard thinks as he receives the longsword.
 
 &nbsp;
 
-(Is the faltering language because he is from outside the country? Smuggling? In these light clothes? The way they are dressed now, it looks as if they spent a few days in the forest. Kidnapped outside the country and fled to this forest? But who could dredge up someone as skilled as this girl? No, if she was drugged... in any case, she would need to contact her family. This is not a place for her to be alone.)
+(The way she speaks hesitantly indicates she is indeed from another country? An illegal immigrant? In this light attire? From her current appearance, it looks like she has spent several days in the forest. Did she get kidnapped abroad and escape into this forest? But is there anyone capable of abducting a girl as skilled as her? No, if drugs were used... In any case, I need to contact her family. This is no place for a girl to be alone.)
 
 *（言葉がたどたどしいのは、やはり国外の者だからか？密入国？この軽装でか？今の装いを見るに数日森の中で過ごしたようにも見える。国外で拐かされ、この森へ逃げ込んだ？だが、この娘ほどの手練れを浚う事が出来る者が居るのか？いや、薬でも使われれば…何れにしても家族と連絡を取る必要はあるだろうな。ここは娘が一人だけで居て良い場所じゃ無い）*
 
@@ -1519,79 +1518,79 @@ Howard thinks as he receives the longsword.
 
 &nbsp;
 
-One can only imagine the grief of the parents who suddenly lost their daughter.
+The sorrow of parents suddenly losing their daughter was not hard to imagine.
 
 *突然娘を失った両親の嘆きは想像に難くない。*
 
-And even more so when I look at this girl's hair.
+Especially when he looked at the girl's hair, it tightened his chest even more.
 
 *ましてやこの娘の髪を見ていると、尚の事胸が締め付けられる。*
 
 &nbsp;
 
-I asked my daughter about her country and she mentioned a name I had never heard before.
+He asked the girl about her country, but she mentioned a name he had never heard before.
 
 *娘に自分の国の事を聞いてみたが、初めて聞く名前を口にした。*
 
 &nbsp;
 
-This is a country called Aurora, do you understand?"
+"This country is called Aurora; do you know it?"
 
 *「ここはアウローラと言う国なんだが、分るかね？」*
 
-"A-rola? I don't know.
+"Aurora? ...I don't... know."
 
 *「あうろーら？・・・しり・・・ません」*
 
 &nbsp;
 
-I knew you were from out of the country....
+So she is indeed from another country...
 
 *やはり国外の者か…。*
 
 &nbsp;
 
-Do you know where you come from?"
+"Do you know where you came from?"
 
 *「自分がどこから来たかは分るかい？」*
 
 &nbsp;
 
-The girl then pointed fearfully toward the far end of the forest.
+When he asked, the girl hesitantly pointed toward the depths of the forest.
 
 *そう言うと少女は、恐る恐る森の奥の方を指差した。*
 
-Was he really kidnapped? Nope! He could have been lost while traveling with his family.
+Had she truly been kidnapped? No! There was also the possibility that she got lost while traveling with her family.
 
 *本当に攫われたのか？いや！家族と旅行中に遭難した可能性も。*
 
 &nbsp;
 
-"Where's your family? Aren't your parents with you?"
+"What about your family? Aren't your parents with you?"
 
 *「家族は？ご両親は一緒ではないのかね？」*
 
 &nbsp;
 
-Unintentionally, I grabbed the girl by the shoulders.
+He instinctively grabbed the girl's shoulder.
 
 *思わず少女の肩を掴んでしまった。*
 
 &nbsp;
 
-"Good news? No... no... since... since the first time.
+"Parents? ...I don't have... from the beginning..."
 
 *「りょうしん？・・・いません・・・さいしょ・・・から」*
 
 &nbsp;
 
-(What a thing to say...) "Did this girl really spend time alone in this forest? (What a surprise...) Did this girl really spend all her time alone in this forest?
+(What does this mean? This girl has truly been alone in this forest...)
 
 *（何と云う事だ。この娘は本当に一人でこの森で過ごしていたと言うのか…）*
 
 &nbsp;
 
-His brow wrinkles involuntarily and his expression becomes stern.
+He couldn't help but furrow his brow, his expression turning serious.
 
 *思わず眉間に皺を寄せ、厳しい表情になってしまう。*
 
@@ -1599,35 +1598,35 @@ His brow wrinkles involuntarily and his expression becomes stern.
 
 &nbsp;
 
-Then I heard a lovely sound coming from somewhere, Ku～～～～.
+Then, from somewhere, he heard a cute sound, "Kuuuu~."
 
 *すると、どこからかク～～～～と言う可愛らしい音が聞こえてきた。*
 
-I look and the girl is bright red and holding her stomach.
+Looking, he saw the girl blushing and holding her stomach.
 
 *見ると少女が真っ赤になってお腹を押さえている。*
 
-Howard let go and looked down at the girl in surprise.
+Howard, surprised, released his grip and looked down at her.
 
 *ハワードは驚いたように手を放し、少女を見下ろした。*
 
 &nbsp;
 
-Uh... um... sorry... sorry... um...
+"Oh... I'm sorry... um... excuse me..."
 
 *「あ・・・あの・・・すみま・・・すみません・・・あの」*
 
 &nbsp;
 
-The girl looks down and utters a flustered apology, reddening.
+The girl looked down, blushing, and hurriedly apologized.
 
 *少女が下を向いて、赤くなりながら慌てたように謝罪を口にする。*
 
-Howard felt the tension that had been there before slowly fade away.
+Howard felt the tension that had been present dissipating slowly.
 
 *ハワードはそれまであった緊迫感が、ゆっくり消えて行くのを感じた。*
 
-As if poisoned, his facial expression collapses as he looks at the girl.
+As if the poison had been drawn out, he found himself smiling at the girl.
 
 *毒気を抜かれたように、少女を見ながら相好が崩れてしまう。*
 
@@ -1635,7 +1634,7 @@ As if poisoned, his facial expression collapses as he looks at the girl.
 
 &nbsp;
 
-(It's already around noon. ......, Sonia should have lunch ready and waiting for you. I don't care about the details anymore. Now I want to entertain my benefactor, my daughter.)
+(It's already past noon... Sonia must be preparing lunch and waiting for me. The details no longer matter. Right now, I want to treat this girl, my benefactor.)
 
 *（もう昼を回っているな……、ソニアが昼食を用意して待ちわびている筈だ。細かい事など、もうどうでも良い。今は恩人であるこの娘をもてなしたい）*
 
@@ -1643,121 +1642,119 @@ As if poisoned, his facial expression collapses as he looks at the girl.
 
 &nbsp;
 
-I'm going to go back to the house now for lunch, and I was wondering if you would like to join me. My wife is supposed to have prepared a large meal for the guests she was planning to bring home. It's too much for us to finish on our own. It would be very much appreciated if you could join us for dinner."
+"I was planning to return to the mansion for lunch; would you like to join me? My wife is likely preparing plenty of food for the guest she was expecting. It's more than we can handle alone. It would be a great help if you could share a meal with us."
 
 *「これから屋敷へ戻って昼食の予定なのだが、良かったらキミも一緒にどうかな？妻が連れて帰る予定だった客人の分までタップリと料理を用意している筈なのだ。とても我々だけでは片づけられる量ではなくてね。一緒に食事をして貰えると、とても助かるのだよ」*
 
 &nbsp;
 
-Howard extended his hand wide and told the girl to welcome him.
+Howard spread his arms wide, conveying his welcome to the girl.
 
 *ハワードが大きく手を広げ、歓迎するように少女に伝えた。*
 
 &nbsp;
 
-"Sho ... shokuji ... cuisine? ... food ... plenty ... of food?"
+"Meal... food? ...lunch... plenty?"
 
 *「しょ・・・しょくじ・・・りょうり？・・・ちゅうしょく・・・たっぷり？」*
 
 &nbsp;
 
-The girl wiggled her eyes wide open with a wince, looked at Howard with a bright red face, and asked him back.
+The girl looked wide-eyed, trembling slightly, her face turning bright red as she asked back.
 
 *少女がアワアワと目を見開きながら小刻みに震え、真っ赤な顔でハワードを見つめて問い返して来た。*
 
 &nbsp;
 
-'Yes! It's a tapas dish! Especially the herb-roasted chicken! I love that salty bird."
+"Yes! Plenty of food! Especially herb-roasted chicken! I love that salty chicken."
 
 *「そう！タップリの料理だ！特に鳥のハーブ焼き！ワシはあの塩気の効いた鳥が好きでね」*
 
 &nbsp;
 
-Howard said happily as he recalled the bird that Sonia was prepping for cooking on the way out.
+Howard recalled the chicken Sonia had been preparing just before he left, speaking happily.
 
 *ハワードは出がけ間際、ソニアが調理の下ごしらえをしていた鳥を思い出しながら、嬉しそうに語った。*
 
 &nbsp;
 
-Shio! Habu! Bird!
+"Salt!! Herb!! ...Chicken!"
 
 *「しお！！はーぶ！！・・・とり！」*
 
 &nbsp;
 
-His eyes widen even more and become intensely moist, as if they are about to burst into tears.
+Her eyes widened even more, and they began to glisten; she looked like she was about to cry.
 
 *更に目が見開かれ激しく潤んでくる、今にも涙が零れ落ちそうだ。*
 
-His mouth is also not closing, and it looks as if drool is about to spill out.
+Her mouth was agape, and it seemed like drool was about to spill from her.
 
 *口もアウアウと閉まらなくなっている、こちらからも今にも涎が零れそうだ。*
 
-That's not nice for a pretty girl.
+What a cute girl; this was unacceptable.
 
 *可愛い娘がそれはイケナイ。*
 
 &nbsp;
 
-"How about it? Would you accept my invitation?"
+"How about it? Will you accept my invitation?"
 
 *「どうかな？招待に応じて貰えるかい？」*
 
 &nbsp;
 
-"Are you sure you don't want any trouble? ... bother... you...?"
+"Would it... be a bother? ...Would it be... an intrusion?"
 
 *「めいわく・・・ない・・・ですか？・・・おじゃま・・・ない・・・ですか？」*
 
 &nbsp;
 
-
+The girl moved her hands nervously in front of her chest, her face turning bright red, looking as if she might burst into tears at any moment.
 
 *少女は両手を胸の前でワキワキと動かし、顔を真っ赤にして本当に今にも泣き出しそうな様子で聞き返して来た。*
 
 &nbsp;
 
-Howard is just broken up about it.
+Howard couldn't help but break into a smile.
 
 *ハワードはつい破顔してしまう。*
 
 &nbsp;
 
-Of course not! I'm not bothering or disturbing you. I just want to have lunch with you!"
+"Of course not! It's not a bother or an intrusion. I want to have lunch with you!"
 
 *「勿論だとも！迷惑でも邪魔でもない。一緒にお昼を食べたいんだ！」*
 
 &nbsp;
 
-When he laughed and held out his right hand, the girl looked at it once, then looked at Howard's face, nodded repeatedly in delight, and then grabbed onto it with both hands in a hissing motion.
+Laughing, he extended his right hand, and after looking at his hand, the girl looked at Howard's face, nodded happily several times, and then tightly grasped his right hand with both of hers.
 
 *笑いながら右手を差し出すと、少女は一度その右手を見てからハワードの顔を見て、嬉しそうに何度も頷いてから、両手でその右手にヒシッと掴まった。*
 
 &nbsp;
 
-I can't bring Will back, but today's guest is special.
+He couldn't bring Will back, but today's guest was special.
 
 *ウィルは連れて帰れないが、今日のお客は特別だ。*
 
-Come on, let's go home soon.
+Now, let's hurry home.
 
 *さあ、早く帰ろう。*
 
-I can see Sonia's surprised face.
+He could already picture Sonia's surprised face.
 
 *ソニアが驚く顔が目に浮かぶ。*
 
-I am sure they would be delighted.
+She would surely be delighted.
 
 *きっと喜んでくれるに違いない。*
 
 &nbsp;
 
-Howard took the girl and happily hurried home through the woods.
+Howard took the girl by the hand and hurriedly made his way through the forest, joyfully heading home.
 
 *ハワードは少女を連れ、楽しげに森を抜けて家路を急いだ。*
-
-
 
 &nbsp;
 
@@ -1767,25 +1764,24 @@ Thank you for reading!
 
 *お読みいただきありがとう御座いました！*
 
-Here is the start of the main story ^^^;
+This is where the main story begins.＾＾；
 
 *ここから本編のスタートです＾＾；*
 
-After this, I would like to add more tags according to the content.
+From here on, I plan to add tags according to the content.
 
 *これ以降、内容に合わせてタグを増やして行きたいと思ってます。*
 
-I would be happy if you could keep me company!
+I would be delighted if you could accompany me!
 
 *お付き合い頂けると嬉しいです！*
 
 &nbsp;
 
-If there are any typos or omissions, please let us know! <(_ _)>
+If you notice any typos or errors, please let me know! <(_ _)>
 
 *誤字脱字ございましたら、ご指摘よろしくお願い致します！<(_ _)>*
 
-In addition, we would be more than happy to receive your feedback!
+Also, I would be even happier to receive your feedback!
 
 *ついでに、ご感想でも頂ければ、尚嬉しゅうございます！*
-

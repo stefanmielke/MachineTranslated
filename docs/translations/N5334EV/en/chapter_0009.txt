@@ -1,50 +1,50 @@
-# 09話　スージィ食料を探す
+# Episode 09: Suzy Searches for Food
 
 －＊＊－－＊－－＊＊－－＊－－＊＊－－＊－－＊＊－－＊－
 
 <b>
 
-「どうです？　結構平気だったでしょ？」
+"How was it? You were pretty okay, right?"
 
-「まぁ平気って言や平気だけど……、痛かったよ？」
+"Well, I mean, I was okay, but... it hurt, you know?"
 
-「でも平気な顔で受けてたじゃないですか」
+"But you were taking it like a champ, weren't you?"
 
-「平気って言うかさ……痛いけど耐えられない訳じゃ無いな……、くらいな？」
+"It's not that I was okay... it hurt, but it wasn't unbearable, you know?"
 
-「今のかなり強めに殴ってましたからね？　普通の素人なら耐えられない位の力入れてましたから」
+"You were hit pretty hard just now, right? The kind of force that a normal amateur wouldn't be able to withstand."
 
-「そうなの？　まぁ痛かったよ？　確かに結構平気だったけど」
+"Is that so? Well, it did hurt, but I was definitely okay."
 
-「それが『型』の効果って事なんですけどね」
+"That's the effect of 'kata', you see."
 
-「さっきやったヤツだよな？『サンチン』だっけ？」
+"That thing we did earlier, right? 'Sanchin', wasn't it?"
 
-「まぁ完全に極められる程、先輩は出来上がっていないんで、ただの紛い物なんですけどね」
+"Well, since you haven't fully mastered it yet, it's just a makeshift version."
 
-「左様で御座いますか、えーそーでしょーねぇ」
+"I see, that makes sense."
 
-「さっき教えた様に手を広げるときに小指から拳を閉じて、腕のココの所に『氣』を意識すれば、その位の効果は出るんです」
+"As I mentioned earlier, when you spread your hands, if you close your fists starting from the pinky and focus your 'ki' in this part of your arm, you can achieve that level of effect."
 
-「ここの肘から小指の付け根にかけての腕の側面だろ？　確かに意識するとココが暖かくなったね」
+"You're talking about the side of the arm from the elbow to the base of the pinky, right? I definitely felt warmth there when I focused."
 
-「『型』っていうのは所作、動作を正しく取るのは当たり前なんですが、その上でそう云った意識を正しく持つ事で本来の力が出るんです」
+"'Kata' is about performing the movements correctly, but on top of that, having the right awareness allows you to unleash your true power."
 
-「なんか難しい事言い出したな？」
+"You're starting to sound pretty complicated there."
 
-「簡単な所だと、三つ指付いてお辞儀して体を起こす時に、こう胸の真ん中、カラー〇イマーがある辺りから棒でも出て身体を持ち上げる。と言う意識で体を起こすと大した力もいらず体が起こせます。上から抑えられてても少し位の重さなら、やはり大した抵抗も感じず楽に起こせますよ」
+"To put it simply, when you bow with three fingers down and rise, if you imagine lifting your body from the center of your chest, around where the collarbone is, using a stick or something, you can lift your body without much effort. Even if someone is pressing down from above, you can still rise without feeling much resistance."
 
-「実は大和撫子最強説！？」
+"Is there a theory that the Yamato Nadeshiko is the strongest?"
 
-「日本の作法や所作って実は『氣』が効率よく流れる型だったりするんです。お箸も正しく動かすと『氣』がきちんと流れるんですよ。この機会にちゃんとした作法も習得してみては如何ですか？」
+"Actually, the manners and movements in Japanese culture are forms that allow 'ki' to flow efficiently. Even using chopsticks correctly allows 'ki' to flow properly. Why not take this opportunity to learn proper manners?"
 
-「でもさぁ、さっきの『サンチン』だっけ？　出来ればアレみたいに強くなる技覚えたいよな！アレだろ？ちゃんと出来る様になると痛みとか感じなくなれるんだろ？」
+"But, you know, that 'Sanchin' thing? I want to learn techniques that can make me strong like that! Once you can do it properly, you won't feel pain anymore, right?"
 
-「いや、痛みは普通にあると思いますよ」
+"No, I think pain will still be there."
 
-「え？　そうなの？」
+"Huh? Is that so?"
 
-「いいですか。痛みって言うのは重要な情報なんです。痛みが無いって事は、身体がどんな状態なのか分らないって事です。そんな状態じゃ何処までが無茶なのか判らなくなりますよ？痛みは拒絶するのでは無く、理解する事が必要なんです。」
+"Listen. Pain is important information. If you don't feel pain, you won't know the state of your body. In such a state, you won't be able to tell how far you can push yourself, right? Pain isn't something to reject; it's something to understand."
 
 <b>
 
@@ -56,137 +56,137 @@
 
 <b>
 
-昨日は結局、最初に野営をした滝の場所まで戻って来た。
+In the end, I returned to the place by the waterfall where we first camped yesterday.
 
-森の中の道……北に向かった時の跡だが……を見つけたので野営場所を探すなら、それを辿るのが手っ取り早い、と思ったからだ。
-
-<b>
-
-検証するなら、森の浅い所でやりたいと云う理由もあった。
+I found a path in the forest... it's the trail from when I headed north... so I thought it would be quicker to follow that if I was looking for a camping spot.
 
 <b>
 
-「ダメージ検証するなら、まずは低い防御力の装備、もしくは防具無しの状態で試してみるのが良いよな！　上位の装備では、この辺のMobの攻撃受けても確実に弾くだろうし……」
+There was also a reason I wanted to do the testing in a shallow part of the forest.
 
 <b>
 
-その状態で攻撃を受けるなら、イキナリ狼の牙とか熊の爪とかはちょとイヤだな。
-
-せめて最初は、もっと優しい相手が良い……という初心なお願いである。
+"If I'm going to test damage, it's better to try it with low-defense gear or without armor at all! With higher-level gear, I would definitely block the attacks from the mobs around here..."
 
 <b>
 
-自分は今まで散々弾け飛ばしたり、乱切りにしたり、ミンチにしたりして於いて、何を今更言っているのか？という話もあるが、ここにツッコミはいない。
+If I'm going to take hits in that state, I really don't want to face a wolf's fangs or a bear's claws right away.
+
+At least at first, I'd prefer a gentler opponent... that's my naive wish.
+
+<b>
+
+I've already blown away, sliced, and minced so many creatures before, so what am I saying now? But there's no one here to point that out.
 
 <b>
 
 <b>
 
-そういう訳で、今は滝を使ってシャワーの様に水浴びをしている。
+So, with that in mind, I'm currently using the waterfall to take a shower.
 
-何故そういう訳かは、そう云う事をした後だからだ。
-
-<b>
-
-「こうやって早朝に水浴びしてても寒くないってのは、今の季節は7月とか8月って事なのかな？」
+The reason for that is because I've just done something like that.
 
 <b>
 
-滝の水に打たれて、形の良い乳房を揺らしながら何となく口にする。
-
-すると、ク～～～……と、随分可愛らしい音が辺りに鳴り響いた。
+"Is it because it's early morning and I'm not cold taking a shower like this that it's July or August right now?"
 
 <b>
 
-「……腹減った……」
+As I let the waterfall hit me, my well-shaped breasts swaying, I muttered to myself.
+
+Then, a cute sound echoed around me.
 
 <b>
 
-胃の辺りに手を当てながら、悲しげに呟いた。
-
-今ところ食事は、空腹感が限界に来るまで摂らずにいた。
-
-理由は……。
+"...I'm hungry..."
 
 <b>
 
-「また味気ないメシか～～。……腹減ってるのに、こんなに食事が憂鬱なんて……」
+I placed my hand on my stomach and murmured sadly.
+
+So far, I had refrained from eating until my hunger reached its limit.
+
+The reason is...
 
 <b>
 
-文字通り、持っている食料に味が殆ど無いのだ。
+"Another tasteless meal... Even though I'm hungry, feeling this gloomy about food is just..."
 
 <b>
 
-バシャバシャと全裸のまま滝から離れ、水辺へと上がって行く。
-
-インベントリからタオルを出し、体に巻きつけるとガッツリ脚を開き、手近な岩の上に腰を下ろした。
-
-とても年頃の娘さんが人前で晒せる格好では無い。
-
-まあ、中身は娘さんと違うが！
+Literally, the food I have on hand has almost no flavor.
 
 <b>
 
-もう一度インベントリから今度はシチューを取り出し啜る。
+I splashed out of the waterfall, still naked, and climbed up to the water's edge.
 
-いつでも出来たてのホッカホカである。
+I pulled a towel from my inventory, wrapped it around my body, spread my legs wide, and sat down on a nearby rock.
 
-しかし……。
+It's not a position that a girl of my age should be showing in public.
 
-<b>
-
-「……美味くない～～～」
+Well, the insides are different from a regular girl, though!
 
 <b>
 
-とりあえず胃に入れれば何でも良いとばかりに一気に掻き込んだ。
+I took out some stew from my inventory and slurped it down.
+
+It's always piping hot and freshly made.
+
+However...
 
 <b>
 
-「ひょふほぅひひょうはんほはひはいほは……」
+"...It's not delicious~~~"
 
 <b>
 
-口に入れながら喋るもんじゃない。
+I gulped it down as if anything would do as long as it went into my stomach.
 
 <b>
 
-スージィは、そのまま強引に一気に飲み下す。
+"Hyohuhouhihihouhuhahihihah..."
 
 <b>
 
-「くはぁーーーっ！　……やはりナル早で人里へ出る事考えないとイカンなぁ。人には味のある食事が必要なのだと切実に思うよ！！」
+This is not how you should talk while eating.
 
 <b>
 
-無理やりの食事を終わらせると、ヨッと声を出し立ち上がった。
-
-そのままタオルを脱ぎ取りインベントリへ仕舞い込むと、次の瞬間にはD装備に身を包まれていた。
+Suzy forcefully swallowed it all at once.
 
 <b>
 
-「あ、待てよ。もう爆ぜさせずに狩れる様になったんだから、普通に食料も狩れるか？　鳥とか行けんじゃね？」
+"Kuhaaーーー! ...I really need to think about getting back to town soon. I seriously feel that people need meals with flavor!!"
 
 <b>
 
-はたと思いついた様に顔を上げる。
+After forcing down my meal, I stood up with a grunt.
+
+I took off the towel and put it back in my inventory, and in the next moment, I was clad in D gear.
 
 <b>
 
-「そうだよ！　行けるよね？　よし！　ダメ検証するついでに食糧も採ろう！　ウン！　そうしよう！！」
+"Oh, wait. Since I can hunt without blowing things up now, can I hunt for food normally? I should be able to go for birds, right?"
 
 <b>
 
-嬉しそうに南方を見ながら独りごちた。
+I suddenly had a thought and looked up.
 
 <b>
 
-「とりあえず5～60キロ南下すりゃいいかな？　人里が近づけば、ちったぁ可愛げがあるのが出てくんだろ！」
+"That's right! I can do it! Alright! While I'm testing damage, I'll also gather food! Yes! Let's do that!!"
 
 <b>
 
-そう言うと、さっさと南へ向かい飛びだして行った。
+I muttered to myself happily while looking south.
+
+<b>
+
+"For now, I should head south for about 50 to 60 kilometers? As I get closer to human settlements, some cute creatures should start appearing!"
+
+<b>
+
+With that said, I quickly headed south.
 
 <b>
 
@@ -206,7 +206,7 @@
 
 <b>
 
-結論から言えば……散々だった。
+To put it bluntly... it was a disaster.
 
 <b>
 
@@ -214,99 +214,99 @@
 
 <b>
 
-でっかい猪みたいなMobが居た。
+There was a huge mob that looked like a wild boar.
 
-ナントカヌシみたいな奴だった。
-
-<b>
-
-コレは食える！と思った。
+It was something like a 'Nan toka Nushi'.
 
 <b>
 
-取敢えず初期の炎系魔法を撃った。
-
-燃えた。炭になった。
-
-炭の味しかしなかった。
+I thought, "This is edible!"
 
 <b>
 
-次はヤツは輪切りにしてから適当な部位を切り取った。
+So, I shot my initial fire-type magic.
 
-何がどこにあるのか分らなくて、グチャグチャになりながら赤身を見繕って切り出して焼いた。
+It burned. It turned to charcoal.
 
-<b>
-
-すっげー獣臭くて腐った肉の匂いがした。
-
-せめてハーブとか匂い消しが必要なのかもと思った。
-
-一口、無理くり口に含んだら勝手に涙が溢れてきた。
-
-求めてた濃い味はコレトチガウ。
-
-エグエグと泣いてしまった。
+It only tasted like charcoal.
 
 <b>
 
-もしかしたら Mobつまりモンスターは食材に適していないのかも？と思い、普通に鳥を採ってみた。
+Next, I sliced it into rounds and cut off some random parts.
+
+I had no idea what was where, and while it was a mess, I picked out some red meat and grilled it.
 
 <b>
 
-でっかい鷲みたいなのが居たので小石を拾って『氣』を纏わせ指先で撃ち出す、指弾だ。
+It smelled incredibly gamey and like rotten meat.
 
-楽勝で撃ち落とせた。
+I thought maybe I needed some herbs or something to mask the smell.
 
-<b>
+When I forced a bite into my mouth, tears started to flow uncontrollably.
 
-よし料理だ！と思ったが。
+This is not the rich flavor I was looking for.
 
-どう捌いて良いのか分らない。
-
-この時、自分がサバイバルスキルゼロだとハッキリ自覚した。
+I cried out in disgust.
 
 <b>
 
-仕方ないので、そのまま火にかけて焼いてみた。
-
-羽根が皮にこびりついて、スゲー食い辛かったので皮をそぎ落として食べてみた。
-
-なんか固くて筋っぽくてレバーっぽい臭さが鼻についた。
+Maybe mobs, or monsters, aren't suitable for food? I thought, so I tried to catch a regular bird.
 
 <b>
 
-が無理やり食べた。
+I saw a big eagle, so I picked up a small stone, wrapped it in 'ki', and shot it with my fingertip, like a finger flick.
 
-レバーは嫌いじゃないけどコレは勘弁して欲しい。
-
-<b>
-
-やっぱり泣けた。
-
-せめて塩が欲しい。胡椒が欲しい。醤油が欲しい！
-
-素材の味を生かしたワイルド料理はオレには無理ムリです！！
+I easily shot it down.
 
 <b>
 
-「ラーメン食いたい。家系食いたい。千家のねぎチャーシューの大盛り食いたい！！」
+Alright, time to cook! I thought.
 
-シクシクシクシク……。
+But I had no idea how to process it.
+
+At that moment, I clearly realized that I had zero survival skills.
+
+<b>
+
+With no other choice, I just threw it on the fire and tried to grill it.
+
+The feathers stuck to the skin, making it really hard to eat, so I peeled the skin off and tried eating it.
+
+It was tough, stringy, and had a liver-like smell that hit my nose.
+
+<b>
+
+But I forced myself to eat it.
+
+I don't hate liver, but I wish I could skip this one.
+
+<b>
+
+I ended up crying again.
+
+I at least wanted salt. I wanted pepper. I wanted soy sauce!
+
+Wild cooking that brings out the flavor of the ingredients is impossible for me!!
+
+<b>
+
+"I want ramen. I want home-style ramen. I want a large serving of negi chashu from Senya!!"
+
+Sniffle sniffle...
 
 <b>
 
 <b>
 
-捌きも料理も出来ない事がとても悔しい。
+I feel so frustrated that I can't process or cook anything.
 
 <b>
 
-「せめて攻略サイトを！　頼むよ夢チート！　簡単解体動画プリズーーー！！！」
+"I just want a攻略サイト! Please, dream cheat! Easy dismantling videos, please!!!"
 
 <b>
 
-無理だった。
+It was impossible.
 
 <b>
 
@@ -326,95 +326,17 @@
 
 <b>
 
-「気を取り直して、本日本命のダメージ検証しるよ！」
+"Alright, let's get back to today's main damage testing!"
 
 <b>
 
-四つん這いになって落ち込んだが、無理やり拳を握って立ち上がった。
+I got down on all fours, feeling down, but I forced myself to clench my fists and stand up.
 
-とても人間らしい食事とは言い難かったがお腹は膨れた。
+It was hard to call it a human-like meal, but my stomach was full.
 
-お腹が膨れたのに何故かとても悲しい。
+Even though my stomach was full, I felt strangely sad.
 
-なので、今日本来の目的を果たす事にした。
-
-<b>
-
-<b>
-
-<b>
-
-「ン～～……、アレなんかどうだ？　『フォレストバシリスク』。バシリスクって石化してくるだけのデカいトカゲで、大した事なかったよな？　デカいって言っても2メートル無さそうだし……。上にもでっかいトカゲ居たけど、アレは10メートルは超えてたもんな。確か『アイスリザード』と、やっぱり『ホワイトバシリスク』。あれの赤ん坊みたいなサイズだし大丈夫だろ」
-
-<b>
-
-2メートルのトカゲと云う時点で大した事あるのだが、やはり基準値がどうにかなっているようだ。
-
-<b>
-
-<b>
-
-その姿はトカゲと云うより恐竜に近い。
-
-強靭な後足、前に出した前脚は小さいが、強力な爪を持つ。
-
-首は長く小さ目な頭を支えている。
-
-小型のラプトルのような姿だ。
-
-<b>
-
-全身は青緑の鱗で覆われ、頭にはトサカの様なヒレを持っている。
-
-首の所で途切れたヒレは、背中でまた大きく広がる。
-
-その金色の目がスージィを見つけ、真っ直ぐに向かって来た。
-
-<b>
-
-スージィは武器を収納して重装備だけで待ち受ける。
-
-<b>
-
-5メートル程の距離で走りながら首を高く上げ、眼を一際輝かせたが何も起こらない。
-
-バシリスクは、一瞬訝しげな表情を見せたが、直ぐにスピードを上げ突っ込んで来た。
-
-<b>
-
-バシリスクの石化の眼光を、スージィがあっさりレジストしたのだ。
-
-石化に抵抗する相手は少なくない。
-
-一々怯んで居てはコチラがやられる。
-
-<b>
-
-石化が効かないのであれば、麻痺毒を持つ牙と爪を突き立ててやれば良い。
-
-後脚の筋肉を膨張させ解き放つ。
-
-一気に距離を詰め首元を狙い飛び掛かった。
-
-<b>
-
-だが口は虚しく空を切る。
-
-ならば、と避けた先へ前脚の鎌の様に鋭い爪を引っ掛けて、引き寄せようとする。
-
-しかしそれも紙一重で避けられた。
-
-<b>
-
-なら身体を直接ぶつけてその重量で潰そうと身体を倒すが、もう相手は其処には居ない。
-
-透かさず長い尻尾を振り回す。
-
-自分はこれでバランスが取り戻せるが、逃げたソイツに当たれば只では済まない。
-
-<b>
-
-だが、その尻尾も空を切った。
+So, I decided to fulfill my original purpose today.
 
 <b>
 
@@ -422,178 +344,258 @@
 
 <b>
 
-（あれ？　何だか、やたら当たらないなぁ～と思ってたら、コレ自分で無意識に避けてね？）
+"Ummm... how about that? 'Forest Basilisk'. The basilisk is just a big lizard that can petrify, and it wasn't a big deal, right? Even if it's big, it doesn't seem to be more than 2 meters... There were bigger lizards above, but they were over 10 meters. I think they were 'Ice Lizards' and 'White Basilisks'. This one seems to be about the size of a baby."
 
 <b>
 
-まるで風に揺れる柳の様。
-
-スージィは、自分自身が特に意識もせずに、相手の攻撃の勢いを体が勝手に察知し、避けている事に気が付いた。
-
-<b>
-
-（これはレベル補正ってヤツか！　コイツとはかなりのレベル差あるって事だな？　こりゃ意識して攻撃受けないと当たらないかも……）
-
-<b>
-
-と、幾度も攻撃を躱され、業を煮やしたバシリスクが強力な頭突きを放とうと身を低く構え、力を溜め始めた。
-
-<b>
-
-「お？　来るか？　よしゃっ！　おねーさんの胸に飛び込んでいらっさい！　バッチ来ーーい！！」
-
-<b>
-
-バシリスクが地を蹴り突進して来た。
-
-スージィは腕を開き迎え入れる体勢を取った。
-
-頭がぶつかる瞬間胸を突出し受け止める！　と、バシリスクの頭が砕けて弾けた。
-
-<b>
-
-「うわっぷ！？　ぱらぱぁっぷっ！！」
-
-<b>
-
-盛大に脳漿やら何やらを顔から浴びてしまった。
-
-<b>
-
-「うあ！　ぺっぺっ！　ぷぺっ！　うげぇ～～ぺっ！　な、なしてぇ～～？」
-
-<b>
-
-インベントリから水の入った壺を取出し、頭から水をかぶり洗い流す。
-
-<b>
-
-「うあっぺっ！　くっさぁ……！　あ……、ぺっ！　……ま、まさか！　ぺっ！　……アタシの胸は、ぺっ！　凶器だったのね！？　ぺっ！」
-
-<b>
-
-そーじゃなくてっ！
-
-<b>
-
-「ぺっ！　あれか……ぺっ！　『氣』を纏ってたから、ぺっ！　闘気の籠った、ぺっ！　拳で殴ったのと、ぺっ！　同じことになった？　ぺぺっ！」
-
-<b>
-
-水で何度も何度も口をすすぐ。
+Even saying it's a 2-meter lizard is already a big deal, but it seems my standards are a bit skewed.
 
 <b>
 
 <b>
 
-<b>
+Its appearance is closer to a dinosaur than a lizard.
 
-「う～～、まだ口ン中キモチ悪いぃ臭いぃ～～……。今日はもうサッサと水浴びしたい……！！！」
+It has strong hind legs, and its front legs are small but have powerful claws.
 
-<b>
+Its neck is long, supporting a small head.
 
-何杯目かの水瓶シャワーを浴びた後、突然小さな爆発音を響かせ、高速で飛来した何かを掴み取った。
-
-<b>
-
-「さっきから周りを飛び回ってたのはコイツか……。『ブレッドビートル』？　頭が棘だらけのカナブンみたい。うわっ！　かったいなぁコイツ」
+It resembles a small raptor.
 
 <b>
 
-ビッと指先で弾き、掴んでいたビートルを指弾の様に飛ばした。
+Its entire body is covered in blue-green scales, and it has a crest-like fin on its head.
 
-そのまま次に飛んできた2匹目にヒットさせ相殺粉砕する。
+The fin that stops at the neck spreads out again on its back.
 
-<b>
-
-クイッと首を右へ傾げ3匹目を躱す。
-
-躱された3匹目は、スージィの後ろにあった一抱え以上もありそうな樹木を貫通し、その根元にあった岩へとめり込んだ。
+Its golden eyes spotted Suzy and headed straight toward her.
 
 <b>
 
-「うっわぁホントに弾丸みたい。なんかワラワラと集まって来てるな……。縄張りにでも入り込んだか？」
+Suzy stored her weapon and waited in heavy armor.
 
 <b>
 
-三桁は居るよなぁ……と、ウンザリした様に呟いた。
+At a distance of about 5 meters, it ran with its neck raised high, its eyes shining brightly, but nothing happened.
 
-地面に減り込んだビートルを、プチリと踏み潰しながら周りを警戒する。
-
-<b>
-
-「ていっ！」
-
-4匹目を右正拳で打ち抜く。
+The basilisk showed a moment of suspicion but quickly increased its speed and charged.
 
 <b>
 
-「とりゃ！」
+Suzy easily resisted the basilisk's petrifying gaze.
 
-5匹目を左手刀で断った。
+There are not many who can resist petrification.
 
-<b>
-
-「ほあっ！」
-
-6匹目を右の裏拳で払って粉砕する。
+If I flinch every time, I'll be the one in trouble.
 
 <b>
 
-「っつお！」
+If petrification doesn't work, then I can just stab it with my fangs and claws that have paralysis poison.
 
-7匹目を左の鈎突きで砕く。
+I expanded the muscles in my hind legs and released them.
 
-<b>
-
-「うぉっとったっ！」
-
-8、9匹目を右、左で。
+I closed the distance in an instant and leaped toward its neck.
 
 <b>
 
-「たっ！　てぃ！　ほぁっ！　ほぁたぁ！」
+But my mouth cut through empty air.
 
-爆発音を発しながら、矢継ぎ早に飛んで来るビートル達を、次々と両の拳で打ち落とす。
+In that case, I tried to hook its front legs with my scythe-like sharp claws and pull it closer.
 
-<b>
-
-「あたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたたた」
+However, that too was narrowly avoided.
 
 <b>
 
-「だぁぁぁぁっっ！！　一体どこの伝承者かぁっっ！？　もぉぅーーっメンドクサイわっっ！！」
+Then I tried to slam my body into it and crush it with my weight, but the opponent was no longer there.
+
+I immediately swung my long tail.
+
+I could regain my balance with that, but if it hit the one that escaped, it wouldn't end well.
 
 <b>
 
-瞬間、剣を装備し剣気を前方に放った。
+But that tail also cut through the air.
 
 <b>
 
-「砕け散れぃぃっっ！！」
+<b>
 
 <b>
 
-≪インパクト・ストーム≫
-
-前方のビートルの群れをまとめて吹き飛ばした。
-
-ついでに周りの樹木も結構な範囲で。
+(Huh? I was thinking, 'Why can't I hit anything?' and realized that I'm unconsciously dodging it myself?)
 
 <b>
 
-「……あ」
+Like a willow swaying in the wind.
+
+Suzy noticed that her body was sensing the opponent's attack and dodging it without her conscious awareness.
 
 <b>
 
-崩れかけた樹がメキメキと折れ倒れて行く。
-
-ちょっとだけデジャヴ。
+(Is this what they call level adjustment? It means there's quite a level difference between us, huh? If I don't consciously take the hits, I might not get hit at all...)
 
 <b>
 
-「ツイ勢い余っちゃった……。てへぺろーー」
+As the basilisk repeatedly missed its attacks, it became frustrated and lowered its body to prepare for a powerful headbutt, gathering its strength.
 
 <b>
 
-てへぺろぢゃねぇよっ！
+"Oh? Is it coming? Alright! Come on and dive into the lady's chest! Bring it on!!"
+
+<b>
+
+The basilisk kicked off the ground and charged.
+
+Suzy opened her arms, ready to embrace it.
+
+At the moment their heads collided, she thrust her chest forward to catch it! The basilisk's head shattered and burst apart.
+
+<b>
+
+"Uwa!? Parapapap!!"
+
+<b>
+
+She was splattered with brain matter and other things all over her face.
+
+<b>
+
+"Ugh! Peh peh! Puh! Ughhh, peh! Wh-why~~~?"
+
+<b>
+
+She took out a water-filled jar from her inventory and poured water over her head to wash it off.
+
+<b>
+
+"Ugh, peh! It stinks...! Ah... peh! ...No way! Peh! ...My chest was a weapon!?"
+
+<b>
+
+No, that's not it!
+
+<b>
+
+"Peh! Is it... peh! Because I was wrapped in 'ki', peh! It turned into the same thing as hitting with a fist filled with fighting spirit? Peh!"
+
+<b>
+
+She rinsed her mouth with water repeatedly.
+
+<b>
+
+<b>
+
+<b>
+
+"Ugh, my mouth still feels gross and smells bad... I just want to take a shower quickly...!!!"
+
+<b>
+
+After taking several showers with the water jar, she suddenly heard a small explosion and grabbed something that flew at high speed.
+
+<b>
+
+"So that's what was flying around me earlier... 'Bread Beetle'? It looks like a cantharid with spikes all over its head. Whoa! This thing is tough."
+
+<b>
+
+She flicked it with her fingertip and sent the beetle flying like a projectile.
+
+She hit the second one that flew at her next and smashed it.
+
+<b>
+
+<b>
+
+She tilted her head to the right to dodge the third one.
+
+The third beetle, which was dodged, pierced through a tree that was more than a hug in size behind Suzy and embedded itself into the rock at its base.
+
+<b>
+
+"Wow, it really is like a bullet. A bunch of them are gathering... Did I intrude on their territory?"
+
+<b>
+
+There must be at least three digits... she muttered with a sigh.
+
+As she crushed the beetle embedded in the ground, she remained vigilant of her surroundings.
+
+<b>
+
+"Take that!"
+
+She punched the fourth one with her right fist.
+
+<b>
+
+"Here I go!"
+
+She sliced the fifth one with her left hand.
+
+<b>
+
+"Hoah!"
+
+She smashed the sixth one with a backfist.
+
+<b>
+
+"Tsuo!"
+
+She crushed the seventh one with a left hook.
+
+<b>
+
+"Whoa, whoa!"
+
+She took down the eighth and ninth with her right and left fists.
+
+<b>
+
+"Ta! Ti! Hoah! Hoah!"
+
+With explosive sounds, she knocked down the beetles that came flying one after another with her fists.
+
+<b>
+
+"Owww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww oww!"
+
+<b>
+
+"Ahhhhh!! Who the hell is this successor?! This is so annoying!!"
+
+<b>
+
+In an instant, she equipped her sword and unleashed sword energy forward.
+
+<b>
+
+"Shatter into pieces!!"
+
+<b>
+
+≪Impact Storm≫
+
+She blew away the swarm of beetles in front of her all at once.
+
+In the process, she also took down quite a few trees around her.
+
+<b>
+
+"...Ah."
+
+<b>
+
+The trees that were about to collapse creaked and fell.
+
+Just a little bit of déjà vu.
+
+<b>
+
+"I got a bit carried away... Tehepero."
+
+<b>
+
+This is not a 'tehepero' moment!

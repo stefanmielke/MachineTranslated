@@ -1,53 +1,52 @@
-# 01 Waking up in the Suzy Forest
+# Chapter 01: Suzy Awakens in the Forest
 
 ## 01話　スージィ森で目覚める
 
-I have been a reader for a long time, but this is my first post! This is my first experience writing a novel or spelling out a long sentence. I hope you will warmly accept my poor writing!
+I have always been a reader, but this is my first time posting! Writing a novel and crafting long sentences is a completely new experience for me. My writing may be clumsy, but I would be happy if you could look at it with warm eyes!
 
 *ずっと読み専でしたが、初めて投稿します！小説を書くのも、長い文章を綴るのも初めての経験です。拙い文ですが、生暖かい目で見て頂ければ嬉しいです！*
 
-I have written a chapter from the introduction to the first chapter, so I have reserved a story to be published at 8:00 p.m. every day. I would appreciate it if you could spare some time to read it.
+I have written from the prologue to the first chapter, so I have scheduled to release one episode every day at 8 PM. I would be grateful if you could join me if you have the time.
 
 *序章から一章まで書き溜めたので、毎日一話、20時に公開予約入れました。お時間御座いましたらお付き合い頂けたら幸いでございます。*
-
 
 ----------------
 
 &nbsp;
 
-White cumulus clouds reminiscent of early summer are rising, and beyond them, the clear sky blue sky stretches endlessly.
+Fluffy white cumulus clouds reminiscent of early summer rise up, and beyond them, a clear sky blue stretches endlessly.
 
 *初夏を思わせる白い積雲が伸び上がり、その向こうには澄み渡るスカイブルーの空が、どこまでも広がっている。*
 
-And directly below, a large forest of deep green stretches out as far as the sky.
+And right beneath it, a deep green forest continues to spread just like the sky.
 
 *そしてその真下には、空と同じように何処までも広がり続く深緑の大森林。*
 
-Behind the continuous forest, towering white mountains were lined up like a wall in a haze of purple smoke.
+Behind the forest, white mountains tower, shrouded in purple smoke, lined up like a wall.
 
 *森林の続くその背後には、白く聳える山々が、紫煙に霞み壁の様に連なっていた。*
 
 &nbsp;
 
-It was like an ocean of green, with waves of deep trees reaching as far as the eye could see to the end of the horizon.
+It was a scene where waves of deep trees reached the horizon, resembling a vast sea of green.
 
 *そこは、見渡す限りに深い木々の波が地平の果てまでも届く、まるで緑の大海原の様だった。*
 
 &nbsp;
 
-In such a sea of trees, the wind was blowing and the waves of deep green were rolling, but there was only one place where the trees seemed to have been reaped.
+In this sea of trees, a gentle breeze blew, causing the deep green waves to sway, and there was a place where the trees had been swept away.
 
 *そんな樹林の海に、風が吹き結び深緑の波がなびく中、そこだけ木々が薙ぎ払われた様な場所があった。*
 
-It is a large space with no vegetation and bare rocks and dirt like a wasteland.
+A wide space, devoid of grass, where rocks and clumps of earth were exposed like a wasteland.
 
 *草木も無く、荒地の様に岩や土くれが剥き出しになった広い空間。*
 
-There is a raised plateau overlooking the plaza-like space.
+In this open area, there was a single elevated spot that rose, overlooking the space.
 
 *その広場のような空間を、見下ろす様に隆起した一つの高台がある。*
 
-A figure stood quietly and quietly on top of the rocky hill, which was covered with vegetation.
+On top of that elevated spot, partially covered by vegetation, stood a solitary figure quietly and secretly.
 
 *植物に覆われながら、岩肌を覗かせるその高台の上に、ひとつの人影が静かに、密やかに立っていた。*
 
@@ -55,37 +54,37 @@ A figure stood quietly and quietly on top of the rocky hill, which was covered w
 
 &nbsp;
 
-It stands quietly, without a sense of presence.
+A still figure that exuded an unassuming presence.
 
 *スッと立つ、存在感を感じさせない静かな佇まい。*
 
-Her short bob of red hair, which bounces outward in the wind and shimmers like rubies in the sunlight, stands out even more prominently in the deep green surroundings.
+The short bob of red hair, spreading out as if bouncing outward, shimmered like rubies when the sunlight filtered through, standing out even more in the deep green.
 
 *外に跳ねる様に広がるショートボブの赤い髪は、風になびき陽の光を透すと、ルビーの様な光を振り撒き、深緑の中にあってより一層際立ち煌めいている。*
 
-Her bangs, flowing from right to left, swayed in the wind and gently brushed her left eyelid.
+The bangs flowing from right to left swayed in the wind, gently brushing against the left eyelid.
 
 *右から左へと流れる前髪が、風に揺れて左の瞼を優しげに撫でていた。*
 
 &nbsp;
 
-Both eyes are closed, but the thin, flowing eyebrows suggest the strength of the person's will.
+Both eyes were closed, but the slender eyebrows hinted at the strength of the person's will.
 
 *両の目は閉じているが、細く流れる眉はその人の意志の強さを窺わせる様だ。*
 
-Small but well-shaped and well-striped nose.
+A small but well-shaped nose with a defined bridge.
 
 *小さいが、形の良い筋の通った鼻。*
 
-The little lips, lightly closed, are light pink with light.
+The lightly closed small lips were a pale pink, glistening with light.
 
 *軽く閉じた小さな唇は、光を湛えた薄桃色だ。*
 
-The rounded cheek line, which remained juvenile, led to a small chin.
+The rounded lines of the cheeks, retaining a hint of youth, continued down to a small chin.
 
 *幼さを残す丸みを帯びた頬のラインが、小さな顎へと続いていた。*
 
-It was the face of a beautiful woman with a doll-like appearance.
+It was the face of a beautiful woman with doll-like features.
 
 *それは、人形の様に整った容姿を持つ、美しい女性の面差しだった。*
 
@@ -95,39 +94,39 @@ It was the face of a beautiful woman with a doll-like appearance.
 
 &nbsp;
 
-The graceful body is wrapped in a robust plate armor.
+Her graceful form was wrapped in sturdy plate armor.
 
 *その嫋やかな身を包むのは、頑強なプレートアーマーだ。*
 
 &nbsp;
 
-The dark green base of the body glowed jade green in the light.
+The body, based on a dark green color, shone with a jade hue in the light.
 
 *暗緑色をベースにしたボディは、光によって翡翠色に輝いていた。*
 
-The surface is decorated with many lines of silver and white, combining straight and curved lines, like thorns and ivy.
+Multiple silver lines intertwined in straight and curved patterns, decorating the surface as if thorns and vines were entwined.
 
 *幾条もの白銀のラインが直線と曲線が組みあいながら、茨や蔦が纏いつく様にその表面を彩っている。*
 
-It is supposed to be a solid piece of equipment, but there are many exposed areas of it.
+It was supposed to be solid armor, yet there were many exposed areas.
 
 *堅固な装備のはずだが、その露出部分も多い。*
 
-The arms and thighs were also exposed to the outside, exposing their white skin.
+The upper arms and thighs revealed white skin to the outside.
 
 *二の腕や大腿部は、白い肌も露わに外へ晒していた。*
 
-The bosom is also wide open, and the white cleavage of the well-shaped twin hills cannot help but catch the eye.
+The chest area was also wide open, and the well-shaped white valley of her bosom was hard to ignore.
 
 *胸元も大きく開き、形の良い双丘の白い谷間は、一際目を引かずにはいられない。*
 
 &nbsp;
 
-The belt-like waistband curves gently to show off the lower abdomen, exposing the navel area.
+The belt-like waist armor curved loosely to expose the lower abdomen, revealing the area around the navel.
 
 *ベルトの様な腰当は、下腹部を見せ付ける様に緩いカーブを描き、臍の周りを露わにする。*
 
-The grass skirt hanging back and forth from it, like a dancer's costume with a large slit that hides the inner thighs, also makes the outside of the thighs white and attractive.
+From there, the skirt-like armor hung down, hiding the inner thighs but also showcasing the outer thighs in a manner reminiscent of a dancer's costume with large slits.
 
 *そこから前後に垂れる草摺は、内腿を隠すものの大きくスリットの入った踊り子の衣装の様に、大腿部の外側をも白く魅せている。*
 
@@ -137,17 +136,17 @@ The grass skirt hanging back and forth from it, like a dancer's costume with a l
 
 &nbsp;
 
-A light red cloak fluttered in the wind at his back.
+A pale pink mantle fluttered in the wind behind her.
 
 *薄紅色のマントが、背で風にたなびいている。*
 
 &nbsp;
 
-The shoulders of the cloak are decorated with layers of gold and silver feathers.
+The shoulder of the mantle was adorned with decorations resembling overlapping feathers in gold and silver.
 
 *マントの肩口は、金と銀とで羽根が幾重にも重なるような装飾が施されている。*
 
-On the back of the dress, too, a pattern of sharp-edged feathers like blades is painted in dark purple-red, and embroidery designed to look like tangled ivy is sewn into the edges of the fabric with gold and silver threads.
+On the back, sharp, blade-like feather patterns were depicted in deep crimson, and the edges of the fabric were embroidered with designs of entwined vines in gold and silver threads.
 
 *その背面にも、ブレードの様な鋭角的な羽根の模様が濃い紫紅色で描かれ、生地の端には蔦が絡まる様をデザインした刺繍が、金糸銀糸で縫込まれている。*
 
@@ -157,49 +156,49 @@ On the back of the dress, too, a pattern of sharp-edged feathers like blades is 
 
 &nbsp;
 
-And in his hand is a weapon that is too heavy-duty for a woman to hold.
+And in her hands were weapons that seemed too rugged for a woman to wield.
 
 *そして、その手には女性が持つには武骨な武器。*
 
 &nbsp;
 
-The dull brass-colored blade is so thick that it could easily cut through the bones of a beast.
+The blade, about 70 to 80 centimeters long, shone in a dull brass color and appeared thick enough to easily cut through beast bones.
 
 *刀身は7～80センチだろうか、鈍い黄銅色に輝くブレードは獣の骨さえ容易に断ち切りそうに肉厚だ。*
 
-The blade width was gradually widened as one moved from the tip of the blade to the hand.
+The width of the blade gradually increased from the tip towards the hilt.
 
 *刃先から手元に向かうに従って、少しずつ刃幅が広くなっていた。*
 
-From about one-third of the way down, a spine-like projection begins to emerge, leading to a sword-like section with sharp, lightning-like bumps that resemble a bat with its wings spread backward.
+About a third of the way from the hilt, thorn-like protrusions began to emerge, leading to a sword guard with sharp, lightning-like ridges resembling bat wings.
 
 *手元三分の一程の所からは、棘のような突起が出始め、蝙蝠が羽根を後方へ開いた様な稲妻状の鋭い凹凸のある剣格部分へと続く。*
 
-In the center of the sword is a deep red boulder, from which is carved a relief that looks like the skull of a beast toward the tip of the blade.
+In the center of the sword guard, a deep red gem was embedded, and from there, a relief resembling a beast's skull was carved towards the tip of the blade.
 
 *剣格部分の中心には、深紅色の玉石が埋め込まれ、そこから刃先に向かい獣の頭蓋骨の様なレリーフも彫り込まれている。*
 
-From there, a vein-like ruby-red relief spread toward the spine.
+From there, ruby-red reliefs resembling veins spread towards the thorny parts.
 
 *そこから、血管の様なルビーレッドのレリーフが、棘部分へ向かい広がっていた。*
 
 &nbsp;
 
-The grip is a cone about 30 cm long with a woven handle scroll made of reddish copper fiber to prevent slipping.
+The grip was a 30-centimeter-long cone, wrapped with reddish-brown fibers for a non-slip grip.
 
 *握りは、30センチ程の長さの円錐体で、滑り止めに赤銅色の繊維で柄巻が編込まれている。*
 
-The handle head is decorated with a decoration reminiscent of rinko, also centered on a boulder.
+The pommel was decorated with designs reminiscent of a halo, centered around a gem.
 
 *柄頭には、輪光を思わせる装飾がこれも玉石を中心に施されている。*
 
-In addition, the blade of the sword was covered with a blue aura and emitted a bee stinging discharge of light.
+Furthermore, the blade was surrounded by a blue aura, crackling and emitting light.
 
 *更にその刀身は、青いオーラを纏いバチバチと放電発光していた。*
 
 &nbsp;
 
-Two swords, one in each hand, were held in the left and right hands, showing such an ominous aspect.
+Two such ominous-looking swords were gripped, one in each hand.
 
 *そんな禍々しい様相を示す剣が二振り、左右の手に一本ずつ握られていた。*
 
@@ -209,53 +208,53 @@ Two swords, one in each hand, were held in the left and right hands, showing suc
 
 &nbsp;
 
-Now, the way it had been standing there, not even moving, was about to quietly move.
+Now, in her stillness, a quiet movement was about to begin.
 
 *今、身じろぎもせず佇んでいたその有り様に、静かに動きが起きようとしていた。*
 
 &nbsp;
 
-Her cheeks are gently caressed by the wind and contracted in lovely little circles.
+Her cheeks were gently caressed by the wind, contracting adorably and slightly.
 
 *頬が風に優しく撫でられて、愛らしく小さく収縮する。*
 
-His chest heaved heavily, and he breathed in deeply with uttaris.
+Her chest rose significantly as she took a slow, deep breath.
 
 *胸が大きくせり上がり、ユッタリと深く息を吸い込んだ。*
 
-The eyes twitch and their lids open silently.
+Her eyelids twitched, and slowly, her eyes opened.
 
 *目元がピクリと動き、その瞼が静かに開く。*
 
-The light green light reflects in the open eyes like the shimmering surface of the water.
+As her eyes opened, a pale green light reflected like the shimmering surface of water.
 
 *開く目の中で、水面が煌めく様に薄緑の光が反射する。*
 
-The half-lidded eyelids rise to reveal the reflection of cobalt-green eyes, like those of the clear South Seas.
+With her eyelids raised halfway, it became clear that the reflection was from cobalt green eyes, reminiscent of the clear seas of the South Seas.
 
 *半ばまで瞼が上がった事で、それが澄みきった南洋の海の様な、コバルトグリーンの瞳の反射だと判る。*
 
-Eyes firmly open, they slowly came into focus as if awakening from a long dream, and eventually began to light up.
+As her eyes fully opened, it was as if she had awakened from a long dream, and her pupils slowly focused, eventually beginning to light up.
 
 *しっかりと開いた目は、長い夢から覚めたかの様にゆっくりと瞳の焦点が合い、やがて光が灯りはじめた。*
 
-The eyes, slightly slanted but big enough to be spilling out, are gradually filled with reason.
+Though slightly slanted, her large eyes, spilling with light, gradually filled with reason.
 
 *少し切れ長だが、零れる様な大きな目に、少しずつ理性が宿って行く。*
 
 &nbsp;
 
-Then, slowly turning his head and looking around, he raised his eyebrows quizzically and his mouth moved.
+Then, slowly turning her head to look around, her brows furrowed in suspicion as her lips moved.
 
 *そして、ゆっくりと首を廻らせ周りを見回すと、訝しげに眉を寄せ口元が動いた。*
 
-Lips yukked open and words leaked out.
+Her lips slowly parted, and words escaped.
 
 *唇がユックリ開き言葉が漏れる。*
 
 &nbsp;
 
-Huh?
+"Eh? What is this??"
 
 *「あれぇぇ？？」*
 
@@ -277,67 +276,67 @@ Huh?
 
 &nbsp;
 
-What? Huh?"
+"Eh? What is this??"
 
 *「え？あれぇぇぇぇ？」*
 
 &nbsp;
 
-I repeated it again.
+She repeated once more.
 
 *もう一度繰り返した。*
 
 &nbsp;
 
-（Where am I? I mean, was that my voice?)
+(Where is this? And is that my voice right now??)
 
 *（ココ何処？っていうか今の声、オレ？？）*
 
 &nbsp;
 
-(You have ...... in your hand and a neme sword. ...... (In your hand you have a neme sword ...... and in your hand you have a neme sword ...... and in your hand you are wearing an orajyu)
+(What’s in my hands... I’m holding the Neme sword... And I’m wearing armor... right?)
 
 *（手には……、ネメ剣持っているな……。ンで、オラ重を着ている……と）*
 
 &nbsp;
 
-(So, is this ......, or is this ...... chest, or ......?)
+(And, um... this is... my chest, right??)
 
 *（で、だ……、コレは……胸、……か？？）*
 
 &nbsp;
 
-Thinking of this, he poked his own chest with his fingertips and checked its soft texture.
+Thinking such things, she poked at her chest with her fingertips, confirming the soft sensation.
 
 *そんな事を考えながら、自らの胸元を指先で突き、その柔らかい感触を確認した。*
 
 &nbsp;
 
-Mirror! I demand a mirror!!!!"
+"I want a mirror! I demand a mirror!!!"
 
 *「鏡だ！鏡を要求する！！！」*
 
 &nbsp;
 
-He shouts to no one, but his voice fades into the trees.
+She shouted into the void, but her voice faded among the trees.
 
 *誰へとなく叫ぶが、その声は木々の間へと消えて行く。*
 
 &nbsp;
 
-(...... Well, calm down! Remember first!!!!)
+(...Okay, calm down! First, remember!!)
 
 *（……えーと、落ち着け！まず思い出せ！！）*
 
 &nbsp;
 
-I raise my eyebrows, meditate, and place my finger on my brow. Let's start from what is clear to remember.
+Furrowing her brows, she closed her eyes and placed her fingers on her forehead. For now, she would trace back her memories from what was clear.
 
 *眉を寄せ目を瞑り眉間に指を置く。取敢えず、ハッキリしている所から記憶を辿ろう。*
 
 &nbsp;
 
-(After returning home from work, I ate dinner, took a shower, turned on my PC, and as usual, I turned on the game (......).
+(After returning from work, I ate, took a shower, turned on the PC, and logged into the game as usual...)
 
 *（仕事から帰った後、飯食ってシャワー浴びて、PCを点け、何時もの様にゲームにINして……）*
 
@@ -345,37 +344,37 @@ I raise my eyebrows, meditate, and place my finger on my brow. Let's start from 
 
 &nbsp;
 
-It's an MMORPG that has been going on for over a decade now.
+It was an MMORPG that she had been playing for over ten years.
 
 *もう10年以上続けているMMORPGだ。*
 
-I started when I was 19, so it's been 13 years now.
+She started when she was 19, so it was already her 13th year.
 
 *19歳の時に始めたので、もう13年目になる。*
 
-It is a routine that has been suspended and returned to many times over the past 10 years and continues to linger.
+Over the course of ten years, she had taken numerous breaks and returned, and now she was still casually continuing her routine.
 
 *10年の間には何度も休止や復帰を繰り返し、今もダラダラと続けているルーティーンだ。*
 
 &nbsp;
 
-The character skill level is generally low, as I play more for the enjoyment of raising and developing multiple characters to an even level, rather than raising a specific character to a higher level.
+Rather than leveling up a specific character, she enjoyed raising the levels of multiple characters evenly, so her characters were generally low in skill.
 
 *特定キャラを育て上げる事よりも、複数のキャラのレベルを均等に上げて育成を楽しんでプレイしているので、キャラの練度は総じて低い。*
 
-His character's highest level is below 100, whereas the game's canted level is 150.
+While the game's max level was 150, her highest character level was below 100.
 
 *ゲームのカンストレベルは150であるのに対し、彼のキャラの最高レベルは100より下だ。*
 
 &nbsp;
 
-In the eyes of the top players, they are ordinary people, small fry characters.
+To top players, she was an ordinary person, a weak character.
 
 *トッププレーヤーたちから見れば一般人、雑魚キャラである。*
 
 &nbsp;
 
-Using these small fry characters, I enjoyed playing warmly day after day, completing their daily queries and chatting idly with my friends.
+Using such weak characters, she completed daily quests and chatted casually with friends, enjoying a laid-back playstyle.
 
 *そんな雑魚キャラ達を使い、其々のデイリークエをこなしたり、仲間とダラダラとチャットをしたり、と日々温いプレイを楽しんでいた。*
 
@@ -383,111 +382,111 @@ Using these small fry characters, I enjoyed playing warmly day after day, comple
 
 &nbsp;
 
-Even in my last memory, after hunting with my friends and completing daily quests, I went goofed off and chatted with my friends ...... because the next day was a holiday.
+In her last memory, after hunting with friends and completing daily quests, she had a day off the next day and was chatting excitedly with her friends...
 
 *最後の記憶でも、仲間と狩りをしデイリークエストをこなした後、翌日が休日なこともありグダグダと仲間達とチャットで盛り上がり……。*
 
 &nbsp;
 
-"You fell asleep. ......"
+"I must have dozed off..."
 
 *「寝落ちしたな……」*
 
 &nbsp;
 
-Narhodo! and clap your hands.
+She clapped her hands in realization.
 
 *ナルホド！と手を叩く。*
 
 &nbsp;
 
-This is a dream!"
+"This is a dream!"
 
 *「これは夢か！」*
 
 &nbsp;
 
-He concluded.
+She concluded.
 
 *結論付けた。*
 
 &nbsp;
 
-(In other words, I'm playing the game as the very character I used to use! ...... is a dream!!!)
+(In other words, I’m actually in the character I was using in the game! ...Is this a dream!!)
 
 *（つまり、使っていたキャラその物になってゲームをしている！……って夢か！！）*
 
 &nbsp;
 
-'Nahhhh, this is what lucid dreaming is all about! I've read a lot about it on the internet at ......, but it's so clear! Amazing!"
+"Got it! So this is what they call a lucid dream~~. ...I read about it a lot online, but it’s this clear! Amazing!!!"
 
 *「ナルホドな～、これが明晰夢ってやつかぁ～～。……ネットではよく読んでたけど、こんなにクリアなんだな～。スゲーーーッッ！」*
 
 &nbsp;
 
-Suzy," an enchantment channeler.
+The Enchant Channeler "Suzy"
 
 *エンチャントチャネラーの『スージィ』*
 
-Human Mage female character, that was the last character he used.
+A female human mage character, that was the character she had last used.
 
 *ヒューマンメイジの女性キャラ、それが彼が最後に使っていたキャラだ。*
 
 &nbsp;
 
-The "enchantment channeler" is a support position.
+The "Enchant Channeler" is a support class.
 
 *『エンチャントチャネラー』は支援職だ。*
 
-Their main job is to use enchantment skills to strengthen party members.
+Her main job is to use enchant skills to enhance party members.
 
 *パーティーメンバーを強化する為の、エンチャントスキルを使用するのが主な仕事だ。*
 
-He can also heal to a certain extent, and can equip heavy equipment, so he can also perform a good amount of vanguard work and can solo if he has to.
+She can also heal to some extent and can equip heavy armor, so she can manage frontline roles and can even solo if she pushes herself.
 
 *また多少ではあるが回復も出来、重装備も装備可能なので、そこそこ前衛もこなせて無理をすればソロも出来る。*
 
-So, I used it as my main source of ease of use in my opinion.
+Thus, she found it convenient and used it as her main character.
 
 *なので、自分的には使い勝手が良いとメインで使っていた。*
 
 &nbsp;
 
-And yet, I didn't realize that Suzy's still ......"
+"But still, being in Suzy's body..."
 
 *「それにしても、スージィのまんまとは……」*
 
 &nbsp;
 
-I look down at my body and spin around and look at it.
+Looking down at her body, she twirled around.
 
 *自分の身体を見下ろしながらクルクルと回って見る。*
 
 &nbsp;
 
-"I'm pretty craving ......, huh?"
+"I guess I have some pent-up desires...?"
 
 *「結構、欲求溜ってるの……、かな？」*
 
-(Let's go to Isezakicho one of these days...)
+(I should go to Isezaki-cho soon.)
 
 *（近いうち伊勢佐木町にでも行こー）*
 
 &nbsp;
 
-I thought to myself, as I felt the white cleavage of her breasts peeking out from her armor and enjoyed the sensation of her breasts.
+Thinking while enjoying the sensation of touching the white valley of her chest peeking out from the armor.
 
 *などと、鎧から覗く胸の白い谷間をフニフニと触り、その感触を楽しみながら考えた。*
 
 &nbsp;
 
-But, hey, it's just a dream! It's a dream, so there's female body play!"
+"But hey! Since it’s a dream, playing as a woman is fine!"
 
 *「でも、まっ！夢だから女体プレイもありかっっ！」*
 
 &nbsp;
 
-They seem to have broken it down.
+She seemed to have accepted it.
 
 *割り切ったようだ。*
 
@@ -495,147 +494,147 @@ They seem to have broken it down.
 
 &nbsp;
 
-So, where are we? What forest is this? The map is at ......, why don't you answer it?"
+"So, where is this? What forest is this? The map... isn’t showing up?"
 
 *「で、ココは何処だ？コレ何の森？マップは……、出ないのか」*
 
 &nbsp;
 
-In the game, I could bring up a map and know my current location, but now there is no map or window.
+In the game, she could pull up a map to know her current location, but now, no map or window appeared.
 
 *ゲームでは、マップを出して現在位置を知る事も出来たが、今はマップもウインドウも出ない。*
 
-Looking around, it seems that we are in the middle of a deep forest.
+Looking around, it seemed she was right in the middle of a deep forest.
 
 *周りを見渡すと、どうやらここは深い森のど真ん中らしい。*
 
-The spot where I am standing now has a higher vantage point than the others, but I can't see the end of the surrounding forest.
+The place she was standing was higher than others, offering a good view, but she couldn’t see the end of the surrounding forest.
 
 *今立っている場所は、他よりは高く見晴らしも良いが、周りの森の終わりが見えない。*
 
 &nbsp;
 
-Just in front of this elevation, trees have been cut down to form a square.
+Right in front of this elevated spot, the trees had been cleared, creating a space like a plaza.
 
 *ちょうどこの高台の目の前は、木々が切り開かれ広場の様になっている。*
 
-It is about the size of an athletic field.
+It was about the size of an athletic field.
 
 *陸上競技場程の広さだろうか。*
 
-Only in this space there was no grass or trees, and the surface of the ground was exposed, with rocks of various sizes lying around like a wasteland.
+In this space, no grass grew, and the ground was exposed, with rocks of various sizes scattered about like a wasteland.
 
 *この空間だけ草木も生えず、地肌が露出し荒地の様に大小の岩が転がっていた。*
 
 &nbsp;
 
-(Ruins of an abandoned campground? Some kind of event space?)
+(Is this a deserted campsite? Or some kind of event space?)
 
 *（廃れたキャンプ地跡？何かのイベント空間かな？）*
 
 &nbsp;
 
-"But it's a strangely realistic spec. ....... It would be nice to at least have a window. Radar is ......, is it correct to say that there is radar?
+"But it feels strangely realistic... It would be nice if at least a window would pop up. The radar... oh, does that mean it’s available? I can tell where the mobs are."
 
 *「でも妙にリアル仕様だなぁ……。ウインドウくらい出てくれても良いのに。レーダーは……あ、これは有るって事で良いのか？Mobの居場所が分るぞ」*
 
 &nbsp;
 
-Radar is a function that displays dots of mobs that are not on the screen you are looking at, but are nearby and recognizes their location.
+The radar wasn’t displayed on her screen, but it was a function that showed nearby mobs as dots, allowing her to recognize their locations.
 
 *レーダーは、自分の見ている画面には表示されていないが、近くに居るMobをドット表示して、相手の居場所を認識する機能だ。*
 
 &nbsp;
 
-Mob" stands for Moving Object.
+"Mobs" is short for Moving Objects.
 
 *『Mob』とはMoving Object（ムービングオブジェクト）の略だ。*
 
-It is generally used to mean a crowd (mob), but in the game Suzy was in, it referred to NPCs who acted hostilely, such as monsters.
+Generally, it means crowds (mobs), but in the game Suzy was in, it referred to NPCs that acted hostile, like monsters.
 
 *一般的には群衆（モブ）という意味で使われるが、スージィが居たゲーム内ではモンスター等の敵対行動するNPCを指していた。*
 
 &nbsp;
 
-（It would be easier to understand if I could imagine a GPS-like image. ...... It's really a sensory "understanding". It's a strange feeling. ...... but there are quite a few of them. ......)
+(Is it more like I "know" rather than "see"? If I could think of it like GPS, it would be easier to understand... It really feels like I "know" intuitively. It’s a strange sensation♪ ...But there are quite a few of them...)
 
 *（『見える』んじゃなくて『判る』って感じか？GPSみたいなイメージでも浮かべばまだ分り易いけどなぁ……本当に感覚的に『判る』って感じだ。なんだか不思議感覚♪……でも、結構な数いるなぁ……）*
 
 &nbsp;
 
-I tried to deepen my concentration on one that I recognized to see if I could see any more information.
+Trying to see if she could gather more information, she focused on one she recognized.
 
 *もう少し情報が見て取れないかと、認識した一つに集中を深めてみた。*
 
 &nbsp;
 
-(Do you know the distance and the strength of ......? I know they all look so blue!)
+(I can sense the distance and strength... Everyone has a blue image, though!)
 
 *（距離感とか、強さも判る……のか？みんな真っ青なイメージだけどね！）*
 
 &nbsp;
 
-In the game, opponents with different levels are indicated by color coding.
+In the game, opponents with a level difference were displayed in different colors.
 
 *ゲームに於いて、レベル差がある相手は、色分けで表示される。*
 
-Blue" is a weak opponent who is at least minus 25 levels away from you.
+"Blue" indicates a weak opponent that is more than 25 levels lower than her.
 
 *『青』は、自分よりレベルがマイナス25以上離れている弱い相手だ。*
 
-I don't see the color now, I just "know" that it is so.
+Right now, she couldn’t see the colors; she just "knew" it.
 
 *今は色が見えている訳ではない、只、そうだと『判る』だけだ。*
 
 &nbsp;
 
-(The closest he is to me is about 25-6 meters to the right rear, off this ledge.)
+(The closest one is about 25 to 26 meters to the right and behind me from this elevated spot, huh?)
 
 *（一番近くに居るのは、この高台から降りて、右後方２５～６メートルってとこかな？）*
 
 &nbsp;
 
-Let's just call it a safety margin for now..."
+"For now, let’s play it safe and go for it♪"
 
 *「とりあえず、安全マージンって事でやってみるか♪」*
 
 &nbsp;
 
-Behind this elevation is a steep slope.
+The back of this elevated spot sloped steeply.
 
 *この高台の後方は、急な斜面になっている。*
 
-Head to that target closest to you, running down from the high ground, .......
+She dashed down from the elevated spot towards the nearest target...
 
 *一番近いそのターゲットに向かい、高台から駆け下りながら……。*
 
 &nbsp;
 
-(Skills can be found at ...... Ah, here. This is it?)
+(What about skills... oh, this one. Like this?!)
 
 *（スキルは……あ、コレ。こ、こうかな？！）*
 
 &nbsp;
 
-I'll pull it out!
+"I’m drawing it out!"
 
 *「抜きます！」*
 
 &nbsp;
 
-Assault Dash.
+《Assault Dash》
 
 *《アサルト・ダッシュ》*
 
-Enchantment Channeler Skills
+A skill of the Enchant Channeler.
 
 *エンチャントチャネラーのスキル*
 
-It rushes toward the enemy at high speed and stuns him for a short period of time.
+It allows her to rush towards an enemy at high speed, stunning them for a short time.
 
 *敵に向かって高速で突進し、短時間スタン状態にさせる。*
 
-It's a standard skill for a channeler's first move.
+It’s a standard first move for a Channeler.
 
 *チャネラー初手の定番スキルだ。*
 
@@ -643,51 +642,49 @@ It's a standard skill for a channeler's first move.
 
 &nbsp;
 
-He pointed the two blades in his hands at the enemy, lowered his posture, and kicked the ground.
+She lowered her posture, pointing the two blades she held towards the enemy and kicked off the ground.
 
 *手に持った二本の刃を敵に向け、姿勢を低くし地を蹴った。*
 
 &nbsp;
 
-At that moment, its body, which had become a destructive force, exceeded the speed of sound.
+In that moment, her body transformed into an embodiment of destruction, surpassing the speed of sound.
 
 *その瞬間、破壊の権化と化したその身体は音速を超えた。*
 
 &nbsp;
 
-The moment when the target is reached, smashing the trees in the line of fire and instantly closing the distance of about 20 meters, with a roar that breaks through the sound barrier and roars around it.
+With a thunderous roar that shattered the sound barrier, she crushed the trees in her path and closed the distance of about 20 meters in an instant, reaching her target.
 
 *音の壁を突き破る轟音を周りに轟かせながら、射線上の樹木を粉砕し、20メートルほどの距離を一瞬で詰め、ターゲットに達した瞬間。*
 
 &nbsp;
 
-The bomb!
+"Did it explode!!??"
 
 *「爆ぜたぁぁぁっっ！！？？」*
 
 &nbsp;
 
-The thing that looked like a huge beast, which should have been an ominous presence, exploded at that moment.
+What had appeared to be a massive beast, which should have been an ominous presence, burst apart at that moment.
 
 *禍々しい存在であった筈の、巨大な獣に見えたそのモノは、その瞬間爆散した。*
 
 &nbsp;
 
-In order to brake, he drills his foot and moves forward another 10 meters, scraping the earth, and stops.
+To slow down, she dug her feet into the ground, scraping the earth as she continued for another 10 meters before coming to a stop.
 
 *制動をかける為、足を穿ち、大地を削りながら更に１０メートルほど進んで停止する。*
 
-Leaving a vicious claw mark on the land.
+Leaving behind vicious claw marks on the ground.
 
 *凶悪な爪痕をその地に残して。*
 
 &nbsp;
 
-It's not even close to ...... overkill."
+"…That was a bit of an overkill."
 
 *「……オーバーキルにも程がある」*
-
-
 
 &nbsp;
 
@@ -699,13 +696,12 @@ Thank you for reading.
 
 &nbsp;
 
-We would appreciate it if you could point out any misspellings or omissions, or anything that is not correct in the Japanese language. Thank you very much.
+If you notice any typos or anything that seems off in Japanese, I would appreciate your feedback. Thank you very much <(_ _)>
 
 *誤字脱字、日本語としておかしい等ございましたらご指摘いただけると幸いでございます。よろしくお願い致します<(_ _)>*
 
 &nbsp;
 
-7/4 Corrected a typographical error.
+I corrected typos on 7/4.
 
 *7/4誤字修正しました。*
-
