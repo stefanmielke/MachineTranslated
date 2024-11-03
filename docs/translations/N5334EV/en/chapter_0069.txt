@@ -390,6 +390,8 @@ Well, it’s practically “again”...
 
 <b>
 
+<b>
+
 Today is the 4th of the second month. It has already been six days since Howard and the others set out.
 
 <b>
@@ -466,7 +468,9 @@ And the invitation from Mr. Cameron Fourier only further aggravated my troubled 
 
 <b>
 
-Mr. Fourier’s invitations were not new; they had been ongoing since the very first dinner on the day the investigation team departed.
+Mr. Fourier’s invitations were not new;
+
+they had been ongoing since the very first dinner on the day the investigation team departed.
 
 <b>
 
@@ -620,6 +624,8 @@ Ugh, please stop...
 
 <b>
 
+<b>
+
 As I thought about this and felt like I might implode, I decided to take a moment to calm down by having tea in our family’s living room.
 
 <b>
@@ -746,7 +752,11 @@ They look much blurrier than those in the original world. They resemble the phot
 
 <b>
 
-Now, several photos that Sonia Mama brought from home were placed on the mantelpiece in this living room.
+Now, on the mantelpiece in this living room, there were several photos brought from home.
+
+Since they probably wouldn’t be able to return home for a while, Sonia’s mom had brought them along.
+
+<b>
 
 There were individual photos of me, Sonia Mama, and Howard Papa. A family photo of the three of us. A young photo of Howard Papa. A young photo of Sonia Mama. And... a photo of Lavie.
 

@@ -1,351 +1,350 @@
-# 52 - Flooding of the Amkam Forest
+# Episode 52: The Flood in the Amukam Forest
 
 ## 52話　アムカムの森の氾濫
 
-Thank you very much for your patience.
+Thank you for your patience.
 
 *大変お待たせしております。*
 
-This is my last series of posts for this year over the year-end and New Year's holidays.
+This is the last series of posts for this year, spanning the end of the year and New Year.
 
 *年末年始にかけて、今年最後の連続投稿です。*
 
 &nbsp;
 
-The plan is to drop 5 episodes, and if we can make it, another one or two....
+I plan to post 5 episodes, but if I can manage, maybe one or two more...
 
 *予定では5話投下予定ですが、間に合えばもう1話か2話も…。*
 
-......Ganbatte! pT^T
+...I'll do my best! pT^T
 
 *……がんばりまつ！pT^T*
-
 
 ----------------
 
 &nbsp;
 
-The last day of "The Trials.
+The final day of the "Trial."
 
 *『試練』最終日。*
 
-The forest was buzzing that morning.
+The forest that day was buzzing from the morning.
 
 *その日の森は朝からザワついていた。*
 
 &nbsp;
 
-The morning was spent doing "kata practice," which has become completely routine.
+In the morning, I spent my time practicing my "forms," which has become a daily routine.
 
 *午前中は、すっかり日課になっている『型練習』をして過ごしていた。*
 
-I tried to do a little magic on the sword today. ......
+Today, I tried adding a little magical power to my sword...
 
 *今日は剣に少しだけ魔力を乗せてやってみたのだけれど……。*
 
 &nbsp;
 
-This is different from putting "Ki" into it, and is unexpectedly difficult.
+This is quite different from infusing "ki," and surprisingly difficult.
 
 *これが『氣』を籠めるのとは勝手が違い、思いの外難しい。*
 
 &nbsp;
 
-If you don't swing the sword with a keen awareness, the magic power will flow out without your permission.
+If I don't consciously swing the sword, the magical power flows out uncontrollably.
 
 *シッカリ意識して剣を振らないと、魔力が勝手にドンドン流れ出てしまうのだ。*
 
-Is this a good way to train to control the flow of magic?
+Is this training just right for controlling the flow of magical power?
 
 *魔力の流れをコントロールする訓練には丁度良いのかな？*
 
-This might be a good addition to the daily training menu after returning to the village!
+I might want to add this to my daily training regimen when I return to the village!
 
 *これは村に戻ってからも、日々の修練メニューに加るのも良いかもね！*
 
 &nbsp;
 
-Eventually, the morning passes uneventfully...
+Eventually, the morning passed without incident...
 
 *やがて何事も無く午前中が過ぎて行く…。*
 
-During the training, I found out that Aria had left the campsite.
+I noticed Aria had left the campsite during my training.
 
 *修練中にアリアがキャンプ地を出たのが分った。*
 
-It seems that they have already finished their lunch.
+It seems she had already finished lunch.
 
 *アチラは既にお昼を済ませた様だ。*
 
-I continued my training for a little while longer and then decided to have a light lunch.
+I decided to continue my training a little longer and then have a light lunch afterward.
 
 *わたしはもう少しだけ修練を続け、その後軽くお昼を頂く事にした。*
 
-After the meal, we took some time to yukkuri, unwind, and get equipped.
+After the meal, I took my time to loosen my body and prepare my equipment.
 
 *食事の後はユックリと時間をかけて体をほぐし、装備を整えた。*
 
 &nbsp;
 
-Tie your hair back with a string and put it together.
+I tied my hair back with a string.
 
 *髪を後ろで紐で結んで纏める。*
 
-During the "ordeal," I sealed off my usual picktail and stayed in this short, easy ponytail.
+During the "Trial," I had sealed my usual pigtails and had been keeping it simple with this short ponytail.
 
 *『試練』中はいつものピックテールは封印して、簡単なこの短めのポニーテールで過ごしてた。*
 
-After gathering his hair, he places the two silver-white swords in his sword holster and checks the throw-in knife in the knife sheath that hangs around his waist.
+After tying my hair, I sheathed my two silver swords in their holsters and checked the knife sheath hanging around my waist.
 
 *髪を纏めてから二本の白銀剣をソードホルスターに収め、腰回りに吊るしたナイフシースのスローインナイフを確かめる。*
 
-The sheath knife strapped to the leg was also pulled out and checked to make sure it fit.
+I also confirmed the sheath knife strapped to my leg, pulling it out and checking its fit.
 
 *脚に括り付けてあるシースナイフも、抜き差しして収まりを確認した。*
 
-Then, without putting on a cloak, they go directly outside the encampment.
+Then, without putting on my cloak, I stepped outside the campsite.
 
 *そして外套は着けずに、そのまま野営地の外に出る。*
 
 &nbsp;
 
-I don't intend to hunt here anymore.
+I have no intention of hunting here anymore.
 
 *もう此処で狩をするつもりは無い。*
 
-And the "ordeal" ends tomorrow.
+The "Trial" ends tomorrow.
 
 *『試練』も明日で終わりだしね。*
 
-There is more than enough food.
+I have more than enough food.
 
 *食料は十分すぎる程ある。*
 
-I plan to take the remaining food back home with me as souvenirs.
+I plan to take the leftover food back as souvenirs.
 
 *残った食料は、お土産として持って帰るつもりだ。*
 
-Is the fur of the Horned Rabbit and the yarn of the Crowler enough for a week's worth of hunting? I think so.
+I think the fur of the horned rabbit and the crawler silk are sufficient as the results of a week of hunting.
 
 *角兎の毛皮や、クロウラーの糸も、一週間の狩りの成果としては十分かな？と思ってる。*
 
 &nbsp;
 
-So it is not hunting that we are headed for.
+So, what I’m heading towards now is not hunting.
 
 *だからこれから向かうのは狩猟では無い。*
 
-It's a demonic beast defeat.
+It’s the subjugation of magical beasts.
 
 *魔獣討伐だ。*
 
 &nbsp;
 
-When we descended from the small mountain where we had set up camp and arrived at the lowland valley to the east, the magical beast was already there.
+As I descended from the small hill that served as our campsite, I arrived at the lowlands of the eastern valley, where magical beasts were already present.
 
 *野営地にしている小山から降りて、東側の谷間になっている低地へ着くと既に魔獣が居た。*
 
-Well, I knew that, so I came down here.
+Well, I knew this would be the case, which is why I came down here.
 
 *まあ、分ってたから此処へ降りて来たんだけどね。*
 
 &nbsp;
 
-The Green Frog.
+"Green Frog"
 
 *『グリーン・フロッグ』*
 
-Threat value 0.8 It's a large frog monster.
+Threat Level 0.8, a large frog magical beast.
 
 *脅威値0.8　大型の蛙の魔獣だ。*
 
-The dog is about 80 centimeters long, and I'd say it's a medium-sized dog.
+Its body length is about 80 centimeters, roughly the size of a medium-sized dog.
 
 *体長は凡そ80センチ、大きさは中型犬ってトコかな？*
 
-He is an omnivore, a voracious one who considers anything that moves as food, except himself.
+It’s omnivorous and seems to think anything that moves, other than itself, is food.
 
 *雑食性で、動く物なら自分以外は何でも餌だと思ってる様な貪欲なヤツだ。*
 
-They are supposed to be demonic beasts that don't tend to congregate, but here they are, ten of them, gibbering away in this narrow valley.
+It’s supposed to be a magical beast that doesn’t usually gather in groups, but there are about 10 of them croaking in this narrow valley.
 
 *あまり群れる事の無い魔獣の筈なんだけど、それが10匹ばかりこの狭い谷間にゲコゲコと居る。*
 
 &nbsp;
 
-As I stepped into the valley, the frog closest to me flicked its long tongue at me.
+Just as I stepped into the valley, the closest frog shot its long tongue at me.
 
 *わたしが谷に足を踏み入れたところで、一番近くに居たカエルがわたしに長い舌を飛ばして来た。*
 
-When they see something moving, they immediately extend their tongues!
+Really, it stretches its tongue the moment it sees something moving!
 
 *ホント、動く物を確認すると忽ち舌を伸ばして来ンのね！*
 
-I will do my best to avoid getting wrapped up in such a thing and getting coated in mucous membranes!
+I absolutely want to avoid getting wrapped up in that and covered in slime!
 
 *そんなモンに巻かれて、粘膜に塗れる様な事態は全力で遠慮しますから！*
 
-I refuse to play with mucous membrane tentacles!
+I absolutely refuse to engage in any slime tentacle play!
 
 *わたし、粘膜触手プレイとかゼッテーー拒否ですので！*
 
-That's just in my fantasy! Only in my fantasy. ............ Yeah, it's nothing. ......
+Not happening! Just in my imagination… uh, never mind...
 
 *そんなモンはね！妄想の中だけでねっ…………ぃえ、ナンでもないですぅ……。*
 
 &nbsp;
 
-I'm not going to be able to do that! I'll finish it quickly!
+Ugh, this is a hassle! Let’s finish this quickly!
 
 *ンも、メンドクサッなので！サクッと終わらせる！*
 
 &nbsp;
 
-He slashed away the tongue covered with mucous membrane coming toward him with his drawn right sword, moved quickly to the front of the main body, and slashed it open in half from the head as it was.
+I slashed the incoming slimy tongue with my right sword, moved swiftly to its front, and cleaved it in two from head to tail.
 
 *向かって来る粘膜まみれの舌を抜いた右の剣で斬り飛ばし、本体の前までサクッと移動して、そのまま頭から真っ二つに斬り開いた。*
 
-In addition, there was one right beside me, so I pulled out my left sword and slashed it down from above, slicing it into a circle.
+There was another one nearby, so I drew my left sword and sliced it from above, cutting it into rounds.
 
 *ついでに真横にも一匹いたので、左の剣を抜いて上から斬り落とし輪切りにした。*
 
 &nbsp;
 
-The rest of the frogs were also cut without pause, tontontontonton...vertically, horizontally, and diagonally, and that was the end of it.
+Without delay, I swiftly dispatched the remaining frogs, slicing them vertically, horizontally, and diagonally.
 
 *残りの蛙も間を置かずトントントンッ…と、縦に横に斜めにと切断して終わりだ。*
 
 &nbsp;
 
-I hear there is a good demand for the skins of these guys, but I don't want to waste time collecting them now, so I'll just leave it at that.
+Their skins seem to have some demand, but I don’t have time to collect them now, so I’ll leave them as they are.
 
 *コイツらの皮はそれなりに需要はあるらしいんだけど、今は回収してる時間が勿体ないので、このまま放置する。*
 
 &nbsp;
 
-Immediately, he moved toward the beast that was advancing on us from further back.
+Immediately, I moved towards the magical beasts advancing from further in.
 
 *直ぐ様、さらに奥の方から此方に進攻している魔獣に向け移動した。*
 
 &nbsp;
 
-Little Killer Bee."
+"Little Killer Bee"
 
 *『リトル・キラービー』*
 
-Threat value 0.6 As the name suggests, it is a bee magical beast.
+Threat Level 0.6, as the name suggests, a bee magical beast.
 
 *脅威値0.6　名前の通り蜂の魔獣。*
 
-What's so little about a bee the size of your fist? I'm not sure, but there are about 20 or so of them headed this way.
+These bees are about the size of a fist, and I wonder where the "little" comes from? There are about twenty of them heading this way.
 
 *拳大の大きさの蜂で、どこがリトルなんだ？と言う気もするが、それが20数匹此方に向かってる。*
 
 &nbsp;
 
-They are highly aggressive and ferocious bees, so normally, when children encounter a swarm of this size, it would be a bad idea to run away immediately. ......
+They are highly aggressive and vicious bees, so normally, if children encountered such a swarm, they would need to run away immediately...
 
 *攻撃性の高い凶暴な蜂なので、普通、子供達がこれだけの群れに出会ったら直ぐ様逃げ出さないと不味いんだけど……。*
 
-Well, I couldn't run away, so I rushed into the herd and knocked them off one by one.
+But, since I can’t run away, I charged into the swarm and knocked them down one by one.
 
 *ま、わたしが逃げる訳にも行かないので、群れに突っ込んで片っ端から叩き落とした。*
 
 &nbsp;
 
-After knocking off all the bees, I turn my attention to the yellow stains that cling to my feet and to the trunks and branches of the trees.
+After knocking down all the bees, I turned my attention to the yellow stains clinging to the ground and wrapping around tree trunks and branches.
 
 *蜂を全部叩き落とした後は、足元のアチラコチラや、木の幹や枝に纏わり着く黄色い染みに意識を向ける。*
 
 &nbsp;
 
-Yellow Ooze.
+"Yellow Ooze"
 
 *『イエロー・ウーズ』*
 
-Threat value 0.2 It is a slime-like viscous demonic beast.
+Threat Level 0.2, a slime-like magical beast.
 
 *脅威値0.2　スライム的な粘体の魔獣だ。*
 
-There are more than 20 objects about the size of a cushion.
+There are about twenty of them, each the size of a cushion.
 
 *お座布団程の大きさの物が20数体いる。*
 
-They are more like slime than slime, and these lowly oozes spread out and move slowly...but they seem to move strangely fast, don't they?
+These are more like slime molds than slimes, and among the ooze types, these lower-tier ones spread and move slowly... but they seem to be moving unusually fast?
 
 *コイツらはスライムと言うより粘菌みたいな物で、ウーズ類の中でも低位のコイツらは、ジワリジワリと広がり移動する…んだけど、何かコイツらは妙に動きが速いかな？*
 
 &nbsp;
 
-If you get caught by these guys, they cling to you like a torimochi and you can't peel them off.
+If you get caught by them, they stick to you like glue and are hard to peel off.
 
 *コイツ等に捕まるとトリモチみたいに引っ付いて来て中々剥がせない。*
 
-They will try to digest and absorb it directly while attached on top of it.
+Moreover, they try to digest and absorb you while still attached.
 
 *その上でくっ付いたまま直接消化吸収しようとして来る。*
 
-Human skin is not easily melted by them, but this is not the case with cloth, so they are quite nasty people who can cause trouble if they get attached.
+Human skin isn’t easily dissolved by them, but fabrics are not so resistant, so getting attached can lead to quite a troublesome situation.
 
 *人の皮膚はコイツら程度では簡単に溶かされる事は無いんだけど、布とかはその限りでは無いので、取り付かれると困った事になる結構嫌な奴等だ。*
 
-Moreover, when several of them gather together, they become a large individual and are troublesome, and they are not someone you can do anything about with a blade.
+Furthermore, when they gather in groups, they can become a large troublesome individual, and they aren’t something you can deal with using blades.
 
 *更に複数が集まると大きな個体になって厄介だし、刃物でどうこう出来る相手でもない。*
 
 &nbsp;
 
-Well, it's still not hard to deal with.
+Well, they aren’t difficult to handle, though.
 
 *ま、それでも対処は難しくないんだけどね。*
 
 &nbsp;
 
-Therefore, the "dry" from the firewood production is used against these guys.
+So, I used the "Dry" spell I created while making firewood against them.
 
 *というわけで、薪を作った時の《ドライ》をコイツらに対して使う。*
 
-In no time at all, they were dry, crumbly, crumbly, powdery, and scattered.
+In no time, they dried out, became crumbly, and scattered like powder.
 
 *あっという間に乾燥して、カサカサになり、砕けて粉の様に成って散って行った。*
 
-The hurricane of the world's largest hurricane! Nanchichi!
+It’s like a s〇 hurricane!! What a sight!
 
 *るス〇ハリケーン！！なんちっち！*
 
 &nbsp;
 
-The fact that these beasts are swarming in rapid succession must have something to do with the forest's rumblings, I suppose.
+The fact that so many magical beasts are gathering like this must be related to the commotion in the forest.
 
 *立て続けにこうも魔獣共が群れを成しているのは、やはり森のザワつきに関係してるんだろね。*
 
 &nbsp;
 
-It's at ....... The source of that zawah...they're already there.
+...And the source of that commotion... they are already approaching.
 
 *……で、だ。そのザワつきの元が…連中がもうそこまで来てる。*
 
 &nbsp;
 
-Do you think Millie has noticed? No...she hasn't noticed.
+I wonder if Millie has noticed? No... she hasn’t noticed.
 
 *ミリーさんは気が付いているかな？いや…気付いて無いな。*
 
-These guys are very skilled at removing signs.
+Those guys have a high skill in concealing their presence.
 
 *あいつ等は気配を消すスキルが高い。*
 
-In addition, Millie's attention is on me.
+Moreover, Millie’s focus is on this side... on me.
 
 *おまけにミリーさんの意識は此方に…わたしに向いている。*
 
-I'm not pointing it at the search.
+She isn’t searching for them.
 
 *索敵に向けてる訳じゃ無い。*
 
 &nbsp;
 
-They are unintentionally exploiting that gap in Millie's perception.
+They are unintentionally taking advantage of the gap in Millie’s awareness.
 
 *奴らは、ミリーさんのその認識の隙を意図せず突いて居る状態だ。*
 
@@ -353,79 +352,79 @@ They are unintentionally exploiting that gap in Millie's perception.
 
 &nbsp;
 
-They are the magical beasts that have been rattling the forest since this morning and are coming this way.
+Those beasts have been stirring up the forest since morning and are heading this way.
 
 *奴等、朝から森をざわめかせ此方へ向かって来ている魔獣共。*
 
-They were coming up in schools from about 7 to 8 kilometers back from here, in what is known as the mid-water area.
+They are coming from about 7 to 8 kilometers deep, from what is said to be the mid-layer.
 
 *凡そ此処から7～8キロ程奥、中層と言われている所から群れで上がって来ている連中。*
 
 &nbsp;
 
-Red Pongo
+"Red Pongo"
 
 *『レッドポンゴ』*
 
-It is an ape-like magical beast, over 180 in length.
+A magical beast resembling an ape, over 180 centimeters in length.
 
 *体長180を超える類人猿の様な魔獣だ。*
 
-Its body is like that of a mountain gorilla, but its long, rust-colored body hair, from which it takes its name, is reminiscent of that of an orangutan.
+Its body is like that of a mountain gorilla, but its long, rust-colored fur, which gives it its name, reminds one of an orangutan.
 
 *体躯はマウンテンゴリラの様だけど、その名前の由来の長く赤錆色の体毛はオラウータンを思わせる。*
 
-In his dark skin, his scarlet eyes shone with a light that was typical of a demonic beast.
+Amidst its dark skin, its crimson eyes emit a beastly light.
 
 *黒々とした肌の中、緋色の眼が魔獣らしい光を放っていた。*
 
-These guys are one of those vicious magical beasts that attack their prey in large packs.
+These creatures are one of the vicious magical beasts that attack prey in large groups.
 
 *コイツらは大きな群れで獲物を襲う、凶悪な魔獣の一つだ。*
 
 &nbsp;
 
-Its threat value is 16.
+Their threat level is 16.
 
 *その脅威値は16。*
 
-It is not a magical beast that appears in the shallow layer, but Millie can beat it in a one-on-one, head-to-head fight.
+They are not beasts that appear in shallow layers, but if it’s one-on-one, Millie should be able to win against them without issue.
 
 *とても浅層に現れる魔獣では無いけど、１対1で真正面からやり合えばミリーさんなら十分勝てる相手だ。*
 
 &nbsp;
 
-But you never know what will happen if they strike first.
+However, I don’t know what will happen if they get the first strike.
 
 *けれど、先制を受けたらどうなるか判らない。*
 
-But we have both Irta and Ketty, so we can hold up well enough ......, but now that Aria is gone, it's very hard to keep the front line going....
+But with Irta and Keti here, we should be able to hold our ground... but maintaining the front line is quite tough without Aria...
 
 *でも、イルタさんもケティさんも居るから十分持直せる……けど、アリアが居ない今、戦線の維持はかなり厳しい…。*
 
 &nbsp;
 
-But, however! I have no intention of injuring Mr. Millie in sight!
+But still! I have no intention of letting Millie get hurt!!
 
 *だがしかーし！見す見すミリーさんを怪我させる気は毛頭無い！！*
 
 &nbsp;
 
-So I throw a throw-in knife at one of them that is approaching Mr. Millie.
+So, I threw a slow-throw knife at one that was approaching Millie.
 
 *なので、ミリーさんに近付いている一匹に向けてスローインナイフを投げ放つ。*
 
-The distance between Millie and Red Pongo is approximately 5 meters.
+The distance between Millie and the Red Pongo is about 5 meters.
 
 *ミリーさんとレッドポンゴとの距離は凡そ5メートル。*
 
-With their leg strength, they could reach it in one leap.
+With their leg strength, they could reach her in a single leap.
 
 *奴らの脚力なら一跳びで届く距離だ。*
 
 &nbsp;
 
-He fired a knife at the guy who was aiming at Mr. Milly with an underhanded underhanded underhanded underhanded throw.
+I threw the knife with an underhand throw, aiming directly at the one targeting Millie without holding back.
 
 *その、ミリーさんを狙い澄ましている奴目掛け、手加減抜きでアンダースローでナイフを飛ばした。*
 
@@ -433,101 +432,101 @@ The distance from here is about 40 meters.
 
 *此処との距離は40メートルってトコかな？*
 
-The sound of the knife cutting the air is heard! and the sound of cutting the atmosphere, a throw-in knife sent flying from the valley gouges the mountain surface with a high-speed rotation and rises toward the target.
+With a whoosh that cut through the air, the slow-throw knife launched from the valley, spinning rapidly as it gouged into the mountainside, rising towards its target.
 
 *ギュンッ！と大気を切る音を響かせ、谷間から飛ばしたスローインナイフが高速回転で山肌を抉り、的に向かって昇り上がる。*
 
-The next moment it ripped through the torso of the red pongo that was the target and blew out its cranium.
+In the next moment, it tore through the torso of the Red Pongo and blew off its skull.
 
 *次の瞬間には的であったレッドポンゴの胴体を裂き、頭蓋を吹き飛ばした。*
 
 &nbsp;
 
-Recognizing the popping red pongo, Millie and the others seemed to realize what was happening.
+Recognizing the exploded Red Pongo, it seems Millie and the others noticed the situation.
 
 *弾け飛んだレッドポンゴを認識して、ミリーさん達も事態に気が付いた様だ。*
 
-Immediately, Irta casts a defensive spell and Ketty buffs it.
+Immediately, Irta began casting defensive magic, and Keti cast a buff.
 
 *直ぐ様イルタさんが防御の魔法を唱え、ケティさんがバフを掛ける。*
 
 &nbsp;
 
-Immediately I pull out my remaining throw-in knife.
+I quickly pulled out the remaining slow-throw knives.
 
 *直ぐ様わたしは残りのスローインナイフを引き抜く。*
 
-Two knife sheaths are attached around the waist on each side.
+I have two knife sheaths on each side of my waist.
 
 *左右の腰回りには二つずつナイフシースを付けている。*
 
-There are four knife sheaths in total, and three throw-in knives fit in one.
+There are a total of four knife sheaths, each holding three slow-throw knives.
 
 *ナイフシースは全部で４つ、一つにスローインナイフは三本収まっている。*
 
-Twelve in all...I had already taken care of one, so I threw the remaining eleven throw-in knives in rapid succession as I ran up and down the valley.
+In total, there are 12 knives... having already taken care of one, I quickly threw the remaining 11 slow-throw knives as I ran up the valley.
 
 *全部で12本…既に1匹片付けているので、残り11本のスローインナイフを谷間を駆け上がりながら矢継ぎ早に投擲して行った。*
 
 &nbsp;
 
-The eleven spinning blades cut down the mountain and cleave the grass and trees, cutting the enemy in two, one after the other.
+As I cut through the mountain and swept away the grass and trees, the 11 spinning blades severed the enemies one after another.
 
 *山を削り草木を薙ぎ払いながら、11本の回転する刃が敵を次々と両断して行く。*
 
 &nbsp;
 
-He used up all the throw-in knives he had on hand and killed 12 red pongos.
+Having used all the slow-throw knives I had on hand, I took down 12 Red Pongos.
 
 *手持ちのスローインナイフを全て使い切り、レッドポンゴ12匹を仕留めた。*
 
-Between now and then, Millie and the others should be ready to go.
+By this time, Millie and the others should have gotten their bearings.
 
 *この間でミリーさん達も態勢が整った筈。*
 
 &nbsp;
 
-I made eye contact with Millie as I ran past her, and then ran directly into the back of the herd.
+I ran past Millie, making eye contact, and then dashed into the depths of the group.
 
 *わたしはミリーさんの近くを走り抜きながらアイコンタクトを取り、そのまま群れの奥へと走り込んだ。*
 
 &nbsp;
 
-At any rate, there are still about five red pongos visible at close range.
+For now, I can still see about 5 Red Pongos nearby.
 
 *取敢えず、近距離にはまだ5匹ほどのレッドポンゴが目視できる。*
 
-Leave this to me and I will destroy those in the back.
+I’ll leave these to them and eliminate the ones deeper inside.
 
 *これをお任せして、わたしは奥に居る連中を殲滅する。*
 
 &nbsp;
 
-The total number of flocks was 53.
+The total number of the group is 53.
 
 *群れの数は全部で53だった。*
 
-We have already crushed 12 and left 5 to them, so we have 36 left!
+Having already taken down 12, and leaving 5 to them, that leaves 36 remaining!
 
 *既に12を潰し、5匹は任せるので残りは36匹！*
 
 &nbsp;
 
-With Aria, 53 red pongos would have been an easy win for the four of us, but now we don't have that wall of control.
+If Aria were here, taking down 53 Red Pongos would have been a piece of cake for the four of us, but now that wall of restraint is absent.
 
 *アリアが居れば53匹のレッドポンゴなんて4人で楽勝だったろうけど、今はその抑えの壁が居ない。*
 
-But if you look at the firepower alone, I'm told that Millie is approaching the top group, and three people should have no problem at all with about five of them.
+However, if we’re just looking at firepower, Millie is said to be approaching the upper tier. Three of us should have no problem with about 5.
 
 *でも火力だけ見れば、ミリーさんは上団位に迫ると言う話だ。5匹くらいは3人で全く問題無い筈。*
 
 &nbsp;
 
-I rushed straight into the center of the herd.
+I charged straight into the center of the group.
 
 *わたしはそのまま群れの中心に向け突入して行った。*
 
-These guys were probably hiding to attack the second and third wave after the first 17 attacked Millie and the others, but they were obvious to me since ...... morning!
+These 17 that attacked Millie and the others must have been hiding to launch a second and third wave... But I had seen through them since this morning!
 
 *コイツらは先発の17匹がミリーさん達を襲った後、第二波、第三波として襲う為に隠れていたのだろうけど……朝からわたしにはバレバレだったっての！*
 
@@ -535,31 +534,31 @@ These guys were probably hiding to attack the second and third wave after the fi
 
 &nbsp;
 
-But why did these guys come up from the middle of the water?
+Still, why did they come up from the mid-layer?
 
 *それにしてもコイツら、何で中層から態々上がって来たんだろ？*
 
-I can't believe they are coming up in packs from that far back. ...... This is a pattern I've never seen before.
+It’s unusual for them to come up in a group from that deep... This is a pattern I haven’t seen before.
 
 *そんな奥から群れで上がって来るなんて……。これは今までにないパターンだ。*
 
 &nbsp;
 
-Sometimes there were some magical beasts that came up from shallower water than these guys, but four or five at the most were good.
+There have been magical beasts that have come up from shallower areas occasionally, but at most, it was 4 or 5.
 
 *時々コイツらより浅い所から上がって来る魔獣は居たけど、精々4～5匹が良い所だった。*
 
-Like that "Red Death Stalker".
+Like that "Red Death Stalker."
 
 *あの『レッドデスストーカー』みたいにね。*
 
 &nbsp;
 
-......... Well, not without exceptions... like "Two Head Bore" and "Grey Wolf" who faced off against Howard Papa last year. ...... awa... I'm not sure how much of that is true, but I'm sure it's true.
+...Well, there are exceptions... like the "Two-Headed Boar" and "Gray Wolf" that I faced last year with Papa Howard... Oh dear.
 
 *………まあ例外が無い訳では無い…、昨年ハワードパパと対峙した『ツーヘッドボア』や『グレイウルフ』みたいなね……アワワ。*
 
-Oh, that was a sudden exception caused by unforeseen circumstances! It never happens that often! ...... Un, it doesn't!
+That was an unexpected situation caused by unforeseen circumstances! It’s not something that happens often! ...Right, it doesn’t happen!!
 
 *あ、あれは不測の事態が引き起こした突発的な例外であって！決してそうそう起こる事では無い！……ウン、無いのだ！！*
 
@@ -567,39 +566,39 @@ Oh, that was a sudden exception caused by unforeseen circumstances! It never hap
 
 &nbsp;
 
-In any case, if we leave it at that, these guys will reach the village.
+In any case, if I leave them be, they will reach the village.
 
 *いずれにしても、このままにしておけば此奴らは村に辿り着く。*
 
-It's pretty much spread out and scattered east and west, but I'm not going to let it pass by in a straightforward manner.
+They are quite spread out east and west, but I have no intention of letting them pass through easily.
 
 *結構東西に広がって散っているけど、このまま素直に通してやる気は無い。*
 
 &nbsp;
 
-I guess I could easily wipe them out by shooting them with "Impact Blaster", but I can't use such a fancy skill because of the eyes of ...... Millie and her friends!
+I could easily wipe them out with an "Impact Blaster," but... since Millie and the others are watching, I can’t use such flashy skills!
 
 *いっそ『インパクト・ブラスター』でも撃ちまくれば楽に一掃出来るんだろうけど……ミリーさん達の眼があるので、そんな派手なスキルは使えない！*
 
 &nbsp;
 
-So we cut them off one by one!
+So, I’ll slice them down one by one!
 
 *なので、一匹ずつ斬り飛ばす！*
 
 &nbsp;
 
-They were scattered all over the place, on top of trees or hiding in bushes, but there were only 36 of them!
+They are scattered, hiding in trees or bushes, but there are only 36 of them!
 
 *結構アチラコチラ、木の上だったりブッシュに隠れて居たりで散らばっているけど、たった36匹だ！*
 
-Compared to that time when the number of entries was close to four digits, ...... is nothing to worry about!
+Compared to the time I faced a number approaching four digits... this is nothing!!
 
 *四桁に迫る数を熟したあの時に比べれば……、どーと云う事は無いのだYo！！*
 
 &nbsp;
 
-With each flash of his sword, he would split his body in two...it took less than a minute to repeat the process 36 times.
+With each swing of my sword, I split their bodies in two... and it took less than a minute to repeat that 36 times.
 
 *剣を一閃させる毎にその身体を二つに分ける、…それを36回繰り返すのに結局一分と掛らなかった。*
 
@@ -621,29 +620,29 @@ With each flash of his sword, he would split his body in two...it took less than
 
 &nbsp;
 
-When I returned to Millie and the others, I was about to put a stop to the last one.
+When I returned to Millie and the others, they were just finishing off the last one.
 
 *ミリーさん達の所へ戻ると、最後の一匹の止めを刺す所だった。*
 
 &nbsp;
 
-I glanced at two individuals that looked like they had been smoked to charcoal.
+A quick glance revealed two charred and carbonized bodies.
 
 *チラリと見ると、燻って炭になった様な個体が二つ。*
 
-Is it Mr. Ketty's summoning magic?
+Was it Keti’s summoning magic?
 
 *ケティさんの召喚魔法かな？*
 
-The two animals after being slaughtered are clean wrecks, probably having been stabbed in one sharp spot.
+The two that were slaughtered had probably been pierced in their vital points, leaving behind clean corpses.
 
 *屠られている後の二匹は恐らく急所を一突きされたのだろう、綺麗な骸だ。*
 
-Millie's deftness is apparent.
+I could see Millie’s skill at work.
 
 *ミリーさんの手際の良さが窺える。*
 
-It's quintessential Team Aria to take care of 5 magical beasts with a threat value of 16 in a minute or two! Fast work!
+Taking down 5 magical beasts with a threat level of 16 in 1 to 2 minutes is truly Team Aria! They work fast!!
 
 *脅威値16の魔獣5匹を1～2分で始末するなんて流石チームアリア！仕事が速い！！*
 
@@ -651,11 +650,11 @@ It's quintessential Team Aria to take care of 5 magical beasts with a threat val
 
 &nbsp;
 
-There are still some weak demonic beasts chomping around in the shallow layer nearby, but they're not there in packs...
+There are still some weak magical beasts in the shallow layers nearby, but they aren’t in groups...
 
 *近くにはまだ浅層の弱い魔獣がチョロチョロいるけど、群れでは居ないな…。*
 
-I guess the buzz seems to have died down now that the red pongo has been taken care of...so if they don't come this way, I guess I'll just leave them alone.
+It seems the commotion has settled down now that the Red Pongos have been dealt with... as long as they don’t come this way, I can leave them be.
 
 *レッドポンゴを片付けた事でザワつきも収まった様だし…、コッチに来なければ放置で良いかな？*
 
@@ -665,51 +664,51 @@ I guess the buzz seems to have died down now that the red pongo has been taken c
 
 &nbsp;
 
-I passed a short distance away from Millie and the others and moved toward the encampment.
+I moved slightly away from Millie and the others and headed towards the campsite.
 
 *わたしはミリーさん達から少し離れた所を通り、野営地の方へ移動した。*
 
-I don't make eye contact...I'm still 'on trial'.
+I didn’t make eye contact... since we are still in the "Trial."
 
 *目は合わせない…まだ『試練中』だからね。*
 
-Normally, it would be impossible for me to be in contact with "Team Aria" who is escorting me....
+Normally, it would be unthinkable to come into contact with "Team Aria," who are supposed to be guarding me...
 
 *本来なら、わたしを護衛している『チームアリア』と接触するなんて事態はあり得ないのだから…。*
 
 &nbsp;
 
-But this was an unusual emergency! For now, I'm going to pretend I didn't see Millie and the others!
+...But this time is an exceptional emergency! For now, I intend to pretend I didn’t see Millie and the others!!
 
 *…でも今回のは異例の緊急事態だったし！取敢えずわたしはミリーさん達は見なかった事にするつもりでいる！！*
 
 &nbsp;
 
-Aria will be back in a little while, so I'm sure they will think of a way to deal with the situation over there!
+Aria should be back soon, so they should come up with a response over there!
 
 *もちょっとすればアリアも戻って来るだろうから、アチラはあちらで対応を考えてくれる筈！*
 
-So it should be a divey jibe!
+So it should be fine!!
 
 *だからダイジブの筈！！*
 
-The "ordeal" should not be a failure!
+There’s no way the "Trial" will end in failure!!!
 
 *間違っても『試練』は失敗なんて事には成らない筈ぅぅ！！！*
 
 &nbsp;
 
-...... should be fine, right? It'll be fine...right?
+...It should be, right? It’ll be fine... right?
 
 *……はず、よね？だいじょぶよ…ね？*
 
 &nbsp;
 
-..................... and for now! Let's just think about getting this ordeal over with! Duh!
+.................. For now, let’s just focus on finishing this trial safely! Yes!
 
 *…………………と、とりあえず今は！この試練を無事終わらせる事だけ考えよう！ウン！*
 
-After tonight, the 'ordeal' will be over!
+Once tonight passes, the "Trial" will be over!!
 
 *今夜が過ぎれば『試練』は終わりなんだから！！*
 
@@ -717,35 +716,35 @@ After tonight, the 'ordeal' will be over!
 
 &nbsp;
 
-Oops, that's right! I was going to pick up some sweet potatoes for our last supper tonight!
+Oh, right! I was planning to gather some sweet potatoes for tonight’s last supper!
 
 *おっと、そうだった！今夜最後の晩餐の為に、お芋を採って行こうと思っていたのだ！*
 
 &nbsp;
 
-Three days ago, I found a hodo potato on the southern slope of the hillside where I am now.
+Three days ago, I found some Hodou potatoes on the southern slope of the hill where I am now.
 
 *三日前、今居る丘陵の南側斜面にホド芋が在るのを見つけたのだ。*
 
-Mia had told me that they could sometimes be found on these sunny southern slopes, so I was right to look for them.
+I had learned from Mia that they can sometimes be found on sunny southern slopes, so it was a good thing I was searching.
 
 *ミアに、こういった日当たりの良い南の斜面で見つかる事がある、と教わっていたので探していて正解だった。*
 
 &nbsp;
 
-The hodo potato is a legume, a nutritious wild food whose large, swollen rhizome is edible.
+Hodou potatoes are a leguminous plant, and their large swollen tubers are nutritious wild food.
 
 *ホド芋はマメ科の植物で、大きく膨らむ根茎が食べられる栄養豊かな野生の食糧だ。*
 
-Its taste is like a combination of potato and sweet potato, and it can be stewed or baked.
+They taste like a mix of potatoes and sweet potatoes and can be delicious whether boiled or roasted.
 
 *その味はジャガイモとサツマイモを合わせたような味で、煮込んでも焼いても美味しく頂ける。*
 
-So I was able to cook a sizzling potage soup of potatoes.
+So, I was able to make a rich potato potage!
 
 *なので、シッカリ煮込んで、お芋のポタージュスープも作れた。*
 
-This made the meal afterwards richer!
+Thanks to that, the subsequent meals became abundant!
 
 *おかげでその後の食事が豊かになったのだ！*
 
@@ -753,141 +752,141 @@ This made the meal afterwards richer!
 
 &nbsp;
 
-At first, I found an ivy that seemed to be growing well in the hodo potato colony and pulled it out, and out came a bunch of large potatoes that looked like they had been growing for three or four years. They were all as big as my fist.
+For now, I found a well-grown vine in the cluster of Hodou potatoes and pulled it up, revealing several large tubers that seemed to have grown for about 3 to 4 years. They are all about the size of my fist.
 
 *とりあえずホド芋の群生地で良く育って居そうな蔦を見つけ引き抜くと、3～4年は育って居そうな大きな芋がゴロゴロと出て来た。みんなわたしの拳ぐらいある。*
 
 &nbsp;
 
-I'll bring home about 5 of these and steam 2 for snacks and 3 for dinner! Hehe...
+I’ll take about 5 of these home, steaming 2 for snacks and using 3 for dinner! Hehe...
 
 *これを5個位持って帰って2つは蒸かしておやつに、3つは夕食に使お！へへ…。*
 
 &nbsp;
 
-And as I was holding a hodgepodge of potatoes and looking at the slope, I got a little naughty.
+As I was looking at the slope with the Hodou potatoes, a mischievous thought bubbled up.
 
 *と、ホド芋を持って斜面を眺めていたら、ちょっと悪戯心が湧き上がった。*
 
-A little below where we dug potatoes, there was a nice sloping grassy area. It looked like a bank somewhere.
+Just below where I dug the potatoes, there was a nice grassy slope that continued. It looked like some sort of embankment...
 
 *芋を掘ったチョット下は、良い感じの斜面になった草叢が続いていた。まるで何処かの土手の様…。*
 
 &nbsp;
 
-I think you could call this grass skiing... or grass sledding.
+Could I do grass skiing or... grass sliding?
 
 *コレ、草スキーって言うか…草スベリが出来ンじゃね？*
 
 &nbsp;
 
-Looking down, the descent continues for a little more than 20 meters.
+Looking down, the downhill slope continued for just over 20 meters.
 
 *見下ろせば20メートルちょい続く下り斜面。*
 
-Grass grows thickly in the space created between the trees, and the grass blades are calm in the wind as they bask in the afternoon sun.
+In the space between the trees, the grass was lush, basking in the afternoon sun, and the leaves swayed in the wind.
 
 *樹木の間に出来た空間には草が生い茂り、午後の日差しを浴びながら、草の葉が風に凪いでいる。*
 
-The grass is only a little over 10 cm tall, so I wonder if it's a noshiba type of plant.
+The grass is only about 10 centimeters tall, so it might be a type of short grass?
 
 *草丈は10センチちょっとしか無いからノシバの類なのかな？*
 
-It was spread all over this sunny slope, mixed with other tall grasses.
+It was mixed with taller grasses, covering this sunny slope entirely.
 
 *それが他の草丈の高い草を混ぜながら、この陽当りの良い斜面一杯に敷き詰められていた。*
 
-If I throw myself on this lush carpet, will the flowers catch me and carry me down?
+If I throw myself onto this lush green carpet, wouldn’t it carry me down to the bottom?
 
 *この青々とした絨毯に身を投げ出せば、そのまま草花がわたしを受け止め、下まで運んでくれるのではないかしらン？*
 
 &nbsp;
 
-When I feel that way, I can't help but do it!
+Thinking that way, I couldn’t resist!
 
 *そんな風に思ったら、やらずにいられない！*
 
-YOU, you should do it! I thought I heard a voice in my head saying, "You! I felt like...?
+YOU! Just do it!! I felt like I heard a voice in my head?! Maybe?!
 
 *YOU！やっちゃいなよ！！とか頭の中で声が聞こえた？！様な気がした…？！*
 
 &nbsp;
 
-Well, that doesn't mean we have the tools. In the original world, we would have laid down cardboard or something and skated!
+Well, I don’t have any tools; in my original world, I would lay down cardboard to slide!
 
 *まぁ、とは言っても道具がある訳じゃ無い、元の世界なら段ボールとか敷いて滑るんだけどね！*
 
-But...! I remember that I have a leathery buttock around my waist made of wolf fur!
+But still! I remembered that I was wearing a leather skirt made from wolf fur around my waist!
 
 *でもでも！わたしの腰回りにはウルフの毛皮で作った尻革が着いて居るのを思い出す！*
 
 &nbsp;
 
-This is not only useful for keeping the waist warm, but it is also highly waterproof, so even if you sit on wet ground, your buttocks will not get wet, making it an excellent product for sitting anywhere outdoors!
+This not only helps with warmth but also has a high waterproof effect, so even if I sit on wet ground, my butt won’t get wet, making it a great item for sitting outdoors!
 
 *これは腰回りの防寒に役立っているのは勿論なんだけど、防水効果も高くって、濡れた地面に座ってもお尻が濡れないので、野外で座る所を選ばない優れモノなのだ！*
 
 &nbsp;
 
-So I thought I might try this instead of sledding. I thought.
+So I thought about using this as a sled instead!
 
 *なのでコレをソリ代わりにやってみようかな？と思った。*
 
 &nbsp;
 
-He removed the sword by the scabbard from the sword holster and sat down on the grass, carrying it along with a potato.
+I took the sword out of its sheath and sat down on the grass, holding the potatoes with me.
 
 *ソードホルスターから鞘ごと剣を外し、お芋と一緒に抱えて草の上に座った。*
 
-As it was, he pulled the fur out from between his legs and spread it under his buttocks....
+I pulled the fur out from between my legs and spread it under my butt...
 
 *そのまま毛皮を脚の間から引っ張り出す様にして、お尻の下に広げた…。*
 
-I mean, I'm not exactly dressed like I'm in a mini-skirt with my hands in my crotch, but...no one's looking, so it's okay, right?
+This position, with a mini skirt and both hands tucked between my legs, might be a bit indecent, but... no one is watching, so it’s fine, right?!!
 
 *コレ、ミニスカでお股に両手を突っ込んでいるような恰好って、ちょっとはした無いけど…誰も見てないから良いよね？！！*
 
 &nbsp;
 
-and slides out toward the valley ahead with great vigor!
+Then, I slid down the slope towards the valley with great momentum!
 
 *で、勢いよく前方の谷間へ向けて滑り出す！*
 
-At this point, I chanted wind magic as if I were creating a layer of air under my buttocks!
+At that moment, I cast wind magic, creating a layer of air beneath my butt!
 
 *この時、風属性の魔法を、お尻の下に空気の層を作る感じで唱えた！*
 
-That's it, the image is air field hockey!
+You know, the image is like air hockey!
 
 *あれだよ、イメージはエアホッケー！*
 
 &nbsp;
 
-This was a better run than I expected! Like the wind already?
+This slide was better than I expected! Like the wind?!!
 
 *これが思ってた以上に良い滑走だった！もう風の様に？！！*
 
-Wind? The storm? It slid through like a gale!
+Was it wind?! A storm?! I slid down like a gale!
 
 *風か？！嵐か？！疾風の様に滑り抜いたのさっっ！*
 
 &nbsp;
 
-...... Well, the wind is exaggerated...but wouldn't it be faster to run by yourself? I'm sure it would be faster if you ran by yourself!
+...Well, that’s an exaggeration... let’s not mention that I could probably run faster!
 
 *……まぁ、風は大げさですけどね…、自分で走った方が速いんじゃね？ってツッコミは無しで！*
 
-Well, that's how good it felt!
+But it felt so good!
 
 *ま、その位気持ち良かったって事ですよ！*
 
-When I jumped up on a little elevated jump with the wind knocked out of me, I let out a weird yelp when I landed... but that was fun, too!　I let out a weird yelp when I landed... but it was fun, and I'm sure I had a great time!
+The sensation of sliding directly on my butt was wonderful, and when I lightly bounced up at the jump point, I let out a strange sound upon landing, "Ukyan!"... but it was definitely fun!
 
 *なんというか、お尻に直に伝わる滑走感が何とも良くてね、風を切ながらジャンプ台みたいに少し昇っている所で軽く跳ね上がった時なんかは、着地した時　ぅきゃン！　とか変な声出ちゃったけど…、それはそれで楽しかったのは間違いないしぃ！*
 
 &nbsp;
 
-It was so much fun! When we finished skiing, we threw our arms and legs out and laughed!
+I felt so happy that when I finished sliding, I laughed out loud, "Ahahahaha!" while throwing my arms and legs out!
 
 *なんかたのしーーっ！って感じで、滑り終わった時は　あははははーーっ　て手足を投げ出して笑っちゃったものね！*
 
@@ -897,27 +896,27 @@ It was so much fun! When we finished skiing, we threw our arms and legs out and 
 
 &nbsp;
 
-For a while I lay on my back, looking at the blue sky, the flowing clouds, and the grass blowing in the wind, soaking in the scent of the grass school, and surrendering to the air of the moment. ......
+For a while, I lay on my back, gazing at the blue sky, the flowing clouds, and the grass swaying in the wind, soaking in the scent of the grass, surrendering myself to the moment...
 
 *……暫くは仰向けで青空と流れる雲と、風になびく草を眺め、草派の香りに浸りながら、その瞬間の空気に身を委ねてた……。*
 
-But then I suddenly realized that there was a hexenbiest right in front of me.
+But then, I suddenly noticed a magical beast in front of me.
 
 *でも、ふと気が付くと、目の前に魔獣が居たのよね。*
 
 &nbsp;
 
-Well, I knew he was around, but his presence was small and he didn't seem to be attacking me, so I left him alone. ......
+Well, I knew there was one around, but since it had a small presence and didn’t seem to be attacking, I had ignored it...
 
 *まあ、その辺に居たのは判ってたけど、気配も小さいし、コッチを襲って来る様子も無かったから放置ってたんだけど……。*
 
 &nbsp;
 
-Is this guy staying less than a meter away from me? Why?
+Why is this turtle not moving, just one meter away from me? What’s going on?
 
 *コイツ、わたしから1メートルと離れて無い距離から動かずにいる？なんでだ？*
 
-I noticed the look in his eyes and thought, "What? I raised my upper body so that I could support myself with both hands behind my back, pulled my legs up so that I could get up quickly, got up on my knees, and stared at him....
+I noticed its gaze and, thinking "What’s up with you?", I propped myself up with both hands behind me, pulling my legs closer so I could get up easily, and glared at it...
 
 *わたしはそいつの視線に気が付いて、あーによ？と思いながら両手で後ろで支える様に上体を起こし、両脚も直ぐ起き上がれる様にと、放り投げている脚を引き寄せ両膝を立て、そしてソイツを睨め付けた…。*
 
@@ -925,175 +924,173 @@ I noticed the look in his eyes and thought, "What? I raised my upper body so tha
 
 &nbsp;
 
-Crawl Tortoise."
+"Claw Turtle"
 
 *『クロウルトータス』*
 
-It's a land tortoise hexenbiest with a threat value of 0.3.
+A land turtle magical beast with a threat level of 0.3.
 
 *脅威値0.3の陸ガメの魔獣だ。*
 
-It is a magical beast about the size of an elephant tortoise, with a large spiny carapace dyed tail green.
+It’s about the size of an elephant turtle, characterized by its large spiky shell dyed in teal green.
 
 *大きさはゾウガメ程で、テールグリーンに染めた大きな棘の甲羅が特徴的な魔獣だ。*
 
-The only means of attack is a head butt, so as long as they don't go around the front, even children can easily deal with them.
+Its only attack method is a headbutt, so as long as you don’t get in front of it, even a child can easily deal with it.
 
 *攻撃手段は頭突きだけなので、正面にさえ回らなければ子供でも楽に対処できる相手なのだ。*
 
 &nbsp;
 
-But why is this turtle standing right in front of me, not moving?
+...But why is this turtle just standing there in front of me?
 
 *…なのだが、何故このカメは身動きもせず、わたしの真ん前にいるのだ？*
 
-Hmm? No? Is he sniffing me? Have you been staring at me since a while ago?
+Huh? No? Is it breathing heavily? Why has it been staring at me?
 
 *ン？いや？なんか鼻息荒いかな？何かさっきからガン見されてる？*
 
 &nbsp;
 
-Oh, he started moving his head back and forth zukon-zukon.
+Oh, it started moving its head back and forth.
 
 *あ、頭を前後にズコンズコン動かし始めた。*
 
-Yes, his attack is to headbutt you with this movement ......, but what? Why is he just moving his head right there? Why doesn't he attack? Is it a threat?
+Right, this movement is how it attacks with a headbutt... but wait? Why is it just moving its head in place? Why isn’t it attacking? Is it a warning?
 
 *そだ、この動きで頭突きかまして来るのがコイツの攻撃なのだ……けど、アレ？何でその場で頭動かしてるだけなんだ？なんで攻撃してこないの？威嚇かな？*
 
-But you're still snickering... and where have you been looking all this time? ...Where are you looking and moving your turtle head so much .........!
+But it’s breathing heavily... and what has it been staring at this whole time?… What is it looking at while moving its turtle head like that...!!!
 
 *にしても鼻息荒いな…それにさっきからどこ見てるんだ？…どこ見てそんなにカメ頭動かしてン………！！！*
 
-Gabba-ba-ba-ba! and as quickly as I could, I raised my body and held down my skirt!
+Suddenly, I sat up and held down my skirt!!
 
 *ガババッ！！と咄嗟に身体を起こしてスカートを押えた！！*
 
 &nbsp;
 
-Co, co, co! This guy! He's so excited to look at me in my mini-skirt?
+W-What the?! This turtle!! This turtle!! Is it getting excited by looking up my mini skirt?!!
 
 *コ、コ、コイツ！コイツ！！わたしのミニスカの中ガン見して興奮してやがる？！！*
 
 &nbsp;
 
-Usually when I wear this mini-skirt in the village, I wear short under spats underneath.
+Usually, when I wear this mini skirt in the village, I wear short underpants underneath.
 
 *普段、村の中でこのミニスカ履くときは下に短いアンダーのスパッツを着けている。*
 
-Otherwise, it's a thing that Howard Papa won't allow. ......
+Otherwise, Papa Howard wouldn’t allow it...
 
 *でないとハワードパパが許してくれないモノね……。*
 
-At first, they didn't allow me to wear such a short one that I could easily see my underwear. Unh.
+At first, he wouldn’t let me wear something so short that my underwear would be visible. Yeah.
 
 *最初、こんな下着が直ぐ見えちゃいそうな短いのは許してくれませんでした。ウン。*
 
-I was finally forgiven for wearing underwear....
+I was finally allowed to wear it by wearing underpants...
 
 *アンダー履く事でやっと許して貰えたのです…。*
 
 &nbsp;
 
-But during the "ordeal," ...... there is no publicity in the forest, so I've been open and ununderwearable for the past week, you know?
+But during the "Trial"... there’s no one around in the forest, so I’ve been going without underpants for a week, feeling liberated!
 
 *でもでも、『試練』中は……森の中は人目も無いので、この一週間はアンダー着けずに開放的に過ごしてたのですよ？！*
 
 &nbsp;
 
-So, so I'm still wearing just shorts with no underwear...just a thin piece of cloth! I'm going to open up the back of my pussy with the letter M. Oh ......! I'm so excited! My face! I'm going to get hotter and hotter!
+So, right now, I’m only wearing shorts without underpants... just a thin piece of cloth! The area down there is exposed... nyahhh!!! My face is getting hotter and hotter!!
 
 *で、ですので今もアンダー無しのショーツだけで…薄布一枚だけで！エム字で開いてたそにょ奥をぉ……にゃぁああぁあああぁあああぁぁぁ！！！かっ！顔がが！モー烈な勢いで熱くなって行くにょぉぉおぉぅぅぅっっ！！*
 
 &nbsp;
 
-I've been...protecting it with iron walls since summer! This...this stupid turtle is peeping at me, I am so unworthy! I'm so sorry!
+I-I had been protected by an iron wall since summer! H-How could I be seen by such a stupid turtle!!! Ughhh!!!
 
 *ず、ずっと…夏からずっと鉄壁で守っていたにょにぃ！こ、こんな…こんなバカガメに覗かれてしまう己が不甲斐なさっ！！！ふぎゃぎゃぁぁあああ！！*
 
 &nbsp;
 
-And what's this guy? What's that turtle head that's snorting and thrashing about?
+A-and what the heck is this thing?! That turtle head, snorting heavily and moving intensely!
 
 *し、しかも何だコイツ？！鼻息荒くズコズコと激しく動かすそのカメ頭は？！！*
 
-Hey, hey, hey! What a... hi! Hiwa! Hiwa hiiiinnn!
+W-w-what?! This… this is s-so… so lewd!
 
 *な、な、な！なんて…ひ！ヒワっ！ヒワひぃなっっっ！！*
 
-Nyoaaaah! This guy! He's coming at me....he's coming at me!
+Ahhh! Th-this thing! It’s creeping… creeping towards… m-meeee!!!
 
 *にょぁぁああ！こ、コイツぅ！に、にじり寄って…き、来やぎゃっ！！！*
 
 &nbsp;
 
-I'm going to go to the beach! Ko! Kyo-no! Erotic turtles aaaaaaahhhh! ！！！！"
+"Y-You perverted turtle!!!"
 
 *「きょっ！こ！きょのっ！エロガメがぁぁぁあああああっっっっ！！！！」*
 
 &nbsp;
 
-Doggone it! Immediately, the insolent erotic turtle was kicked to the ground and turned into a star in the sky!
+With a kick, I immediately sent that lewd turtle flying into the sky!
 
 *ドガゴゴン！！っと直ぐ様不埒なエロガメは、思い切り蹴り飛ばしお空のお星様にしてやりましたともさっ！*
-
-
 
 &nbsp;
 
 ----------------
 
-Ha! What's this?
+"What?! What is this?!!"
 
 *「はっ！これはっ？！！」*
 
-"What's wrong, Alan?"
+"Hm... what’s wrong, Alan?"
 
 *「ン…どうした、アラン？」*
 
-Belknap, I think I may have missed something big!
+"Bernap, I might have just missed something big!!"
 
 *「ベルナップ、オレは…もしかしたら大変な物を逃したかもしれない！！」*
 
-That's a lot of work.
+"Hm... that sounds serious."
 
 *「ン…それは大変だな」*
 
-Oh! Oh my God, I feel like I'm missing something I shouldn't miss! I feel like I'm missing something I shouldn't miss!
+"Yeah! It’s serious! I feel like I missed something I absolutely shouldn’t have missed!!"
 
 *「ああ！そうだ大変だ！決して見逃してはイケナイ物を逃した気がするんだ！！」*
 
-What are you talking about?" Alan. You still don't make any sense, do you?"
+"What are you talking about, Alan? You’re as incomprehensible as ever."
 
 *「何言ってんだ？アラン。相変わらず意味不明だぞ？」*
 
-Don't you see, Carl? This is a big deal!
+"You don’t understand, Karl! This is a big deal!!"
 
 *「分らないかカール！これは大変な事なんだぞ！！」*
 
-I don't know! You calm down first!"
+"I don’t get it! First, calm down!"
 
 *「分らねえよ！まずお前が落ち着け！」*
 
-Damn it...damn it! For some reason I'm irresistibly jealous of the turtles! Damn it!"
+"Damn it... damn it!! For some reason, I’m incredibly envious of that turtle!! Damn it!!!"
 
 *「ちくしょー…ちくしょー！！何故かカメが無性に羨ましいんだよ！！ちくしょーーっっ！！」*
 
-Good luck, Alan."
+"Hm, hang in there, Alan."
 
 *「ン、頑張れ、アラン」*
 
-"Alan... where the hell do you think you're going...?"
+"Alan... where are you trying to go...?"
 
 *「アラン…お前は一体何処へ行こうとしてるんだ…？」*
 
-Dick!"
+“Darn it alllll!!!”
 
 *「ちっくしょぉぉぉーーーーーっっ！！」*
 
 &nbsp;
 
-Next "The End of Suzy Cloud's Ritual"
+Next time: “The End of Suzie Cloud’s Ceremony”
 
 *次回「スージィ・クラウドの儀式の終わり」*
 
@@ -1103,21 +1100,20 @@ ____________________________________________
 
 &nbsp;
 
-Thank you for reading <m(__)m>.
+Thank you very much for reading. <m(__)m>
 
 *お読み頂きありがとうございました<m(__)m>*
 
 &nbsp;
 
-The other day, for the first time in my life, I received a piece of fan art!
+Recently, I received fan art for the first time in my life!
 
 *先日、生まれて初めてファンアートって物を頂いてしまいました！*
 
-Oh, my God! Ureshi tears cascaded!
+Tears of joy are flowing like a waterfall!
 
 *もう！ウレシ涙が滝の様に！*
 
-Please take a look if you like.
+I’ve posted it in my activity report, so please take a look if you’re interested.
 
 *活動報告にUPしておりますので、宜しければ一度覗いてみてください。*
-

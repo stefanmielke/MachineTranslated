@@ -1,4 +1,4 @@
-# 57 - The Envoy of Meridies
+# Chapter 57: The Envoy from Meridies
 
 ## 57話　メリディエスの特使
 
@@ -6,36 +6,35 @@ Thank you for your patience.
 
 *お待たせしております。*
 
-Starting today, I will be dropping daily for five consecutive days.
+I will be posting every day for five consecutive days starting today.
 
 *今日から5日連続で毎日投下して行きます。*
 
 &nbsp;
 
-Please keep in touch with us<(_ _)>.
+I look forward to your continued support <(_ _)>
 
 *またお付き合いお願い致します<(_ _)>*
-
 
 ----------------
 
 &nbsp;
 
-For our first lunch at the school in a week, we decided to have it at the gazebo on the west side of the training hall.
+For the first lunch back at school after a week, I decided to have it at the gazebo on the west side of the training ground.
 
 *一週間ぶりの学校でのお昼は、修練場の西側にあるガゼボで頂く事にした。*
 
-This was made from surplus materials from last year's restoration of the training center.
+This was made from surplus materials that came from the restoration of the training ground last year.
 
 *これは昨年、修練場を修復した際に出た余剰材料で作られた物だ。*
 
 &nbsp;
 
-It is a typical hexagonal gazebo about 6 meters long with a large table and bench in the center. There is room for seven to eight people to sit comfortably.
+It's a typical hexagonal gazebo about 6 meters in size, with a large table and benches set in the center. It has enough space for 7 to 8 people to sit comfortably.
 
 *6メートル程の良くある六角形のガゼボで、中央に大きなテーブルとベンチが据えられていている。これには7～8人はゆったり座れるスペースがある。*
 
-Including the benches on the surrounding walls, it is large enough to fit all the girls in the school.
+If you include the benches placed around the walls, it could accommodate all the girls in the school.
 
 *周りの壁に置かれているベンチも含めれば、学校の女子全員が収まる事も出来る大きさだ。*
 
@@ -43,17 +42,17 @@ Including the benches on the surrounding walls, it is large enough to fit all th
 
 &nbsp;
 
-But today it's just the kids on the higher floors.
+But today, it's just the higher-tier children.
 
 *でも今日は高位階の子供達だけだ。*
 
 &nbsp;
 
-Colin, Dana, Mia, Bibi, and myself. And Mary and Helena, the seven of us.
+Colin, Dana, Mia, Vivi, me, and then Mary and Helena—seven of us.
 
 *コリン、ダーナ、ミア、ビビ、わたし。そしてメアリーとヘレナの7人。*
 
-It could be said that they are the usual men and women.
+It's the usual crowd.
 
 *何時ものメンツとも言える。*
 
@@ -61,29 +60,29 @@ It could be said that they are the usual men and women.
 
 &nbsp;
 
-And somehow I was placed on Mia's lap.
+And for some reason, I found myself sitting on Mia's lap.
 
 *そして何故かわたしはミアの膝の上に乗せられていた。*
 
-It is a surreal (?) situation, eating on Mia's lap, with her back wrapped in the corrupt sofa. It is a surreal state of affairs.
+Eating while being enveloped by the soft sofa of her body, it was quite a surreal (?) situation.
 
 *ミアの膝の上で、堕肉ソファーに背中を包まれての食事と言う、何ともシュール（？）な状態です。*
 
 &nbsp;
 
-For some reason, Mia has been strangely reluctant to leave me since this morning.
+For some reason, Mia has been unusually reluctant to leave my side since this morning.
 
 *何故かミアは朝から、妙にわたしから離れようとしない。*
 
-What's going on?
+Did something happen?
 
 *何かあったのか？*
 
-'Danger is dangerous ......,' he says, and he's still holding it and cunking my head .......
+She keeps saying things like, "Danger is dangerous..." and is still sniffing my head while holding me...
 
 *『危険がキケン……』とか言って、今も抱えながらわたしの頭をクンカクンカしているし……。*
 
-It's a little embarrassing, so I'd appreciate it if you could hold off a little longer. ......
+It's a bit embarrassing, so I would appreciate it if she could tone it down a little...
 
 *ちょっと恥ずかしいから、もう少し控えてくれると嬉しい……。*
 
@@ -93,75 +92,75 @@ It's a little embarrassing, so I'd appreciate it if you could hold off a little 
 
 &nbsp;
 
-'So, Sue, did you level the high ground?'
+"So, Su-chan, did you level the high ground?"
 
 *「それでスーちゃん、高台を均しちゃったの？」*
 
-She said, "It's amazing! Sister Suzy!"
+"That's amazing! Sister Suzy!"
 
 *「凄いですわ！スージィお姉様！」*
 
-As expected of Sis Sue!
+"Sister Su, as expected!!"
 
 *「スー姉様さすが！！」*
 
 &nbsp;
 
-Mia is surprised when I tell her the story of how we built the encampment, and Helena and Mary, who are on either side of her, make a big fuss about how great it is.
+When I talked about the time we built the campsite, Mia was surprised, and Helena and Mary on either side of her started making a fuss about how incredible it was.
 
 *野営地を作った時の話をすると、ミアが驚き、両脇に居るヘレナとメアリーが凄い凄いと騒ぎ立てる。*
 
 &nbsp;
 
-Helena, Mary, I think you know this, but normal people can't do this, okay?"
+"Helena, Mary, I think you understand, but normal people can't do that, okay?"
 
 *「ヘレナ、メアリー、判ってると思うけど、普通の人は出来ないからね？」*
 
 &nbsp;
 
-Colin said something like I was not a normal person and admonished them for being so flirtatious.
+Colin was admonishing the two who were getting overly excited, as if I were not a normal person.
 
 *コリンがわたしが普通の人では無い様な事を言って、ワキャワキャしてる二人を諌めていた。*
 
-Isn't that kind of rude?
+Isn't that a bit rude?
 
 *なんか失礼じゃないかしら？*
 
 &nbsp;
 
-What? You cut a rock out of a rock block and made a table? Roughly! No one can make a table out of a block of rock big enough to make a table out of! No one can make a table out of a block of rock! And to cut it? What kind of a master are you?
+"What?! You cut the rocks you got from the rock block and made a table?! In the first place! No one can create a rock big enough to make a table!! Let alone cut it?! What kind of master are you?!"
 
 *「何？！ロックブロックで出した岩を切って、テーブルを作ったですって？！大体！テーブルを作れる程大きい岩の塊なんて！誰も作れないから！！ましてやそれを斬る？！どんな達人よ？！」*
 
 &nbsp;
 
-Even Bibi shot a series of words at me as if to say that I was insane.
+Even Vivi chimed in, seemingly trying to imply that I was unreasonable.
 
 *ビビまで、然もわたしが非常識だと言いたげに言葉を連続で撃ちこんで来た。*
 
 &nbsp;
 
-"You know what? I can't be of any use to you, can I?"
+"You understand, right? You can't use this as a reference, okay?"
 
 *「分るわね？参考には出来ないのよ？」*
 
 &nbsp;
 
-Colin further nails Helena and Mary.
+Colin further reinforced this point to Helena and Mary.
 
 *コリンがヘレナとメアリーに更に釘を刺す。*
 
 &nbsp;
 
-Odd, I feel like the more I talk about it during the ordeal, the more I feel the air of dismay from everyone. ......
+It's strange; the more I talk about the trials, the more I feel a sense of disbelief from everyone...
 
 *オカシイ、試練中の話をすればする程に、皆から呆れたような空気が漂って来る気がしる……。*
 
-To top it all off, Bibi even labeled me a "brainiac" like Dana and Irving!
+In the end, Vivi even labeled me as one of the "muscle-headed friends" like Dana and Irvin!
 
 *挙句の果てにはビビに、ダーナやアーヴィンと同じ『脳筋仲間』だというレッテルまで張られた！*
 
-I can't figure it out!
+I don't get it!!
 
 *解せん！！*
 
@@ -183,333 +182,333 @@ I can't figure it out!
 
 &nbsp;
 
-"So? What have you heard?
+"So? Are you listening to anything?!"
 
 *「で？アンタは何か聞いてる？！」*
 
 &nbsp;
 
-While we were having after-dinner tea, Bibi asked me slowly.
+While we were having tea after lunch, Vivi suddenly asked.
 
 *食後のお茶を頂いていると、ビビが徐に聞いて来た。*
 
 &nbsp;
 
-I only heard ...... that the pioneers arrived early this morning.
+"I only heard that the advance party arrived this morning... nothing else."
 
 *「今朝方、先駆けの方が到着したとしか……、聞いて無い、よ」*
 
 &nbsp;
 
-Perhaps they are concerned about what the Knights are up to.
+She was probably concerned about the movements of the knight order.
 
 *恐らく騎士団の動向が気になっているのだろう。*
 
-Unfortunately, I only know that Howard's father received word from the Amcam House early this morning.
+Unfortunately, all I knew was that Papa Howard had received a message from Amkam House early this morning.
 
 *生憎わたしも今朝早くにハワードパパが、アムカムハウスから知らせを受けた事しか知らない。*
 
 &nbsp;
 
-He said, "Well, ...... that's right! That just happened this morning!"
+"I see... that makes sense! It just happened this morning!"
 
 *「そうか……そりゃそうよね！今朝あったばかりの事だものね！」*
 
 &nbsp;
 
-Bibi exhaled to relax.
+Vivi let out a sigh as if relieved.
 
 *ビビが力を抜く様に息を吐き出した。*
 
 &nbsp;
 
-And Father." I headed to the Amcam House early in the morning and ......! Looks like things are going to get kind of hectic!"
+"My father also went to Amkam House early this morning...! It seems like things are going to get busy!"
 
 *「父様も！朝早くにアムカムハウスに向かったし……！何か慌ただしくなりそうね！」*
 
-My dad also took my mom to Wando Village yesterday,...... and he said he won't be back for a month."
+"My dad took Mom to Wand Village yesterday... he said he wouldn't be back for a month."
 
 *「うちのパパも昨日、ママを連れてワンド村に行っちゃったし……、一月は戻れないって言ってたよ」*
 
-He hasn't been back for three months. My brother Pern has been gone for six months.
+"My dad hasn't been back for three months already. Brother Parn hasn't been back for six months."
 
 *「父さんも、もう3ヶ月戻って無いよ。パーン兄なんて半年だ」*
 
-Really, ......, now is the time when none of the patriarchs of Group 12 are available. ......
+"Right... now, none of the heads of the 12th group are around..."
 
 *「ホントね……、今、12班の家長達が誰も居ないタイミングですものね……」*
 
-It means there's a serious overflow! There's a manpower shortage everywhere!"
+"The 'overflow' is serious! Everywhere is short-handed!"
 
 *「『溢れ』が深刻って事よ！何処もかしこも人手が足りないのよ！」*
 
-But Dad said there are enough teams in the 10th that we don't have to worry about the Knights, okay?"
+"But Papa said the 10th team has enough people, so we don't need to worry about the knight order, right?"
 
 *「でも10thのチームは十分居るから、騎士団の事は気にしないで良いとパパは言ってた、よ？」*
 
-I can't sit still! I can't sit still! Hey! The weekend after tomorrow! We're all going hunting the weekend after tomorrow!
+"Ah! I can't just sit still! Hey! How about we all go hunting together this weekend?!"
 
 *「あぁ！何かジッとしてらんない！なぁ！明後日の週末！皆で狩り行かないか？！」*
 
 &nbsp;
 
-Everyone firmly understands that Amcam is in a tough spot right now.
+Everyone understands that Amkam is in a tough situation right now.
 
 *皆しっかりと、アムカムが今大変な状況にあると理解してる。*
 
-Dana probably knows this, but I guess her body tries to move first.
+Dana probably understands too, but her body seems to want to move first.
 
 *ダーナも判っているんだろうけど、やっぱり身体が先に動こうとするんだろうね。*
 
 &nbsp;
 
-The children's application! It won't be approved in a day or two! Especially at a dangerous time when there's an overflow!"
+"The children's applications! They won't be approved in a day or two! Especially not when there's a risk of 'overflow'!"
 
 *「子供達の申請が！一日二日で通る訳無いじゃない！ましてや『溢れ』が出てる危険なときに！」*
 
-Well, I don't think they'll accept your application, and since you can't leave the safe zone, there's no way you can fight the 'overflow' from the start.
+"Yeah, I don't think they'll accept applications, and we can't leave the safe zone, so it's impossible to counter the 'overflow' from the start."
 
 *「そうね、申請は受け付けてくれないと思うわ、それにセーフゾーンから出られ無いんだから、『溢れ』に対抗とか端から無理よ」*
 
-I know...at least as strong as Sue."
+"That's right, at least we need to be as strong as Su-chan!"
 
 *「そうだよねー、せめてスーちゃん位強くないとねー」*
 
-I'm sure you're right. If we run into a bunch of red pongos or something, there's nothing we can do about it!"
+"Ugh... that's true. If we encounter a horde of Red Pongos, we wouldn't be able to do anything!"
 
 *「くっ……、そうか、そうだよな。レッドポンゴの群れとかに出会ったら、あたしらじゃどうしようも無いもんな！」*
 
-I knew it, my sister is amazing!"
+"After all, Sister is amazing!"
 
 *「やっぱり、お姉様が凄いのですわ！」*
 
-Ah! Sister Sue! Teach me how to throw a knife next time!"
+"Ah! Sister Su! Please teach me how to throw knives next time!"
 
 *「あ！スー姉様！今度ナイフの投げ方を教えて下さい！」*
 
 &nbsp;
 
-With Dana's shoulders slumped, Helena clapped her hands on her own chest, her loose wavy strawberry blonde hair, which looked pink in the right light, shook, and her innocent eyes gleamed a macallight green as she happily complimented me on my deed!
+While I glanced at Dana, who was slumping her shoulders, Helena clapped her hands in front of her chest, her strawberry blonde hair with soft waves shimmering in the light, her innocent eyes sparkling with a macalite green as she praised my achievements!
 
 *肩を落とすダーナを横目に、ヘレナが自分の胸元で手を叩き、光の加減ではピンクにも見える緩いウェーヴのかかったストロベリーブロンドの髪を揺らしながら、嬉しそうに無垢な瞳をマカライトグリーンに煌めかせ、わたしの所業に賛辞を送って来た！*
 
-What? That innocent sparkle in your eyes?
+What? What is that sparkle in her innocent eyes?!
 
 *何？その無垢な瞳の輝きはっ？！*
 
-Dazzling! It's dazzling, Helena!
+It's dazzling! It's so dazzling, Helena!!
 
 *眩しい！眩しいよヘレナ！！*
 
 &nbsp;
 
-Mary, with her soft platinum blonde hair, which had a medium cut just like her brother Victor's, was beguiling me with a twinkle in her eye!
+Then Mary, with her soft platinum blonde hair cut in a medium style resembling her brother Victor, came over with sparkling eyes, asking for something too!
 
 *かと思えばメアリーが、兄のヴィクターそっくりのミディアムカットにした柔らかなプラチナブロンドを振り撒き、コチラも瞳をキラキラさせ、おねだりをして来た！*
 
 &nbsp;
 
-I'm not going to do it!
+Stop it!
 
 *ヤメテーッ！*
 
-Dazzle! It's dazzling!
+It's dazzling! It's too dazzling!!
 
 *眩しい！眩しいの！！*
 
-Because the sparkle in those honest eyes is very, very dazzling! Ya-ma-ma-ma-ma-ma-ma-ma-ma-ma-ma-ma-ma-ma-ma! Both of you!
+That honest sparkle in their eyes is just too, too dazzling! Stop it—both of you!!
 
 *その素直な瞳のキラキラが、とってもとっても眩しいから！ヤメテーーーッ！二人ともぉぉ！！*
 
 &nbsp;
 
-What? What? Mary ......na want to learn to throw knives?"
+"Huh? Huh? Mary... do you want to learn how to throw knives too?"
 
 *「ぇ？え？メアリー……ナ、ナイフ投げ覚えたい、の？」*
 
-Un! That knife technique that crushes enemies at a distance with a single blow! I want to learn that for sure!"
+"Yes! I absolutely want to learn that knife technique that crushes enemies from a distance in one shot!"
 
 *「ウン！遠距離の敵を一撃で粉砕するそのナイフの技！絶対覚えたい！」*
 
-Oh! Cheating Mary! I wish I could tell you how much I wish I could tell you, too! Oh, Sister Suzy!!!"
+"Ah! That's unfair, Mary! I want to learn too! Sister Suzy!!"
 
 *「あぁ！ズルいメアリー！わたくしも、わたくしにも教えて欲しいですわ！スージィお姉様！！」*
 
-Huh?" Oh, uh, yeah. ...... yeah, right."
+"Huh? Ah, um... yeah, okay..."
 
 *「え？あ、あぁ、うん……そう、ね」*
 
 &nbsp;
 
-I'm not sure if there is a way to do that with a spear," he said! Is there a technique with a spear where you can send something flying off the tip of the sword and hit the enemy like Sue is doing?"
+"Hey, Su! Is there a technique where you can shoot something from the tip of a spear like you do?"
 
 *「ねえ、スー！槍でも、スーがやってるみたいに、剣先から何か飛ばして敵に当てるって技あるのか？」*
 
-What, uh, is there a ......?"
+"Huh, um... maybe?"
 
 *「え、あ、ある……かな？」*
 
 &nbsp;
 
-I'm pretty sure the 'impact-based' skills could be used for anything other than knives and wands. ......
+I thought I could use 'impact-type' skills with things other than knives or staves...
 
 *『インパクト系』のスキルは確か、ナイフや杖以外なら使えたと思ったけど……。*
 
-But I'm in trouble ......, everyone sees me use the "impact system", even though I was a bit out of it, was I too much of a jerk?
+But I'm in trouble... everyone has seen me use 'impact-type' skills, even if I was a bit over the top at times.
 
 *でも困ったな……、皆わたしが『インパクト系』使うの見てるんだよね、チョイと切れてたとはいえヤリ過ぎだったかしらん？*
 
-Well, it's too late to say that now!
+Well, it's too late to say anything now!
 
 *ま、今更言ってもしょうが無いんだけどね！*
 
-I can teach them, but whether they can use it is another story.
+I can teach them, but whether they can actually use it is another story.
 
 *教えることは出来ても、使える様になるかは別の話だしね。*
 
 &nbsp;
 
-Really? Oh, yeah! I'm going to have to learn how to shoot!"
+"Really? Yay! Hehe, I have to practice hard to be able to shoot!"
 
 *「ホント？やぁった！へへーこりゃ頑張っ撃てる様にならないと！」*
 
-But that can only be done if the weapon is properly filled with sword ki. ...... So Dana, you should practice stable Ki first, okay?"
+"But that requires the weapon to properly contain 'sword energy'... So Dana should first practice handling stable 'energy', okay?"
 
 *「でもアレは、武器にちゃんと『剣氣』が籠ってないと出来ないから……。だからダーナはまず、安定した『氣』の扱いを練習した方が良い、よ？」*
 
-I see, that's it. So, that's the one where you swing your spear and reap the enemies around you! That doesn't work so well either. I can't seem to get that one to work either.
+"I see, that's definitely the point. So, um, is it that thing where you swing the spear around and sweep away the enemies? I can't quite do that yet..."
 
 *「そっかー、やっぱソコだよねー。じゃあ、あれ、槍を振り回して周りの敵を薙ぎ払うーー！ってやつ？アレも今イチ上手く行かないんだよねー」*
 
 &nbsp;
 
-I wonder if you are talking about Wind Blow. Dana, you wield it with so much force that you don't have the awareness to release your "Ki".
+Maybe she's talking about 'Wind Blow'? Dana tends to swing it around with brute force, so she's probably not focusing on releasing 'energy'.
 
 *『ウインド・ブロゥ』の事かな？ダーナってば力任せに振り回しちゃうから、『氣』を放つ意識とかがお留守になっちゃうんだよね。*
 
 &nbsp;
 
-You can't do that unless you have a firm grasp of swordsmanship, okay?
+"You can't do that unless you have a solid grasp of 'sword energy', okay?"
 
 *「それも『剣気』をシッカリ把握していないと出来ない、よ？」*
 
-I guess it's as difficult to handle as magic power.
+"After all, it's 'sword energy'... it's just as difficult to handle as magical power."
 
 *「やっぱり『剣氣』かぁー、これも魔力並に扱いが難しいよね」*
 
-But unlike with magic, Dana has already grasped Ki, so all she has to do is train and get used to it, okay?"
+"But unlike with magical power, Dana has already grasped 'energy', so I think it's just a matter of training and getting used to handling it, okay?"
 
 *「でも魔力の時と違って、ダーナはもう『氣』を掴んでるから、後は鍛えて扱いに慣れる事だと思う、よ？」*
 
 &nbsp;
 
-Sure! Good! Then you'll have to keep me company today, Sue!"
+"That's true! Alright! Then let's practice together today, Su!"
 
 *「確かに！よし！じゃぁ今日は付き合ってよ、スー！」*
 
-Oh! That's not fair, sister Dana! I'm learning to throw knives too!"
+"Ah! That's unfair, Dana! I'm going to learn how to throw knives too!"
 
 *「あ！ダーナお姉様ズルいですわ！わたくしもナイフ投げを教わるんですもの！」*
 
-Yes, Dana, that's not fair! We were here first!"
+"That's right, Dana, that's unfair! We were here first!"
 
 *「そうだよダーナ、ズルいー！わたし達の方が先だったモン！」*
 
 &nbsp;
 
-What? Oh, oh, well, that's sorry."
+"Huh? Ah, um, sorry about that."
 
 *「え？あ、あ、そか、そりゃゴメン」*
 
-Okay, then we'll do it together. I'll watch the three of you and give you some advice, okay?"
+"That's fine, let's do it together. I'll watch the three of you and give advice, okay?"
 
 *「いいよ、じゃ一緒にやろう。三人を見てアドバイスする、よ？」*
 
-I'll see you later! Well then! I guess we'll all be training in the training hall this afternoon!"
+"Alright! Then let's train at the training ground this afternoon!!"
 
 *「よっしゃー！じゃ！午後は皆で修練場で修業だな！！」*
 
 &nbsp;
 
-Dana has made plans for the afternoon.
+Dana decided the plans for the afternoon.
 
 *ダーナが午後の予定を決めてしまった。*
 
 &nbsp;
 
-'Well, let's have Colin and the others play Koch today, anyway!'
+"Since we're at it, let's have Colin and the others join us here too!"
 
 *「どうせだから、今日はコリンたちもコッチでやろうよ！」*
 
-What? Us too?"
+"Huh? Us too?"
 
 *「え？私達も？」*
 
-I haven't been there for a while! I haven't been to the Soc. for a while and ......! I have to go every once in a while or I'll get slow! I want to be fit for the trials now!"
+"Yeah! We haven't been over there for a while...! We need to go sometimes, or we'll get rusty! I also want to prepare my stamina for the trials starting now!"
 
 *「そうね！暫くソッチには行って無かったし……！たまには行かないと鈍っちゃうものね！今から試練の為の体力も整えておきたいし！」*
 
-I'll go if you go!"
+"I'll go if Su-chan is going!"
 
 *「わたしはスーちゃんが行くなら行くから！」*
 
-Well, I guess I'll have to ask you to join me in a stand-up fight for the first time in a while."
+"Yeah, then I guess I'll join you for a sparring session after a long time."
 
 *「そうね、じゃぁ久しぶりに立ち合いに付き合って貰おうかしら」*
 
 &nbsp;
 
-In the end, all the girls ended up training in the training hall that afternoon.
+In the end, that afternoon turned into a training session for all the girls at the training ground.
 
 *結局その日の午後は、女子全員で修練場での鍛練になってしまった。*
 
-After all, it seems that everyone can't sit still.
+No matter how you look at it, it seems everyone just can't sit still.
 
 *何だかんだ言っても、やっぱりみんなジッとしてられないみたいだ。*
 
 &nbsp;
 
-In case you are wondering - the kids in the magic group also do physical training on a regular basis.
+By the way, the magic group kids also regularly engage in physical training.
 
 *因みに～、魔法組の子達も、肉体の鍛練は定期的に行っているのだ。*
 
-The common sense that those who use magic do not use their bodies does not exist here in Amkam!
+The common belief that those who use magic don't use their bodies doesn't exist here in Amkam!
 
 *魔法を使う者は身体は使わない、と言う一般常識は此処アムカムには無い！*
 
 &nbsp;
 
-For those who primarily use magic, increasing magical power is of paramount importance.
+For those who primarily use magic, raising their magical power is of utmost importance.
 
 *魔法を主に使う者にとって、魔力を上げる事は最重要事項だ。*
 
-In order to increase the magical power, we need to work on our mental power.
+To raise magical power, one must strengthen their mental strength.
 
 *魔力を上げる為には、精神力を鍛え上げる必要がある。*
 
-The surest and quickest way to train the mind is to train the body!
+The most reliable and quickest way to train the mind is to train the body!
 
 *精神を鍛える為に、最も確実で手っ取り早いのは肉体を鍛える事だ！*
 
 &nbsp;
 
-In Amkam, people in the magic profession do not neglect to train their bodies, based on the brainy idea that "the body is the most important part of the body," and that "the body is the most important part of the body.
+Based on this rather muscle-headed idea, people in Amkam do not neglect to train their bodies even if they are magic users.
 
 *という実に脳筋な発想の元、此処アムカムでは魔法職の人間は体を鍛える事も怠ってはいない。*
 
-Well, according to Dr. Henry, this is the "Amcam-specific" way, right? ......
+Well, according to Mr. Henry, this seems to be a method unique to Amkam...
 
 *まぁヘンリー先生のお話では、これは『アムカム特有』のやり方らしいんだけど、ね……。*
 
 &nbsp;
 
-Still, it is said that the magic value of people from Amkam is generally high, so they are not wrong. But, after all, the idea of this area is quintessential Amkam! I wonder if it is ......?
+Even so, it seems that the magical power values of those from Amkam tend to be quite high, so it's not incorrect. But still, this kind of thinking is truly characteristic of Amkam!
 
 *それでもやはり、アムカム出身者の魔力値は総じて高い値を出すらしいので、間違っている訳では無いそうだ。でも、やっぱり、この辺の発想は流石アムカム！って感じなのか……な？*
 
 &nbsp;
 
-This is why Bibi and his friends are so strong that even with their bare hands, they are no match for the average ragamuffin.
+For that reason, Vivi and the others possess strength that makes them no match for mere thugs with their bare hands.
 
 *そんな訳でビビ達は、素手でもその辺のゴロツキ程度では相手にならない程の実力を持っているのだ。*
 
@@ -531,31 +530,31 @@ This is why Bibi and his friends are so strong that even with their bare hands, 
 
 &nbsp;
 
-After we all worked up a good sweat like that, we left school a little earlier than usual.
+After all that, we all had a pleasant time sweating and left school a bit earlier than usual.
 
 *そんなこんなで皆で気持ち良く汗を流した後、いつもより少し早い時間に学校を出た。*
 
-They all want to go home early and find out what's going on with the Knights.
+Everyone seems eager to return home and find out about the knight order's movements.
 
 *みんな早く帰って騎士団の動向を知りたいらしい。*
 
 &nbsp;
 
-But for some reason, when I left school, Mia grabbed me and took me straight to her home, the Matisons' house.
+But for some reason, as soon as I left school, I was abducted by Mia and taken straight to the Matisson household.
 
 *でもわたしは何故か学校を出たらミアに拉致られ、そのまま自宅のマティスン家まで連れて行かれてしまった。*
 
-Mia says it's to replenish the "Sue-chan component" for the week. ......
+According to Mia, it was to replenish a week's worth of "Su-chan essence"...
 
 *何でもミアが言うには　一週間分の『スーちゃん成分』の補給　をする為なのだとか……。*
 
 &nbsp;
 
-I can't tell you how ...... they were replenished, but I can tell you .......
+...I can't say how that replenishment went...
 
 *……どんな風に補給されたかなんて、言えませんけど……ね。*
 
-Yes! I can't tell you that!
+Yes! I definitely can't say that!!
 
 *ええ！そりゃ言えませんともさっ！！*
 
@@ -567,43 +566,43 @@ Yes! I can't tell you that!
 
 &nbsp;
 
-When I came home from the Matthieson house, AnnaMarie was waiting for me in front of the house again today.
+When I returned home from the Matisson household, Anna Mary was waiting for me in front of the house again.
 
 *マティスン家から帰宅すると、今日もアンナメリーが家の前で待っていてくれた。*
 
 &nbsp;
 
-"Um, ......, maybe you've been waiting outside the whole time?"
+"Um... did you wait outside the whole time?"
 
 *「あの……もしかして、ずっと外で待ってた、の？」*
 
-It is my duty to serve you, my lady.
+"My duty is to serve you, my lady."
 
 *「お嬢様にお仕えする事が、私の務めで御座いますから」*
 
 &nbsp;
 
-When I asked him about it, he told me that he had been waiting outside until I left.
+When I asked, it turned out she had indeed been waiting outside until I returned.
 
 *聞いてみると、やっぱりわたしが帰るまでずっと外で待っていたらしい。*
 
-Did I make you wait here for too long by any chance?
+Did I keep her waiting for quite a while?
 
 *ひょっとして随分此処で待たせちゃったのかな？*
 
 &nbsp;
 
-Oh, um, sorry ...... for being so late."
+"Ah, I'm sorry for being late..."
 
 *「あ、あの、ごめんなさい……遅くなってしまって」*
 
-No, sir. Waiting is part of serving.
+"No, waiting is part of my service."
 
 *「いえ、お待ちする事も仕える内ですので」*
 
 &nbsp;
 
-AnnaMarie's eyes, smiling as she said this, were a little scary for some reason.
+As she said that, Anna Mary smiled, but for some reason, her eyes looked a bit scary.
 
 *そう言って　うふふ　と微笑むアンナメリーの眼は、何故か少しコワかった。*
 
@@ -611,61 +610,61 @@ AnnaMarie's eyes, smiling as she said this, were a little scary for some reason.
 
 &nbsp;
 
-That night, I went to ...... for a massage, which was supposed to be the next one in two weeks.
+That night, I was prompted by Anna Mary to have a massage that was supposed to be in two weeks...
 
 *その日の夜、次は二週間後と言っていた筈のマッサージを……。*
 
 &nbsp;
 
-Might as well get things a little more in order while we're at it."
+"It might be better to get a little more prepared while we can."
 
 *「今の内に、もう少し整えておいた方が良いかもしれません」*
 
 &nbsp;
 
-AnnaMarie urged me to do it, and I did.
+As she encouraged me, I ended up having it done.
 
 *と言うアンナメリーに促されるまま、やって貰う事になった。*
 
 &nbsp;
 
-The extent of that treatment surpassed yesterday's, and I think ...... I couldn't keep my voice down.
+The treatment surpassed yesterday's, and I couldn't hold back my voice... I think.
 
 *その施術の程は昨日を上回り、声を抑える事が出来なかった……と思う。*
 
-Why 'I think' is ...... because I haven't been clear about my consciousness since the middle of the ......!
+The reason I say "I think" is that... I wasn't fully conscious from a certain point onward!
 
 *何故『思う』なのかと言えば……、途中から意識がハッキリしていないから……だ！*
 
 &nbsp;
 
-I have a feeling that they did some pretty amazing things to some pretty tough places, but I'm not sure!
+I felt like they did something quite intense, but I'm not sure!
 
 *結構大変なトコロまで凄い事されていた気もするが、定かではないのだ！*
 
-Oh, I'm going to be a tattle-tale! I'm getting so tart!
+Ah! I'm going to turn into a puddle!
 
 *あぁ！わたしがタレタレになりゅっ！*
 
 &nbsp;
 
-This is really great, isn't it?
+This is seriously insane, you know?!
 
 *コレ、マジパないっスよ？！*
 
-I can't tell you what's not good enough!
+What exactly is insane, I can't quite say!
 
 *なにがパないとか、ちょっと言えやしないンですけどぉー！*
 
 &nbsp;
 
-......I don't think I've heard this kind of voice many times in one day. ......
+...I can't believe I made such sounds multiple times in one day... *cough cough!*
 
 *……まさか一日の内に何度もこんな声をあｇ……ゲフンゲフン！*
 
 &nbsp;
 
-And ...... anyway! I fell into a deep sleep and woke up the next morning without even dreaming!
+In any case! That night, I fell into a deep sleep without dreaming and woke up refreshed the next morning!
 
 *と……兎に角！この日もアッサリと深い眠りに落ち、夢も見ずに健やかなる目覚めを翌朝迎える事になったのだ！*
 
@@ -687,199 +686,199 @@ And ...... anyway! I fell into a deep sleep and woke up the next morning without
 
 &nbsp;
 
-When I came back from my run that morning, I found Papa Howard training his sword in the courtyard.
+That morning, when I returned from my run, I found Papa Howard training with a sword in the courtyard.
 
 *その日の朝、走り込みから帰って来ると、中庭ではハワードパパが剣の鍛練をされていた。*
 
 &nbsp;
 
-Papa had returned quietly late last night when I was sleeping without dreaming, he said.
+Papa had quietly returned late last night while I was sleeping without even dreaming.
 
 *パパは、わたしが夢も見ずに眠っていた昨夜の遅い時間、静かにお戻りになっていたそうだ。*
 
 &nbsp;
 
-After I sweat myself off, I grab a towel as usual and watch Howard work out.
+After I washed off my sweat, I took a towel and went to watch Papa Howard's training as usual.
 
 *わたしは自分の汗を流した後、いつものようにタオルを持ってハワードパパの鍛練を見学する。*
 
 &nbsp;
 
-Howard Papa's swordsmanship is still cool.
+Papa Howard's swordsmanship is still so cool.
 
 *ハワードパパの剣技はやっぱり格好良い。*
 
-Each movement is as supple and powerful as flowing water.
+Each movement is as fluid and powerful as flowing water.
 
 *一つ一つの動きが流水の様にしなやかで力強い。*
 
-I've been seeing them every day for almost a year now, so I've memorized the patterns.
+Having watched him almost every day for nearly a year, I've memorized the forms.
 
 *もう、一年近く毎日の様に見ているので、型は覚えてしまった。*
 
 &nbsp;
 
-Pull there, then step forward. The center of gravity is dropped forward so that it flows from just below the shinbone, and the sword is thrust in as it is. Inhale as you rotate the sword on your shoulder, and exhale as you shoot down in front of the opponent.
+I draw back and then step in. I drop my center of gravity forward, flowing down from directly beneath my shinbone, and thrust. I inhale while rotating the sword over my shoulder and exhale as I strike down in front of me.
 
 *そこで引き、次に踏み込む。重心を脛骨の直下から流れる様に前に落して、そのまま突きを入れる。肩に剣を回しながら息を吸い、吐きながら正面に撃ち下ろす。*
 
 &nbsp;
 
-I've already learned when to breathe, so I go along with my dad and breathe along with him.
+I've memorized the timing of the breaths, so I end up breathing in sync with Papa.
 
 *もう息吹きのタイミングも覚えてしまったので、パパに合わせて呼吸も一緒に行ってしまう。*
 
 &nbsp;
 
-But I don't know why. ...... Today's dad is a little different from usual.
+But for some reason... today, Papa seems a bit different than usual.
 
 *でも、何でだろう……。今日のパパは何時もと少し違う。*
 
 &nbsp;
 
-He usually has a calm and composed appearance, but today his composure is even deeper than usual.
+He usually has a calm and composed demeanor, but today, his calmness seems deeper than ever.
 
 *普段から泰然自若とした佇まいを持つ剣筋なのだが、今日はいつも以上にその落ち着きが深い。*
 
-The aspect of the sword that Papa wields is deeper and heavier than ever.
+The way he wields his sword feels heavier and more profound than usual.
 
 *パパの振るう剣の様相が、いつにも増して深く重いのだ。*
 
 &nbsp;
 
-That heavy calmness makes something tingle inside me.
+That heavy calmness stirs something within me.
 
 *その重い落ち着きが、わたしに中で何かを疼かせる。*
 
-A small thumping sounded deep in my chest.
+My chest gave a small throb.
 
 *トクリと胸の奥が小さく鳴った。*
 
 &nbsp;
 
-I carry the towel to the place where Howard had finished his workout, as usual.
+I approached Papa Howard as he finished his training, bringing him the towel as usual.
 
 *わたしはハワードパパが鍛練を終えた所へ、何時もの様にタオルを運ぶ。*
 
-Then, after opening a breath, I boldly asked.
+After a moment's pause, I mustered the courage to ask.
 
 *そして一呼吸開けてから思い切って聞いてみた。*
 
 &nbsp;
 
-Um, Howard, Dad. Was there anything ......, sir?"
+"Um, Papa Howard. Is something... wrong?"
 
 *「あの、ハワードパパ。何か……、ありました、か？」*
 
 &nbsp;
 
-When I said this, Howard's hand, which was wiping his face with the towel he had received, stopped for a moment.
+When I said that, Papa Howard's hand, which had been wiping his face with the towel, paused for a moment.
 
 *わたしがそう言うと、受け取ったタオルで顔を拭いていたハワードパパの手が一瞬止まった。*
 
 &nbsp;
 
-What is it? What is it? Did you feel something in my sword?
+"Something? ...Do you feel something in my sword?"
 
 *「何か？…かね？ワシの剣に何かを感じたのかね？」*
 
-"Yes, I felt that the sword line was more massive ...... than usual. It was as if ...... you were setting your mind on something, anything, ...... and I got that feeling."
+"Um... yes, it feels heavier than usual... as if... as if you have set your mind on something..."
 
 *「え…、はい、剣筋がいつもより重厚に感じました……。まるで……まるで、何かの、何かにお気持ちを据えた様な……、そんな感じを受けました」*
 
 &nbsp;
 
-Upon hearing this, Howard's eyes widened for a moment, but then he immediately narrowed them and smiled happily.
+Upon hearing that, Papa Howard's eyes widened for a moment, but then he quickly narrowed them and smiled happily.
 
 *それをお聞きになったハワードパパは、一瞬目を見開いたけど、直ぐに目を細め嬉しそうな笑顔をお見せになった。*
 
 &nbsp;
 
-I see. ...... I see. The swordsmanship is something that can never be faked.
+"I see... I see. The way of the sword truly cannot be deceived."
 
 *「そうか……そうか。剣筋と云う物はつくづく誤魔化しが効かぬ物だな」*
 
 &nbsp;
 
-Then he becomes caracara and funny.
+He chuckled heartily.
 
 *そう言ってカラカラとお笑いになる。*
 
 &nbsp;
 
-I wonder how easily Susie's eyes can catch the state of my heart! Ha ha ha ha! This is a return to yesterday's point, isn't it?"
+"My state of mind can be so easily perceived by Suzy's eyes! Hahaha! This is a response to the intent from yesterday, isn't it?"
 
 *「我が心の在り様が、こうも容易くスージィの眼には捉えられてしまうか！ハッハッハッ！コレは昨日の趣旨返しだね？」*
 
-What? No, no! That's not what ......!"
+"Eh? N-no! That's not...!"
 
 *「え？い、いえ！そんな事は……！」*
 
 &nbsp;
 
-Before I could continue, Howard's hand gently caressed my head.
+Before I could continue, Papa Howard gently patted my head.
 
 *わたしが言葉を続ける前に、ハワードパパの手がわたしの頭を優しく撫でた。*
 
 &nbsp;
 
-Thank you Susie, you're worried about me, aren't you? But ...... I'm fine, there's nothing to worry about."
+"Thank you, Suzy. You're worried about me, aren't you? But... it's okay, there's nothing to worry about."
 
 *「ありがとうスージィ、ワシを心配してくれているのだね？だがね……大丈夫だ、心配する事など何も無い」*
 
 &nbsp;
 
-He then yanked down the hand he had placed on my head and cupped his hand around my cheek.
+Saying that, Papa Howard slowly lowered his hand from my head and cupped my cheek with it.
 
 *そう言うとハワードパパは、わたしの頭の上に置いた手をそのままユックリと下ろし、わたしの頬を包むように手を添えてくれた。*
 
 &nbsp;
 
-It's true that AmCam is going through a difficult time," he said. But AmCam is not so soft that it can't handle something like this, okay?"
+"Indeed, Amkam is going through a tough time right now. However, Amkam is not so soft that it can be easily shaken by this level of difficulty."
 
 *「確かに今アムカムは大変な時だ。しかし、この程度でどうにかなる程アムカムは軟では無いよ？」*
 
-"...... Yes."
+"…Yes."
 
 *「……はい」*
 
-'Hmmm ......, yes. Yesterday I told you not to go out too much. ....... If we don't have enough help, could you lend us a hand?"
+"Hmm... that's right. I told you not to wander around too much yesterday... But if it seems like we are short-handed, could I ask for your help?"
 
 *「ふむ……、そうだね。昨日は余り出歩いてはくれるな、と言ったが……。もし、我々の手が足りない様であれば、キミの手も貸してもらえるかな？」*
 
-Ha, hi! Of course! If there's anything I can do to help, I'll do it!
+"Y-yes! Of course! If there's anything I can do, I'll help as much as I can!"
 
 *「ハ、ハイ！も、勿論です！わたしに出来る事なら、幾らでも、お手伝い致します！」*
 
 &nbsp;
 
-When I gave him my answer, he put his hand on my cheek and smiled happily.
+When I quickly replied, Papa Howard smiled happily while still holding my cheek.
 
 *わたしが透かさずお答えすると、ハワードパパはわたしの頬に手を添えたまま嬉しそうに微笑まれた。*
 
 &nbsp;
 
-Well, that's a relief to hear. Please take care of the ...... village, Suzy. Protect them all. ......"
+"I’m relieved to hear that. Please take care of the village... take care of everyone..."
 
 *「そうか、それを聞いて安心したよ。村を……村の事をよろしく頼むスージィ。皆を守ってやってくれ……」*
 
-"...... yes, I'll take care of it. ...... please.
+"…Yes, I will do my best..."
 
 *「……はい、お任せ……くだ、さい」*
 
-I promise. ...... please."
+"That's a promise... I'm counting on you."
 
 *「約束だ……頼んだよ」*
 
 &nbsp;
 
-I put my own small hand on top of the big, hard hand on my cheek, and nodded yukily as I looked into Papa Howard's eyes.
+I placed my small hand on top of Papa Howard's large, firm hand resting on my cheek, looking into his eyes as I slowly nodded.
 
 *わたしは、わたしの頬に添えられた大きく硬い手の上に、自分の小さな手も添え、ハワードパパの眼を見ながらユックリと頷いた。*
 
 &nbsp;
 
-Still, the small melancholy that was born deep in my heart never disappeared, and continued to smolder forever.
+Yet still, the small worry that had formed deep within my chest did not disappear, continuing to flicker and smolder within me.
 
 *それでもやはり、胸の奥に生まれた小さな憂いは消える事無く、いつまでもユラユラと燻り続けていた。*
 
@@ -901,83 +900,83 @@ Still, the small melancholy that was born deep in my heart never disappeared, an
 
 &nbsp;
 
-After breakfast, Papa Howard went straight to the Amcam House.
+After finishing breakfast, Papa Howard headed to Amkam House.
 
 *朝食を済ませた後、そのままハワードパパはアムカムハウスへと向かって行かれた。*
 
-He said he would not return until the Knights arrived.
+He said he wouldn't be back until the knight order arrives.
 
 *騎士団が到着されるまでは、もう戻られないと云う事だ。*
 
 &nbsp;
 
-Sonia-mama said she would be there before noon, so after lunch at the school, I decided to go straight to the Amcome House.
+Since Sonia Mama would also be leaving around noon, I decided to have lunch at school and then head to Amkam House.
 
 *昼前にはソニアママも行かれると云う事なので、わたしもお昼を学校で頂いたら、そのままアムカムハウスへ向かわせて貰う事にした。*
 
 &nbsp;
 
-When I told him about it when we got to the school, he said that Bibi and Mia were going with us.
+When I mentioned this after arriving at school, Vivi and Mia said they would go with me.
 
 *その事を学校に着いてから話したら、ビビとミアも一緒に行くと言い出した。*
 
 &nbsp;
 
-Bibi wants to go see his father, who has not yet returned home, and Mia says she is ...... my chaperone.
+Vivi wanted to see her father, who hadn't returned home yet, and Mia... said she was my escort.
 
 *ビビは、まだ帰宅されていないお父様の顔を見に行きたいと言い、ミアは……わたしの付添だそうだ。*
 
 &nbsp;
 
-After the morning's classroom lecture, I said no to the teacher, hurriedly finished my meal, and headed to the Amcam House.
+After the morning classes ended, I told the teacher I would be leaving and hurriedly finished my meal before heading to Amkam House.
 
 *午前の座学が終わった後、先生にお断りを入れ、食事を急いで済ませてアムカムハウスへ向かった。*
 
-The Amcome House is about a kilometer west of the school. It is a little off to the south from our way home.
+Amkam House is located just over a kilometer west from the school. It feels like it veers slightly south from our usual route home.
 
 *学校からアムカムハウスまでは、西へ1キロちょい進んだ所にある。わたし達の帰宅路から途中南へ少し逸れて在る感じだ。*
 
 &nbsp;
 
-The Amcam House was right in the middle of the hustle and bustle when we arrived.
+When we arrived at Amkam House, it was in the midst of chaos.
 
 *到着したアムカムハウスは正に喧騒の最中にあった。*
 
 &nbsp;
 
-Many large wagons came and went, blocking the road, attached to the buildings, waiting their turn to unload.
+Many large horse-drawn carriages were blocking the road, waiting to unload their cargo at the building.
 
 *多くの大型の馬車が行き交い道を塞ぎ、建屋に取り付き荷卸しの順番を待っていた。*
 
-The person to whom the unloaded load is stacked, and who classifies the load, and who carries the classified load.
+The unloaded goods were being stacked, with some sorting the cargo and others transporting the sorted goods.
 
 *その下ろした荷が積み上げられ、その荷を分類している者、分類された荷を運ぶ者。*
 
-A person opens a package, checks its contents, and takes out the materials. Craftsmen begin to work with the materials.
+Some were opening the transported goods to check their contents and extract materials. And there were craftsmen starting their work using those materials.
 
 *運ばれた荷を開き中身を確認し資材を取り出す者。そしてその資材を使い、作業を始める職人さん達。*
 
 &nbsp;
 
-It was as if the area around the Amcam House had suddenly become a noisy construction site.
+The area around Amkam House suddenly resembled a noisy construction site.
 
 *アムカムハウスの周りが、突如、騒々しい工事現場にでもなった様だった。*
 
 &nbsp;
 
-Nah! What is this? This!
+"What on earth is this?!"
 
 *「な！なんなのよー！これーー！！」*
 
 &nbsp;
 
-Bibi is yelling at me, covering his ears with the palms of his hands.
+Vivi shouted while covering her ears with her palms.
 
 *ビビが両手の掌で耳を塞いで怒鳴っている。*
 
 &nbsp;
 
-Quite right, this is a messy hustle and bustle that bears no resemblance to the long, quiet Amkam.
+Indeed, this chaotic noise is not fitting for the peaceful Amkam.
 
 *全くだ、これは長閑なアムカムには似つかわしくない雑然たる喧騒だ。*
 
@@ -985,147 +984,147 @@ Quite right, this is a messy hustle and bustle that bears no resemblance to the 
 
 &nbsp;
 
-"Princess? Isn't that Princess Suzy of Amcam?
+"Princess?! Is that Princess Suzy from Amkam?!"
 
 *「姫様？！アムカムのスージィ姫様じゃないですか？！」*
 
 &nbsp;
 
-A beautiful voice, which passed well in such a bustling place, came from behind, throwing words that made me blush.
+Amidst the noise, a clear voice called out from behind, throwing a word that made me blush.
 
 *そんな喧騒の中でも良く通る綺麗な声が、後ろから赤面させるような単語を投げかけて来た。*
 
 &nbsp;
 
-What? Nah! What?
+"Wha?! Wh-what are you talking about?!!"
 
 *「なぁっ？！なっ！にゃにをっ？！！」*
 
 &nbsp;
 
-The people around me who are working are all looking at me!
+Everyone working around turned to look at us?!
 
 *作業をしてる周りの人が、皆コッチ見てるんですけどぉ？！*
 
-I turned around, feeling my face heat up, and there she was, a lovely older sister.
+Feeling my face heat up, I turned around to find a cute older girl approaching with a round smile.
 
 *顔が熱を帯びるのを感じながら振り向くと、そこには可愛げなお姉さんがいらっしゃった。*
 
 &nbsp;
 
-The person who came running toward us with a big smile on her face was Raisa, one of the knights who visited our house the other day.
+It was Lysa, one of the knights who visited our house the other day, coming towards us in a hurry.
 
 *コロコロとした笑顔を浮かべて小走りで此方へ向かって来るその人は、先日我が家へ訪れた騎士団のお1人、ライサさんだった。*
 
 &nbsp;
 
-I knew it was Princess Susie! I'm so happy to see you again! We meet again!
+"It really is Princess Suzy! I'm so glad to see you again!"
 
 *「やっぱりスージィ姫様だ！よかったぁ！またお逢いできましたぁ」*
 
-What? ...... la, raisa, mr.?"
+"Eh?! ...L-Lysa?"
 
 *「えっ？！……ラ、ライサ、さん？」*
 
-Yes, I am Raisa Ulunova, Your Highness! You remembered me! Thank you!
+"Yes, I'm Lysa Ulunova, Princess! Thank you for remembering me!"
 
 *「はい、ライサ・ウルノヴァです、姫様！憶えてて下さったんですね！ありがとう御座います！」*
 
 &nbsp;
 
-I introduced Ms. Raisa to Bibi and Mia, who were looking quizzically at me with their hands over their ears, trying to keep the noise down.
+I introduced Lysa to Vivi and Mia, who were looking at her with puzzled expressions, trying to suppress the noise.
 
 *騒音を抑えようと、耳に手を当てながら訝しげな顔をしているビビとミアに、ライサさんの事を紹介した。*
 
-I'm just saying hello, but I'm not sure if you're not aware that I've been called a "princess"!
+But aren't we just casually greeting each other? Why is no one addressing the fact that I was called "princess"?!
 
 *てか普通に挨拶してるんだけど、わたしが『姫』呼ばわりされた事はスルーしてないかぃ？！*
 
 &nbsp;
 
-Sorry for the noise. ......
+"I'm sorry for the noise..."
 
 *「騒がしくて申し訳ありませんね……」*
 
 &nbsp;
 
-Raisa-san put her hands behind her head and showed me an apologetic smirk as she looked around.
+Lysa placed her hand behind her head and looked around with an apologetic smile.
 
 *ライサさんが頭の後ろに手を置いて、周りを見ながら申し訳無さ気に苦笑して見せた。*
 
 &nbsp;
 
-We're going to have to do a rush job to get it done in time.
+"We're in a rush to finish construction; otherwise, we won't make it in time!"
 
 *「もう、突貫工事でもしなけりゃ間に合わないんですよぉ」*
 
 &nbsp;
 
-I knew it was a construction site.
+So it really was a construction site.
 
 *やっぱり工事現場だった。*
 
 &nbsp;
 
-Raisa-san told us that they are preparing temporary accommodations for the main body of the Knights and their support personnel who will come later.
+According to Lysa, they were preparing temporary accommodations for the main knight order that would arrive later and their support staff.
 
 *ライサさんのお話では、この後から来る騎士団本隊と、そのサポート関係の方達の仮設宿舎を用意しているのだそうだ。*
 
 &nbsp;
 
-I'm so tired of it! Our envoys are too much like servants! He had to return all the way to Amkam without a day off! I thought I'd be able to rest once I got to Amkam, but my unit commander told me to supervise the construction of the dormitory! Ahh..! I'm sure I'll die of exhaustion without a boyfriend!
+"Honestly! Our representative is working us too hard!! It's a non-stop whirlwind! I thought I could rest once I arrived in Amkam, but our squad leader told me to supervise the construction of the accommodations! Ah! I'm definitely going to overwork myself and die without even getting a boyfriend!!"
 
 *「もうですね！ウチの使節代表、人使いが酷過ぎなんです！！休み無しのとんぼ返りなんですよ？！アムカムに着けば休めると思ってたら宿舎建設の監督をしろとウチの部隊長がっ！あぁ！きっとアタシは彼氏も出来ずに過労死してしまうに違いありませんっっ！！」*
 
-That's ......, that's a big deal. ......
+"Th-that's... tough..."
 
 *「そ、それは……、大変です……ね」*
 
 &nbsp;
 
-It seems that they have come to know the black working environment of the knighthood without realizing it.
+I unintentionally learned about the knight order's harsh working conditions.
 
 *図らずも、騎士団のブラックな労働環境を知る事になってしまった様だ。*
 
-Both Bibi and Mia look at Raisa with sympathy as she gazes up at the heavens and laments.
+Vivi and Mia exchanged sympathetic glances with Lysa, who was looking up at the sky in despair.
 
 *ビビもミアも天を見上げて嘆くライサさんに、同情の視線を送っている。*
 
 &nbsp;
 
-Oh! I am sorry to keep you here! You came to see your father ......, didn't you, Your Highness?"
+"Ah! I'm sorry for stopping you! You came to see... the head, didn't you?"
 
 *「あ！申し訳ありません、お引止めしてしまって！お父様に……、御頭首様に御会いに来られたのでしょう？」*
 
 &nbsp;
 
-Raisa clapped her hands as if she had just noticed.
+Lysa suddenly clapped her hands as if she just realized something and said to me.
 
 *ライサさんが　ハタ　と、今気が付いたと言う様に手を叩きわたしに言った。*
 
-When I told him that was the case, he told me that Howard and his family had left the office a little while ago to have a late lunch, so they should be in the Great Hall by now.
+When I confirmed that I did, she told me that Papa Howard and the others had left the office a little while ago for a late lunch and should be in the great hall by now.
 
 *わたしが　そうだ　と告げると、ハワードパパ達は遅い昼食を摂る為、少し前に執務室を出たから、今頃は大広間に居られる筈だと教えてくれた。*
 
 &nbsp;
 
-Oh, I have to go back! If I don't go back now, I'll get a big kick in the butt from Captain Magritte......! Princess! I hope to see you again!
+"Ah! I have to go back too, or I'll get scolded by Captain Magritte! Princess! Please meet again soon!!"
 
 *「ああ！アタシももう戻らないと、マグリット部隊長に大目玉貰ってしまいますぅー！姫様！またお会いしてくださいねー！！」*
 
 &nbsp;
 
-After he told me, Mr. Raisa ran off in a great hurry, shouting that he was in a hurry. He was surprisingly hectic. ......
+After telling me that, Lysa hurriedly ran off, surprisingly busy.
 
 *教えてくれた後、そう叫びながら大慌てでライサさんは走り去ってしまった。意外と慌ただしい人だったんだなぁ……。*
 
-Bibi and Mia both look at me like I'm a dunce and I'm looking away.
+Vivi and Mia looked at her with exasperated expressions as they watched her go.
 
 *ビビもミアも呆れたような顔をして見送っているよ。*
 
 &nbsp;
 
-And so we made our way through the hustle and bustle to the hall where Howard's father and his family were staying.
+And so we headed through the chaos towards the great hall where Papa Howard and the others were.
 
 *そうしてわたし達は、ハワードパパ達のいらっしゃる大広間へと喧騒の中を向かって行ったのだ。*
 
@@ -1147,425 +1146,423 @@ And so we made our way through the hustle and bustle to the hall where Howard's 
 
 &nbsp;
 
-The distance from De Kembel to Copetown is approximately 300 kilometers, connected by a paved and well-maintained road.
+The distance from Dekkenbel to Coop Town is approximately 300 kilometers, connected by a paved and well-maintained road.
 
 *デケンベルからコープタウンへの距離は凡そ300キロ、それを繋ぐのは舗装され整備された街道である。*
 
-The path was sturdy, paved with 50-cm tortoise-shell shaped basalt.
+The road is lined with hexagonal basalt stones about 50 centimeters in size, making it sturdy.
 
 *道は50センチ程の亀甲型の玄武岩が敷き詰められ、頑丈な造りをしていた。*
 
-The road is more than 5 meters wide and can easily be passed by horse-drawn carriages.
+The width of the road exceeds 5 meters, allowing horse-drawn carriages to easily pass each other.
 
 *道幅は5メートルを超え、馬車のすれ違いも容易に行う事が出来る物だ。*
 
-It straddles the center of this continent and is one of the arteries of the country connecting end to end.
+It serves as one of the arteries of the nation, spanning the center of the continent from end to end.
 
 *それはこの大陸の中央を跨ぎ、果てから果てを繋ぐ国の動脈の一つでもある。*
 
 &nbsp;
 
-On that street, a group of several dozen horsemen and several wagons were now heading north and making their way along the road.
+Now, on that road, a group consisting of dozens of horsemen and several carriages was heading north.
 
 *その街道に今、数十の騎馬と、馬車数台から成る集団が北へと向かい道を進んでいた。*
 
 &nbsp;
 
-Those on horseback carried backpacks, armored limbs, and wore cyan-blue glowing magical beads on their chests.
+The riders were carrying backpacks, clad in armor on their arms and legs, and wore cyan-blue magical orbs on their chests.
 
 *馬上の者達は背嚢を背負い、手足に装甲を纏わせ、胸元にはシアンブルーに輝く魔珠を身に着けていた。*
 
-It is clear that the group, with its occasional glimmer of light, is no ordinary brigade.
+The occasional glimmer of light from that group made it clear they were not an ordinary traveling party.
 
 *時折光を煌めかせるその集団が、一般の旅団では無い事は明らかだ。*
 
 &nbsp;
 
-Among them, an ebony chariot, larger than the others and conspicuously conspicuous, was being escorted by the surrounding horsemen, led by a dozen or so horsemen in a neat line.
+Leading the way were a dozen neatly lined-up horses, with a particularly large ebony carriage being escorted by the surrounding riders.
 
 *その中で十数頭の整然と並んだ騎馬に先導され、一際目を引く他よりも大きな黒檀作りの馬車が、周りの騎馬に護衛をされる様に進んでいた。*
 
 &nbsp;
 
-There was a horseman approaching the carriage with only one rider.
+A single rider approached the carriage.
 
 *その馬車に、一騎だけで近付く騎馬が居た。*
 
-It runs alongside the carriage, removes its own hood and knocks lightly on the carriage window several times.
+He ran alongside it, removed his hood, and lightly knocked on the carriage window a few times.
 
 *それは馬車に並走し、自らのフードを外し馬車の窓を数回軽くノックする。*
 
 &nbsp;
 
-The face that emerged from the hood was that of a man in his late thirties with stern, piercing eyes.
+The face that appeared from under the hood belonged to a man in his late thirties with sharp, fierce eyes.
 
 *フードから現れた顔は、30代後半程の厳つく鋭い目を持つ男のものだった。*
 
-His short black hair was brushed back and his mustache was tied tightly around his mouth. The scars on his cheeks showed that he was a man who had seen many battles.
+His short black hair was slicked back, and his mustached mouth was tightly closed. Several scars ran across his cheeks, indicating that he was someone who had seen many battlefields.
 
 *短く揃えた黒髪を撫で付け、口髭を乗せた口元はきつく結ばれている。頬に走る幾筋もの傷跡が、男が数多くの戦場を知る者だと知らしめていた。*
 
 &nbsp;
 
-After a brief pause, the carriage windows began to open sideways with a yuk.
+After a brief pause, the carriage window slowly began to slide open.
 
 *暫しの間を置き、馬車の窓がユックリと横へ開き始めた。*
 
-The man peeks out of the ornately decorated window and looks at those on horseback with an irreverent expression on his face.
+The man who peeked out from the luxuriously decorated window looked at the rider with a disdainful expression.
 
 *豪華な装飾が施された窓から顔を覗かせた男は、不遜な表情で馬上の者に視線を向ける。*
 
 &nbsp;
 
-In the window, I saw a man with his face peeking out, holding a glass of champagne in his hand.
+Inside the window, the man who had peeked out was seen holding a champagne glass.
 
 *窓の中では、顔を覗かせた男がシャンパングラスを手に持っているのが見えた。*
 
-Further back, a woman can be seen holding a bottle of champagne poured into a glass.
+Further inside, a woman could be seen holding a bottle of champagne that had been poured into the glass.
 
 *更に奥には、グラスに注いだシャンパンのボトルを持つ女性の姿も見て取れる。*
 
-We cannot see their faces, but we can see that they are wearing dresses with wide open bosoms. Perhaps they are people who make their living by drinking and conversing with others.
+Though her face was not visible, it was clear she was wearing a dress with a large neckline. They were likely individuals whose profession involved serving drinks and engaging in conversation.
 
 *顔までは見えないが、胸元を大きく開けたドレスを着ているのが判る。恐らくは、酒と会話の相手をする事を生業とする者達なのであろう。*
 
 &nbsp;
 
-However, the person on horseback omitted such a presence from his view and spoke to the owner of the carriage whose face peeked out.
+However, the rider ignored such presences and spoke directly to the master of the carriage.
 
 *しかし馬上の者はその様な存在は視界内から省き、顔を覗かせた馬車の主へと言葉を掛けた。*
 
 &nbsp;
 
-Representative Houllier. We are on schedule to arrive in Copetown on the 25th of the second month.
+"Representative Fourier. It seems we will arrive in Coop Town as scheduled on the 25th of the Second Moon."
 
 *「フーリエ代表。コープタウンまでは予定通り、2の蒼月25日に到着出来そうです」*
 
-"Hmmm... ......, I wonder? "Hmmm...I wonder if seven days from Dekenbel to Amkam is a little too long a journey..."
+"Hmm... I wonder if the seven-day journey from Dekkenbel to Amkam is taking a bit too long?"
 
 *「ふむ……思うのだがね？デケンベルからアムカムまで7日の行程と言うのは、少し時間を掛け過ぎなのでは無いかね？」*
 
 &nbsp;
 
-When the man on the horse announced that his travel schedule was not in order, the man in the carriage, called Fourier, let out a sigh of frustration from his large, distinctive nose and expressed his dissatisfaction with the schedule.
+When the rider reported that the travel schedule was going smoothly, the man called Fourier inside the carriage let out a sigh through his prominent nose, expressing dissatisfaction with the schedule.
 
 *馬上の男が旅の予定が恙ない事を告げれば、馬車の中のフーリエと呼ばれた男は、大きく特徴的な鼻から溜め息の様に息を出し、その予定に不満を表した。*
 
 &nbsp;
 
-The distance that would normally take more than 10 days to travel is being done with a minimum of rations. I am sure you understand that this is quite an arduous march.
+"Under normal circumstances, it would take more than ten days to cover this distance with only the minimum supplies. You should understand that this is quite a forced march."
 
 *「本来であれば10日以上かかる距離を、最低限の兵糧だけでの進行です。これは相当に強行軍である事は、ご理解頂いている筈ですが？」*
 
-"Mmm... but you know what? Do you know how long it has been since we left Meridies? It's already been two months! And we haven't even arrived there yet! What a disappointment! Can't you see that the people want results as soon as possible?
+"Well... but how long do you think it has been since we left the royal capital of Meridies? It's already been two months! And we still haven't even arrived at the destination! How disgraceful! Don't you understand that the citizens are demanding results as soon as possible?!"
 
 *「む…、しかしな！王都メリディエスを発ちどれだけ経っていると思っている？既に2ヶ月だ！それが未だ現地にすら到着をしていない！何という不甲斐なさであろうか！貴公は国民が一刻も早い成果を求めているのが判らぬか？！」*
 
-With all due respect, it's only been two months. Isn't it a great achievement to have brought this unit to this point in just two months?"
+"With all due respect, it's only been two months. Don't you think it's an achievement to have brought this squad this far in just two months?"
 
 *「お言葉ですが、僅か2ヶ月です。僅か2ヶ月でこの隊を此処まで到達させた事こそ偉業とは思われませんか？」*
 
 &nbsp;
 
-The man on horseback explains the forcible nature of the itinerary and that he is fully ripe for it, but the one called Fourier still seems to be unconvinced.
+While the rider explained the urgency of the journey and that they were well aware of it, the man called Fourier still seemed dissatisfied.
 
 *馬上の男が旅程の強行さと、それを十分に熟している事を説明するが、フーリエと呼ばれた人物はそれでもまだ納得がいかないとでも言いたげだ。*
 
-Then, from the back of the carriage, a man with nervous eyes came to speak irritatingly to the man on horseback.
+At that moment, a nervous-looking man from the back of the carriage threw words at the rider with irritation.
 
 *そこへ馬車の奥から、神経質そうな目をした男が馬上の男に苛立たしげに言葉を投げかけて来た。*
 
 &nbsp;
 
-Captain Meyer! Even though you are a knighthood, aren't you being too opinionated about your representative? You are the representative of this delegation!
+"Captain Meyer! Even if you are part of the knight order, isn't it a bit too much to speak so freely to the representative?! Mr. Fourier is, after all, the head of this mission!"
 
 *「マイヤー隊長！いくら騎士団とはいえ、代表に対して意見が過ぎてはおりませんか？！フーリエ様は仮にもこの使節団の代表なのですぞ！」*
 
-...... Hmm, no problem, Mr. Clark. More importantly, was it Copetown? Is everything all right? It is a small rural town with a population of 2,000 at the most, isn't it? Is it possible to procure materials satisfactorily? Shouldn't you have gone to Dekenberger?"
+"…Hmph, I don't mind, Clark. More importantly, Coop Town, right? Is it really okay? It's just a small rural town with a population of about 2,000, isn't it? Can we really procure satisfactory materials there? Shouldn't we have taken care of that in Dekkenbel?"
 
 *「……ふん、構わんよクラーク君。それよりも、コープタウンだったか？大丈夫なのかね？高々人口2,000人程度の小さな田舎町なのであろう？満足の行く資材調達は可能なのかね？デケンベルで済ませるべきでは無かったのかね？」*
 
 &nbsp;
 
-The man, with his sallow face contorted, gave the man on horseback a bitter look, to which Houllier admonished him and threw further complaints at the man on horseback, whom he called Meyer.
+The man grimaced as he criticized the rider, but Fourier admonished him and threw further dissatisfaction back at the man called Meyer.
 
 *男は浅黒い顔を歪めながら馬上の男に苦言をぶつけるが、それをフーリエが諌め、更なる不満をマイヤーと呼ばれた馬上の男に投げかけた。*
 
 &nbsp;
 
-Coppertown is the northernmost and last commercial center in our country, but it still sees more than 10,000 visitors a day. It is not a small place. I am sure it was the decision of the representative of the mission to hurry ahead and reduce the number of cargoes to avoid losing any more visitors.
+"Coop Town is the northernmost and last commercial area of our country, with over ten thousand visitors per day. Its scale is certainly not small. Moreover, it was the representative's decision to minimize the load and hurry along."
 
 *「コープタウンは我が国最北端、最後の商業地ですが、一日の来街者は一万を超えています。その規模は決して小さな物ではありません。ましてや足を落さぬ為に荷を少なくし、先を急がれる事は使節代表の御判断であった筈」*
 
-I said, "...... hmmm. Is that right? So there's no problem getting materials locally then?"
+"…Hmph. Is that so? Then there shouldn't be any issues with procuring materials on-site?"
 
 *「……ふん。そうだったかな？ならば現地での資材調達は問題は無いのだな？」*
 
-Magritte, who preceded us, has already made contact with Amcam. She is now preparing to receive us."
+"The advanced team, Magritte, has already made contact with Amkam. She is currently preparing for our reception."
 
 *「先行したマグリットが、アムカムとの接触を済ませています。彼女が今、我々の受け入れ準備を進めております」*
 
-'Hmmm, pigeon tidings. ....... Very well, I leave it to you. Cedric Meyer, commander of the 12th Motorized Heavy Knights, 1,000 men. Please hurry.
+"Hmm, a pigeon message... Very well, I leave it to you. Cedric Meyer, captain of the 12th Mobile Heavy Knight Brigade. Please hurry."
 
 *「ふむ、ハトの報せか……。宜しい、君に任せる。第十二機動重騎士団千人隊長セドリック・マイヤー。急いでくれたまえ」*
 
-"At your service, Cameron Houllier, head of the research mission."
+"I'll take care of it, representative Cameron Fourier."
 
 *「お任せ下さい、キャメロン・フーリエ調査使節団代表」*
 
 &nbsp;
 
-Waving his hand as if to say he has nothing more to say, Cameron Fourier closes the window of the carriage.
+With a wave of his hand, as if to indicate there was nothing more to discuss, Cameron Fourier closed the carriage window.
 
 *もう話す事は無いと言いたげに手を振り、キャメロン・フーリエが馬車の窓を閉めて行く。*
 
-In the back of the room, the man called Clark continued to stare at Cedric Meyer until the end when the window was shut.
+Inside, the man called Clark continued to glare at Cedric Meyer until the window was completely shut.
 
 *その奥で、クラークと呼ばれた男は窓が締め切られる最後まで、セドリック・マイヤーを睨み続けていた。*
 
 &nbsp;
 
-You're still coming in here saying all sorts of self-indulgent things. ......
+"He's still saying whatever he wants, as always..."
 
 *「相変わらず勝手な事ばかり言って来ますね……」*
 
-Don't say that, Kyle. "Don't say that, Kyle. Don't feel bad if you think you're blasting us like that?"
+"Don't say that, Kyle. If you think of it as him spurring us on, it shouldn't feel too bad, right?"
 
 *「そう言うなカイル。ああやって我々に発破をかけているのだと思えば、悪い気もするまい？」*
 
 &nbsp;
 
-As Cedric pulled away from the carriage, the man called Kyle pulled his horse over.
+As Cedric moved away from the carriage, the man called Kyle drew closer on his horse.
 
 *セドリックが馬車から離れるのに合わせ、カイルと呼ばれた男が馬を寄せた。*
 
-Kyle's soft blonde hair flutters in the breeze, and his brow furrows as he speaks.
+Kyle, with his soft blonde hair flowing in the breeze, furrowed his brows as he spoke.
 
 *カイルは、纏う風に柔らかなブロンドの髪をなびかせ、眉根を寄せながら言葉を掛ける。*
 
 &nbsp;
 
-'Well, if the battalion commander says so, good.
+"Well, if the captain says so, that's fine."
 
 *「まあ、大隊長がそう言うなら良いですけど」*
 
-In fact, it is he who has brought this unit to this point in such a short period of time.
+"The fact is, it was that gentleman who brought this squad this far in this time."
 
 *「事実、この隊をこの期間で此処まで引っ張って来たのはあの御仁だ」*
 
-The real work is being done by us and our guys over there who are making the neighborhood, though, right?"
+"However, it's us and those subordinates over there who are actually doing the work, right?"
 
 *「実際に動いているのは我々や、あそこで隈を作ってるアチラの部下の方達ですけどね？」*
 
 &nbsp;
 
-With that, Kyle looked at the carriage positioned in the rear and the figure on horseback moving ahead of it.
+As he said that, Kyle glanced back at the carriage and the rider ahead.
 
 *そう言ってカイルは後方に位置する馬車と、その前を進む馬上の人物に目をやった。*
 
-Unlike the luxurious carriage in which Fourier was riding earlier, the carriage is a minimally constructed covered wagon with seats strapped together to accommodate 10 or more people.
+The carriage was a simple covered wagon with seats strapped in for over ten people, unlike the luxurious one Fourier had been in.
 
 *馬車は、先程フーリエが乗っていた豪華な物とは違い、10人以上が乗り込める様に座席を括り付けた最低限の作りをされた幌馬車だ。*
 
 &nbsp;
 
-In the covered wagon, many people had shadows under their eyes and were busy checking and producing documents. More than half of them were unconscious while being rocked by the wagon.
+Inside that covered wagon, many people were busy confirming and producing documents, their eyes shadowed from lack of sleep. More than half of them were even unconscious from the swaying of the carriage.
 
 *その幌馬車の中では、多くの者が目の下に隈を作り書類の確認、制作に追われていた。また馬車に揺られたまま、意識を失っている者も半数以上居る。*
 
-All are clerks who manage the funds and schedules of this mission.
+All of them were the clerks managing the funds and schedule of this mission.
 
 *全てこの使節団の資金とスケジュールを管理する事務官達だ。*
 
-Meanwhile, the person on horseback, who was their boss, was checking the documents presented to him from the carriage one after another. He was alone on the horse, so he could not lose consciousness. His shadows were more deeply etched than anyone else's.
+Meanwhile, their superior, the rider, was going through the documents presented from the carriage one after another. He couldn't afford to lose consciousness while riding. His shadows were deeper than anyone else's.
 
 *そんな中、彼らの上司にあたる馬上の人物は馬車から差し出された書類の確認作業を次々と行っていた。一人馬上に居る為に意識を落とす事も出来ない。彼の隈は誰よりも深く刻まれていた。*
 
 &nbsp;
 
-Kyle looked at him and sobered silently.
+Kyle watched this scene and quietly lowered his gaze.
 
 *カイルはその様を見て、黙ってソッと目を伏せた。*
 
 &nbsp;
 
-But still, a delegate is a delegate."
+"Still, the representative is the representative."
 
 *「それでも代表は代表だ」*
 
-"It's also representative of the fact that they demand detailed rest stops, you know? And it's common for innkeepers to stop for two or three days. ......"
+"Isn't it also that representative who keeps demanding small breaks? It's normal to stay in a lodging town for two or three days..."
 
 *「細かな休憩を要求して来るのも、その代表ですよ？宿場街では二日三日の停泊は当たり前ですしね……」*
 
-It's necessary to keep up the energy. That's what this schedule is all about."
+"Those are necessary to replenish our spirits. That was part of the schedule, after all."
 
 *「英気を養う為には必要な事だ。それも考えてのスケジュールなのだからな」*
 
-They are excellent people. Why don't you pull them out of our office?"
+"They're excellent personnel; it's a waste. Shouldn't we just recruit them for our office?"
 
 *「優秀な人材達ですよね、勿体無い。いっそウチの事務方に引き抜きませんか？」*
 
 &nbsp;
 
-Once again, Kyle looks at those behind him. Is it my imagination, or do the eyes of the person on the horse seem to be more bloodshot than before?
+Kyle looked back at the people behind him again. Did the rider's eyes seem more bloodshot than before, or was it just his imagination?
 
 *改めてカイルが後ろの者達に目をやる。馬上の人物の眼が、先程よりも血走っている様な気がするのは気のせいか？*
 
-As their boss, he is not allowed to sleep on the move, as he is unable to ride in a carriage and must proceed on a single horse due to differentiation.
+As their superior, he was not allowed to ride in a carriage and had to proceed on horseback alone, meaning he couldn't afford to sleep during the journey.
 
 *彼らの上司で有るが故、差別化で馬車に乗れずに単騎の馬で進まねばならない彼は、移動中に眠る事など許されないのだ。*
 
-Kyle again lowered his eyes and slowly shook his head.
+Kyle shook his head slowly again.
 
 *カイルは再び目を伏せ、ゆっくりと首を振った。*
 
 &nbsp;
 
-'We have some excellent clerical people in our corps, you know? In any case, after all is said and done, ....... We have to get to Amkam first."
+"Our office also has excellent personnel. In any case, that's something to discuss after everything is over... First and foremost, arriving at Amkam is the priority."
 
 *「我が隊の事務方も優秀な者が揃っているぞ？何れにしても、全て終わってからだ……。先ずはアムカムへの到着が先決だ」*
 
 &nbsp;
 
-Kyle responds, "Yes, that's right," and closes his mouth.
+Kyle responded with "That's right" to Meyer's words and closed his mouth.
 
 *マイヤーの言葉にカイルも　そうですね　と応え、口を閉じる。*
 
 &nbsp;
 
-It will take three more days to get to Amkam.
+They would arrive at Amkam in three days.
 
 *アムカムまでは後3日で到着だ。*
 
-I hope the road trip was uneventful and those clerks didn't lose any more nerves and sleep. ......
+He hoped that nothing would happen along the way and that those clerks wouldn't lose any more of their nerves or sleep.
 
 *道中何事も無く、あの事務官達がこれ以上神経と睡眠時間が削らる事なければ良いのだが……。*
 
-Kyle Irvine thought about this as he advanced his horse alongside Cedric Meyer.
+Kyle Arvin thought about such things as he rode alongside Cedric Meyer.
 
 *カイル・アーバインはそんな事を考えながら、セドリック・マイヤーと並んで馬を進ませた。*
-
-
 
 &nbsp;
 
 ----------------
 
-Sue! What the hell is this?
+"Suu! What is this all about?!"
 
 *「スー！！何だコレはぁーーっっ？！！」*
 
-Nyagyagyah! Dana? What the... nyanya nyanya nyanya nyanya?
+"Nyaa! Dana?! Wha—what the heck?!"
 
 *「にゃぎゃっ！ダーナ？！！い、いきなり・・・にゃっにゃにをっ？！！」*
 
-What do you mean by this? When did you get so good at this?
+"I'm asking you, when did this get so... 'impressive'?!"
 
 *「これはどう云う事だと言ってるんだぁ！いつの間にこんな立派に！！」*
 
-I'm not rubbing it.... Dana, you have your own, a great one......so you should be rubbing your own....nn!
+"Nyaa… b-but don't just grab them... Dana, you have your own, so why don't you—nnya… just focus on them!"
 
 *「…ぅ、うにゅ…だ、だから揉んじゃ…ンにゃ…。ダーナ、自分で、立派なの持って…るんだから…、自分の揉んでれば…ん！」*
 
-It's no fun to be rubbing your own! It's okay because it's someone else's! I'm an alien!
+"What's the fun in that?! It's because they're someone else's that it’s interesting! I'm a certified b**b enthusiast!"
 
 *「自分の揉んでたって面白くないじゃん！人のだから良いんだよ！！あたしはオッ〇イ星人だからな！！」」*
 
-I said it myself! I said it myself?
+"Nya?! Did you really just say that?!"
 
 *「ぅにゃ？！自分で言ったよ？！」*
 
-Hm? Hm...hm? Hm? This is ......"
+"Hmm? Uh… right, what is... oh, I see."
 
 *「ん？ン…んん？うん？これは……」*
 
-I'm not rubbing you... ah!
+"D-don't… don't say it out loud!"
 
 *「だ、だから・・・も、揉んじゃ・・・ぃにゃっ、ぁ！」*
 
-"...what's that, a mish-mash?"
+"...Oh, it's just a push-up."
 
 *「…何だ、寄せ上げか」*
 
-Don't! Don't give me away!
+"Wha—! Don’t give that away!!"
 
 *「なっ！ば、バラすなぁぁ！！」*
 
-I see, Sue wanted to get bigger! ...Then I'll rub it for you every day! Whihi!
+"So, Suu, you really wanted them to be bigger, huh? In that case, I'll give them a daily squeeze for you! Heh heh!"
 
 *「そうか、スーは大きくなりたかったのか！…なら、あたしが毎日揉んであげるよ！うひひ！」*
 
-"What? Why would I do that?"
+"Huh? W-why does it come to that?"
 
 *「ぅえ？な、なんでそうなるにょぉ？」*
 
-If I nibble on it, it will grow big. There you have it! There's the result, too! Whoo-hoo!
+"When I give 'em a good squeeze, they’re bound to grow! Just look at the results over here! Haha!"
 
 *「あたしがニギニギすれば大きく育つぞぉ。ホラ！そこに成果もある！うひ！」*
 
-What?
+"Wait, what?!"
 
 *「えっ？！」*
 
-"........."
+"..."
 
 *「「………」」*
 
-What? Colin? ...Huh? Mia? Huh? Huh?"
+"Eh? Colin? Mia?! What… what's happening?"
 
 *「え？コリン？…え？ミア？！ぇ？え？」*
 
-"You've got a good track record, don't you? Right?"
+"Isn’t it proof enough? Here, check it out!"
 
 *「確かな実績だろ？ホレ？」*
 
-Aaannnnnnd...? Really...? But... but... then..."
+"Nyah! R-really…? But… if that’s the case…"
 
 *「ぁにゅっ！ほ、ホントに…？ぁ…、で、でも…それじゃ…」*
 
-What? What's wrong? What's wrong?
+"What? Did something happen?!"
 
 *「ん？！ナニ？！どうかした？！」*
 
-"Huh? Bibi?
+"Uh?! Vivi?!"
 
 *「ぅえ？！ビビ？！」*
 
-...... Sue, there are some things I can do and some things I can't."
+"Look, Suu, there are some things I can help with… and some I can't."
 
 *「……スー、あたしにも出来る事と出来ない事があるんだよ」*
 
-"......aa"
+"Uh…"
 
 *「……ぁ」*
 
-What the hell is wrong with you people? Why are you looking away?
+"W-what's with you all looking away like that?"
 
 *「な、何よアンタら！？なんで目を逸らすのよ？！」*
 
-"Bibi...nya, nya, nya, nya, nya, nya?"
+"Vivi… I-it’s really… nothing, you know?"
 
 *「ビビ…にゃ、にゃんでも・・・にゃい、よ？」*
 
-"".........""
+"…"
 
 *「「「………」」」*
 
-What? What do you mean?
+"Why are you all ignoring me? What's going on here?!"
 
 *「何よ？！どう云う事よ？！」*
 
-"...n...n...something...sorry, okay?"
+"...Uh, um… Sorry… okay?"
 
 *「・・・ン、な、なんか・・・ゴメン、ね？」*
 
-"Face the Kochi!!!!!!!! ！！！！"
+"Everyone! Look this way—right now!"
 
 *「コッチを向けーーーーーーっっっ！！！！」*
 
 &nbsp;
 
-Next "Relief for Magritte Gauche"
+Next time: "The Relief of Magritte Goche"
 
 *次回「マグリット・ゴーチェの安堵」*
 
@@ -1575,7 +1572,6 @@ Thank you for reading.
 
 *お読みいただき、ありがとうございます。*
 
-I am firmly encouraged by your bookmark & rating! Thank you!
+Bookmarks and evaluations are a great encouragement! Thank you!!
 
 *ブクマ＆ご評価、しっかり励みになっております！ありがとうございます！！*
-
