@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0023.md)
 ###### [Previous Chapter](./chapter_0021.md)&nbsp;/&nbsp;
 
----
-
-
 # Attack? Double the return!
 
 ## 襲撃？　倍返しだ！

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0183.md)
 ###### [Previous Chapter](./chapter_0181.md)&nbsp;/&nbsp;
 
----
-
-
 # Reflection Meeting with Grandma Maria
 
 ## マリア婆との反省会

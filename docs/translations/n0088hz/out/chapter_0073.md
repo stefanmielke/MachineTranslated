@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0074.md)
 ###### [Previous Chapter](./chapter_0072.md)&nbsp;/&nbsp;
 
----
-
-
 # I Came to the Slave Trader
 
 ## 私は奴隷商へとやってきた

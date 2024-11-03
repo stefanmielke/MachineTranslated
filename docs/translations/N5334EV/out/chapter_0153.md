@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0154.md)
 ###### [Previous Chapter](./chapter_0152.md)&nbsp;/&nbsp;
 
----
-
-
 # Chapter 141: Each Night, Part 1 (In the Case of Philip Cloud)
 
 ## 141話　其々の夜　その1（フィリップ・クラウドの場合）

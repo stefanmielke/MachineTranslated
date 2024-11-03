@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0004.md)
 ###### [Previous Chapter](./chapter_0002.md)&nbsp;/&nbsp;
 
----
-
-
 # With the power of the gods, the final boss was nothing but a weakling. (●Illustration included)
 
 ## 神の力をもってすれば、ラスボスなんて雑魚だった。（●挿絵アリ）

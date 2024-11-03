@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0036.md)
 ###### [Previous Chapter](./chapter_0034.md)&nbsp;/&nbsp;
 
----
-
-
 # Tasting Comparison (Pirate's Perspective) 1
 
 ## 飲み比べ（海賊視点）１

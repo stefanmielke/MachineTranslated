@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0157.md)
 ###### [Previous Chapter](./chapter_0155.md)&nbsp;/&nbsp;
 
----
-
-
 # How about it, Dad? You're knowledgeable, right?
 
 ## どうだ、父ちゃん物知りだろ？

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0224.md)
 ###### [Previous Chapter](./chapter_0222.md)&nbsp;/&nbsp;
 
----
-
-
 # Underground Tournament
 
 ## 裏の大会

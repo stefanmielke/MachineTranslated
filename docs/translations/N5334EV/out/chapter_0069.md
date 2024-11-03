@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0070.md)
 ###### [Previous Chapter](./chapter_0068.md)&nbsp;/&nbsp;
 
----
-
-
 # Episode 64: The Sanctuary of Amukamu
 
 ## 64話　アムカムの聖域

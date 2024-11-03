@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0150.md)
 ###### [Previous Chapter](./chapter_0148.md)&nbsp;/&nbsp;
 
----
-
-
 # Chapter 137: Fluke's Nightmare
 
 ## 137話　フルークの悪夢

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0008.md)
 ###### [Previous Chapter](./chapter_0006.md)&nbsp;/&nbsp;
 
----
-
-
 # Episode 07: Suzy and the White Mountain Range
 
 ## 07話　スージィと白い山脈

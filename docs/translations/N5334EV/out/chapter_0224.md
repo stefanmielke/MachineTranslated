@@ -1,8 +1,5 @@
 ###### [Previous Chapter](./chapter_0223.md)&nbsp;/&nbsp;
 
----
-
-
 # Chapter 212: The Pursuer
 
 ## 212話　追跡者

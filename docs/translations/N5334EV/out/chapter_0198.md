@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0199.md)
 ###### [Previous Chapter](./chapter_0197.md)&nbsp;/&nbsp;
 
----
-
-
 # Chapter 186: Amukam Front
 
 ## 186話　アムカム戦線

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0180.md)
 ###### [Previous Chapter](./chapter_0178.md)&nbsp;/&nbsp;
 
----
-
-
 # Dear-kun's cough is really useful
 
 ## ディア君の咳払いマジ有能

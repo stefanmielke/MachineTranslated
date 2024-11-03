@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0147.md)
 ###### [Previous Chapter](./chapter_0145.md)&nbsp;/&nbsp;
 
----
-
-
 # Something seems off...?
 
 ## なんかおかしいような……？

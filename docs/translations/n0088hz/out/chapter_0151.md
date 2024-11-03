@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0152.md)
 ###### [Previous Chapter](./chapter_0150.md)&nbsp;/&nbsp;
 
----
-
-
 # Do you understand these words?
 
 ## こちらの言葉は分かるんですよね？

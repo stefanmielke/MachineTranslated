@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0158.md)
 ###### [Previous Chapter](./chapter_0156.md)&nbsp;/&nbsp;
 
----
-
-
 # Are you going to buy the weapons I made?
 
 ## 儂が拵えた武器でも買ってくか？

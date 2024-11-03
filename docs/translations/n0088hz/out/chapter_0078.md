@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0079.md)
 ###### [Previous Chapter](./chapter_0077.md)&nbsp;/&nbsp;
 
----
-
-
 # I must proceed immediately!! (From the perspective of a slave trader)
 
 ## すぐに手続きしなければぁ！！（奴隷商視点）

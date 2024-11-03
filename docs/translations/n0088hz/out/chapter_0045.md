@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0046.md)
 ###### [Previous Chapter](./chapter_0044.md)&nbsp;/&nbsp;
 
----
-
-
 # Elf Child ● With Illustrations
 
 ## エルフの子　●挿絵アリ

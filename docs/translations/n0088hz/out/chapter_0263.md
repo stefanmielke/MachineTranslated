@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0264.md)
 ###### [Previous Chapter](./chapter_0262.md)&nbsp;/&nbsp;
 
----
-
-
 # Is it like I'm clinging to straws?
 
 ## 藁にもすがってるカンジかな？

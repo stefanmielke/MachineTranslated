@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0231.md)
 ###### [Previous Chapter](./chapter_0229.md)&nbsp;/&nbsp;
 
----
-
-
 # VS Misha
 
 ## VSミーシャ

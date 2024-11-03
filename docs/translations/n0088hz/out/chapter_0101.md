@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0102.md)
 ###### [Previous Chapter](./chapter_0100.md)&nbsp;/&nbsp;
 
----
-
-
 # Just a little "movement," huh?
 
 ## ちょっと”動いた”だけだが？

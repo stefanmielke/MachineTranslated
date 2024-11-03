@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0203.md)
 ###### [Previous Chapter](./chapter_0201.md)&nbsp;/&nbsp;
 
----
-
-
 # Dear, take off your socks! ● Illustration included
 
 ## ディア君、靴下脱いで！●挿絵アリ

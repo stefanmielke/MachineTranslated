@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0047.md)
 ###### [Previous Chapter](./chapter_0045.md)&nbsp;/&nbsp;
 
----
-
-
 # The Boy's Daughter Training Plan, Activated
 
 ## 男の娘育成計画、始動

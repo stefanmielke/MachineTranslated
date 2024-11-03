@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0053.md)
 ###### [Previous Chapter](./chapter_0051.md)&nbsp;/&nbsp;
 
----
-
-
 # King of the Sea (Gomez's Perspective)
 
 ## 海の王（ゴメス視点）

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0282.md)
 ###### [Previous Chapter](./chapter_0280.md)&nbsp;/&nbsp;
 
----
-
-
 # Target discovered.
 
 ## ターゲット発見。

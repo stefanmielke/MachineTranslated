@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0155.md)
 ###### [Previous Chapter](./chapter_0153.md)&nbsp;/&nbsp;
 
----
-
-
 # Is there really such a fool?
 
 ## 居るのか、とんでもねぇバカ

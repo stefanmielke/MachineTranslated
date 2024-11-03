@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0043.md)
 ###### [Previous Chapter](./chapter_0041.md)&nbsp;/&nbsp;
 
----
-
-
 # Chapter One Characters
 
 ## 第一章登場人物

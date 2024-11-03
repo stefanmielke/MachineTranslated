@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0165.md)
 ###### [Previous Chapter](./chapter_0163.md)&nbsp;/&nbsp;
 
----
-
-
 # Episode 152: The Price of Red
 
 ## 152話　赤の代償

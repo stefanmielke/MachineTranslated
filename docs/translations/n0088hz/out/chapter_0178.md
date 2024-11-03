@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0179.md)
 ###### [Previous Chapter](./chapter_0177.md)&nbsp;/&nbsp;
 
----
-
-
 # I. I'm a beauty that could topple a nation.
 
 ## 私。傾国の美女じゃん。

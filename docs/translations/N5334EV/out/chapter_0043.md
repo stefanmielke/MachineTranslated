@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0044.md)
 ###### [Previous Chapter](./chapter_0042.md)&nbsp;/&nbsp;
 
----
-
-
 # Interlude 1: Let’s Go to the Sea
 
 ## 幕間1　海へ行こうよ！

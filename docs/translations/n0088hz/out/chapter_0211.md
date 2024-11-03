@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0212.md)
 ###### [Previous Chapter](./chapter_0210.md)&nbsp;/&nbsp;
 
----
-
-
 # There's nothing I can do now
 
 ## 今更どうしようもないね

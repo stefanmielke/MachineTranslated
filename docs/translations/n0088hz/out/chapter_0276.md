@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0277.md)
 ###### [Previous Chapter](./chapter_0275.md)&nbsp;/&nbsp;
 
----
-
-
 # "Anger"
 
 ## 『怒』

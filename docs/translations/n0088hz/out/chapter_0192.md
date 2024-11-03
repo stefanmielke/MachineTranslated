@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0193.md)
 ###### [Previous Chapter](./chapter_0191.md)&nbsp;/&nbsp;
 
----
-
-
 # Where shall I go next?
 
 ## 次はどこへ行こうかしら？

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0246.md)
 ###### [Previous Chapter](./chapter_0244.md)&nbsp;/&nbsp;
 
----
-
-
 # It's the One Who Misunderstands Who's at Fault, Meow
 
 ## 誤解する方が悪いにゃん

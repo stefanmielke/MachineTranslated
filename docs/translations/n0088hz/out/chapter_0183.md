@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0184.md)
 ###### [Previous Chapter](./chapter_0182.md)&nbsp;/&nbsp;
 
----
-
-
 # I want to...
 
 ## せっ……したいの……

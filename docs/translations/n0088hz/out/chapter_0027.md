@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0028.md)
 ###### [Previous Chapter](./chapter_0026.md)&nbsp;/&nbsp;
 
----
-
-
 # Report to God After the Fact Part 2
 
 ## 神様に事後報告　後編

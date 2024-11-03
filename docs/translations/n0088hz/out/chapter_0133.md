@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0134.md)
 ###### [Previous Chapter](./chapter_0132.md)&nbsp;/&nbsp;
 
----
-
-
 # Isn't it the best to be fluffy?
 
 ## もふもふで最高なんだが？

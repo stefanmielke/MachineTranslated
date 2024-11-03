@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0266.md)
 ###### [Previous Chapter](./chapter_0264.md)&nbsp;/&nbsp;
 
----
-
-
 # And a few days later.
 
 ## そして数日後。

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0014.md)
 ###### [Previous Chapter](./chapter_0012.md)&nbsp;/&nbsp;
 
----
-
-
 # Base Building
 
 ## 拠点作り

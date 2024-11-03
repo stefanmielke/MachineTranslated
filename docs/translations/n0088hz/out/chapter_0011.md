@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0012.md)
 ###### [Previous Chapter](./chapter_0010.md)&nbsp;/&nbsp;
 
----
-
-
 # F Rank Promotion!
 
 ## Ｆランク昇格！

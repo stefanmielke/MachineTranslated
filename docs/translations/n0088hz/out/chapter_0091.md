@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0092.md)
 ###### [Previous Chapter](./chapter_0090.md)&nbsp;/&nbsp;
 
----
-
-
 # Oh my, Sati-chan is such a good merchant!
 
 ## んもう、サティたんの商売上手っ！

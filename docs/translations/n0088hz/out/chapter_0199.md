@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0200.md)
 ###### [Previous Chapter](./chapter_0198.md)&nbsp;/&nbsp;
 
----
-
-
 # Tamer Special Tournament "Demon Familiar Cup"
 
 ## テイマー専門大会『従魔杯』

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0045.md)
 ###### [Previous Chapter](./chapter_0043.md)&nbsp;/&nbsp;
 
----
-
-
 # I was told to do it. I'm not in the wrong, right?
 
 ## やれって言われました。私は悪くないよねぇ？

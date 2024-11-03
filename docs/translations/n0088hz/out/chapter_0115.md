@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0116.md)
 ###### [Previous Chapter](./chapter_0114.md)&nbsp;/&nbsp;
 
----
-
-
 # Yes, it suits you, Dia-sama! (Aisia's perspective)
 
 ## うん、ディア様にお似合いです！（アイシア視点）

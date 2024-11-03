@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0169.md)
 ###### [Previous Chapter](./chapter_0167.md)&nbsp;/&nbsp;
 
----
-
-
 # I'm not just an elf being taken care of (From Dia's perspective)
 
 ## 養われるだけのエルフじゃありません（ディア君視点）

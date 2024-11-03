@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0027.md)
 ###### [Previous Chapter](./chapter_0025.md)&nbsp;/&nbsp;
 
----
-
-
 # Report to the God After the Fact Part 1 ●Illustration Included
 
 ## 神様に事後報告　前編　●挿絵アリ

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0209.md)
 ###### [Previous Chapter](./chapter_0207.md)&nbsp;/&nbsp;
 
----
-
-
 # It must be profitable for sure
 
 ## きっと儲かってるに違いない

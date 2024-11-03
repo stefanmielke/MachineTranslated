@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0215.md)
 ###### [Previous Chapter](./chapter_0213.md)&nbsp;/&nbsp;
 
----
-
-
 # Chapter 202: The Niven Brothers
 
 ## 202話　ニヴンの兄弟

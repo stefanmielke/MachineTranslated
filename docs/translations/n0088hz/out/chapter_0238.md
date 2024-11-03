@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0239.md)
 ###### [Previous Chapter](./chapter_0237.md)&nbsp;/&nbsp;
 
----
-
-
 # Mashiro-san and Misha
 
 ## マシロさんとミーシャ

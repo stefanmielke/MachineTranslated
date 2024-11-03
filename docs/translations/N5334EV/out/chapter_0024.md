@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0025.md)
 ###### [Previous Chapter](./chapter_0023.md)&nbsp;/&nbsp;
 
----
-
-
 # Episode 24: Suzy Cloud and the Village Children
 
 ## 24話　スージィ・クラウドと村の子供たち

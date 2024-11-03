@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0063.md)
 ###### [Previous Chapter](./chapter_0061.md)&nbsp;/&nbsp;
 
----
-
-
 # Harvest ●Illustration Included
 
 ## 収獲　●挿絵アリ

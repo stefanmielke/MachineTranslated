@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0134.md)
 ###### [Previous Chapter](./chapter_0132.md)&nbsp;/&nbsp;
 
----
-
-
 # Chapter 121: Rulii Deet's Miscalculation
 
 ## 121話　ルゥリィ・ディートの誤算

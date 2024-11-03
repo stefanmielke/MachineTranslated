@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0040.md)
 ###### [Previous Chapter](./chapter_0038.md)&nbsp;/&nbsp;
 
----
-
-
 # A Fragment of Truth ● With Illustrations
 
 ## 真理の一端　●挿絵アリ

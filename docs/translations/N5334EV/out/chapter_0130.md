@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0131.md)
 ###### [Previous Chapter](./chapter_0129.md)&nbsp;/&nbsp;
 
----
-
-
 # Chapter 118: Elective Classes
 
 ## 118話　選択クラス

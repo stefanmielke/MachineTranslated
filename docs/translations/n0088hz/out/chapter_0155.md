@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0156.md)
 ###### [Previous Chapter](./chapter_0154.md)&nbsp;/&nbsp;
 
----
-
-
 # Let's leave her be
 
 ## そっとしておいてあげましょう

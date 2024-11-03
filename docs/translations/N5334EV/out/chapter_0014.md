@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0015.md)
 ###### [Previous Chapter](./chapter_0013.md)&nbsp;/&nbsp;
 
----
-
-
 # Episode 14: Suzy and the Cloud Family
 
 ## 14話　スージィとクラウド家の人々

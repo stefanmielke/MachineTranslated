@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0012.md)
 ###### [Previous Chapter](./chapter_0010.md)&nbsp;/&nbsp;
 
----
-
-
 # Episode 11 Epilogue: Suzy in a Great Fluster
 
 ## 11話　エピローグ　スージィ大いに慌てる

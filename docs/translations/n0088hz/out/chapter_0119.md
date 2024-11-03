@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0120.md)
 ###### [Previous Chapter](./chapter_0118.md)&nbsp;/&nbsp;
 
----
-
-
 # What the!? (A-Rank Adventurer Mashiro's Perspective)
 
 ## なっ！？（Ａランク冒険者マシロ視点）

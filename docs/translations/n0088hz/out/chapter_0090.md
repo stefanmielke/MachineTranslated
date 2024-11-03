@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0091.md)
 ###### [Previous Chapter](./chapter_0089.md)&nbsp;/&nbsp;
 
----
-
-
 # Differences in Labor Nature
 
 ## 労働性の違い

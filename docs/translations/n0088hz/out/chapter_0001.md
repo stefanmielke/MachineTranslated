@@ -1,9 +1,5 @@
 ###### [Next Chapter](./chapter_0002.md)
 
-
----
-
-
 # ●Cover Illustration (and various notes)
 
 ## ●表紙イラスト（＋諸注意）

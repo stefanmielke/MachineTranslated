@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0127.md)
 ###### [Previous Chapter](./chapter_0125.md)&nbsp;/&nbsp;
 
----
-
-
 # Chapter 114: Leave It to Annie!
 
 ## 114話　アニーにおまかせ！

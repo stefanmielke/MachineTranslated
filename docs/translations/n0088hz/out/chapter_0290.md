@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0291.md)
 ###### [Previous Chapter](./chapter_0289.md)&nbsp;/&nbsp;
 
----
-
-
 # God—?
 
 ## 神様ー？

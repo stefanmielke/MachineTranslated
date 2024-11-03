@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0054.md)
 ###### [Previous Chapter](./chapter_0052.md)&nbsp;/&nbsp;
 
----
-
-
 # Episode 48: Suzy Cloud, 14 Years Old, in the Morning
 
 ## 48話　スージィ・クラウド14歳の朝

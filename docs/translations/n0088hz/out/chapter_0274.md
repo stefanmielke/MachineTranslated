@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0275.md)
 ###### [Previous Chapter](./chapter_0273.md)&nbsp;/&nbsp;
 
----
-
-
 # New Alchemy Kingdom
 
 ## 新生錬金王国

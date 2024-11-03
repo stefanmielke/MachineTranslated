@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0089.md)
 ###### [Previous Chapter](./chapter_0087.md)&nbsp;/&nbsp;
 
----
-
-
 # The danger is great, but it seems convenient (Perspective of the Kalcassa Gatekeeper)
 
 ## 危険は大きいが、便利そうだ（カルカッサ門番視点）

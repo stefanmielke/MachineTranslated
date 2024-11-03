@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0058.md)
 ###### [Previous Chapter](./chapter_0056.md)&nbsp;/&nbsp;
 
----
-
-
 # It’s probably not a mistake. (Perspective of the former lord's wife)
 
 ## おそらく間違いないですね。(前領主夫人視点)

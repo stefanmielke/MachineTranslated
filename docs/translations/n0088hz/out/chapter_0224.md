@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0225.md)
 ###### [Previous Chapter](./chapter_0223.md)&nbsp;/&nbsp;
 
----
-
-
 # Entry
 
 ## エントリー

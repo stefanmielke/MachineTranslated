@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0278.md)
 ###### [Previous Chapter](./chapter_0276.md)&nbsp;/&nbsp;
 
----
-
-
 # Please, everyone!!
 
 ## 頼むぜ皆！！

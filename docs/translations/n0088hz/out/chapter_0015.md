@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0016.md)
 ###### [Previous Chapter](./chapter_0014.md)&nbsp;/&nbsp;
 
----
-
-
 # Is she an angel? She was an angel.
 
 ## 天使かよ。天使だったわ。

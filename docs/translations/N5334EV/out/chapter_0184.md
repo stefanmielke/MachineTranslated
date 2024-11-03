@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0185.md)
 ###### [Previous Chapter](./chapter_0183.md)&nbsp;/&nbsp;
 
----
-
-
 # Chapter 172: An Afternoon of Abduction
 
 ## 172話　拉致日和の午後

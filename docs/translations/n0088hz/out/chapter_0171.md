@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0172.md)
 ###### [Previous Chapter](./chapter_0170.md)&nbsp;/&nbsp;
 
----
-
-
 # This is the house of that divine artifact, huh
 
 ## ここがあの神器のハウスね

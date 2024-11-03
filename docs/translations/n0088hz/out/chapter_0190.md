@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0191.md)
 ###### [Previous Chapter](./chapter_0189.md)&nbsp;/&nbsp;
 
----
-
-
 # The Five Elders and Mashiro (Perspective of the Five Elders)
 
 ## 五大老とマシロ（五大老視点）

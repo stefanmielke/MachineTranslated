@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0251.md)
 ###### [Previous Chapter](./chapter_0249.md)&nbsp;/&nbsp;
 
----
-
-
 # Is this guy a criminal mastermind?
 
 ## 確信犯かコイツ

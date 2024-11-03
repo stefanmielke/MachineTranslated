@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0105.md)
 ###### [Previous Chapter](./chapter_0103.md)&nbsp;/&nbsp;
 
----
-
-
 # I really didn't know.
 
 ## マジ知らなかったんですけど。

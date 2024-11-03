@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0195.md)
 ###### [Previous Chapter](./chapter_0193.md)&nbsp;/&nbsp;
 
----
-
-
 # This country might not be good for education
 
 ## この国は教育によくないかもしれない

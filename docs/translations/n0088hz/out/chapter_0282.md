@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0283.md)
 ###### [Previous Chapter](./chapter_0281.md)&nbsp;/&nbsp;
 
----
-
-
 # True Chaos God
 
 ## 真・混沌神

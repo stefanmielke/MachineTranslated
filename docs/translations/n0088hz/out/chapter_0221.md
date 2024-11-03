@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0222.md)
 ###### [Previous Chapter](./chapter_0220.md)&nbsp;/&nbsp;
 
----
-
-
 # I'll pay you back!
 
 ## リターン払うからね！

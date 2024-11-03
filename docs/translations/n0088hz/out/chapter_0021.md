@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0022.md)
 ###### [Previous Chapter](./chapter_0020.md)&nbsp;/&nbsp;
 
----
-
-
 # I apologize for the worry.
 
 ## ご心配おかけしました。

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0276.md)
 ###### [Previous Chapter](./chapter_0274.md)&nbsp;/&nbsp;
 
----
-
-
 # "Huh?"
 
 ## 『は？』

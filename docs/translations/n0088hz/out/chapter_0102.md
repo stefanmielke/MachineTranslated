@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0103.md)
 ###### [Previous Chapter](./chapter_0101.md)&nbsp;/&nbsp;
 
----
-
-
 # The Possibility of Being a Poisonous Human
 
 ## 全身毒人間の可能性

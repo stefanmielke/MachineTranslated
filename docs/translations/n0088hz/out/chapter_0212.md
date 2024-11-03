@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0213.md)
 ###### [Previous Chapter](./chapter_0211.md)&nbsp;/&nbsp;
 
----
-
-
 # No, no, that's not good!
 
 ## いかん、いかんぞそれは！

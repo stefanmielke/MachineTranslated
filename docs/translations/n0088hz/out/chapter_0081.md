@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0082.md)
 ###### [Previous Chapter](./chapter_0080.md)&nbsp;/&nbsp;
 
----
-
-
 # I'm starting to crave pancakes...
 
 ## ホットケーキ食べたくなってきた……

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0180.md)
 ###### [Previous Chapter](./chapter_0178.md)&nbsp;/&nbsp;
 
----
-
-
 # Episode 167: Terminal City
 
 ## 167話　ターミナルシティ

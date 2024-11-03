@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0149.md)
 ###### [Previous Chapter](./chapter_0147.md)&nbsp;/&nbsp;
 
----
-
-
 # Chapter 136: Jules Nahl's Regret
 
 ## 136話　ジュール・ナールの後悔

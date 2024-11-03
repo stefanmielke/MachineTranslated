@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0179.md)
 ###### [Previous Chapter](./chapter_0177.md)&nbsp;/&nbsp;
 
----
-
-
 # Episode 166: Mr. Roderick's Resolve
 
 ## 166話　ロデリック氏の決意

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0187.md)
 ###### [Previous Chapter](./chapter_0185.md)&nbsp;/&nbsp;
 
----
-
-
 # Kami-samaーーー！！
 
 ## 神様ぁーーーー！！

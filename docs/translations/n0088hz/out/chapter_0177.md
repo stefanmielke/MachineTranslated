@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0178.md)
 ###### [Previous Chapter](./chapter_0176.md)&nbsp;/&nbsp;
 
----
-
-
 # Put on the Shelf
 
 ## 棚に上げておく

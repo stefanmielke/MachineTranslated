@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0271.md)
 ###### [Previous Chapter](./chapter_0269.md)&nbsp;/&nbsp;
 
----
-
-
 # To be honest, that idea is scary
 
 ## ぶっちゃけその発想はこえーにゃ

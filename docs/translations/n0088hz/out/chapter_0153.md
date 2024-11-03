@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0154.md)
 ###### [Previous Chapter](./chapter_0152.md)&nbsp;/&nbsp;
 
----
-
-
 # A Little Bit of Effort Goes a Long Way
 
 ## 多少の無理は通るのよ

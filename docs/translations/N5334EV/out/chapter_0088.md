@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0089.md)
 ###### [Previous Chapter](./chapter_0087.md)&nbsp;/&nbsp;
 
----
-
-
 # Interlude 4: Let's Go to the Hot Springs!
 
 ## 幕間4　温泉へ行こう！

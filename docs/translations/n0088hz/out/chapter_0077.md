@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0078.md)
 ###### [Previous Chapter](./chapter_0076.md)&nbsp;/&nbsp;
 
----
-
-
 # "Lending My Chest" (Physics) ● Illustrated
 
 ## 『胸を貸す』（物理）●挿絵アリ

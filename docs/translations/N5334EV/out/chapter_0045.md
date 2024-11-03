@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0046.md)
 ###### [Previous Chapter](./chapter_0044.md)&nbsp;/&nbsp;
 
----
-
-
 # Interlude 3: Let's Go to the Harvest Festival!
 
 ## 幕間3　収穫祭へ行こうよ！

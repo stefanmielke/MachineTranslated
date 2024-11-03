@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0140.md)
 ###### [Previous Chapter](./chapter_0138.md)&nbsp;/&nbsp;
 
----
-
-
 # Wasshoi! Wasshoi! (Bibei's Perspective)
 
 ## わっしょい！　わっしょい！（ビーベイ視点）

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0084.md)
 ###### [Previous Chapter](./chapter_0082.md)&nbsp;/&nbsp;
 
----
-
-
 # There are times when talking to someone helps organize your ideas, right?
 
 ## 人に話すとアイディアが纏まる事ってありますよねぇ

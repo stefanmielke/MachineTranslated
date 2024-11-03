@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0004.md)
 ###### [Previous Chapter](./chapter_0002.md)&nbsp;/&nbsp;
 
----
-
-
 # Episode 03: Starting the Suzy Verification
 
 ## 03話　スージィ検証を始める

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0040.md)
 ###### [Previous Chapter](./chapter_0038.md)&nbsp;/&nbsp;
 
----
-
-
 # Episode 39: Suzy Cloud Makes Her Stand
 
 ## 39話　スージィ・クラウド名乗りを上げる

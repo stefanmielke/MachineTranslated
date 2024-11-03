@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0017.md)
 ###### [Previous Chapter](./chapter_0015.md)&nbsp;/&nbsp;
 
----
-
-
 # The Woodsman Again.
 
 ## 木こり再び。

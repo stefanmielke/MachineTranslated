@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0064.md)
 ###### [Previous Chapter](./chapter_0062.md)&nbsp;/&nbsp;
 
----
-
-
 # It's great that the siblings get along well.
 
 ## 姉弟仲良しでなによりだね

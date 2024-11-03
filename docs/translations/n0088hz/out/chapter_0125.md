@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0126.md)
 ###### [Previous Chapter](./chapter_0124.md)&nbsp;/&nbsp;
 
----
-
-
 # Let's keep our stories straight, okay?
 
 ## 口裏あわせてよ。ねっ！

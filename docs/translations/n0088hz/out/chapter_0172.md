@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0173.md)
 ###### [Previous Chapter](./chapter_0171.md)&nbsp;/&nbsp;
 
----
-
-
 # I can't say it. I can't bring myself to say it!
 
 ## 言えない。言い出せないよぅ！

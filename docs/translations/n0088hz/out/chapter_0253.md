@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0254.md)
 ###### [Previous Chapter](./chapter_0252.md)&nbsp;/&nbsp;
 
----
-
-
 # Here is the Dragon's House
 
 ## ここがドラゴンのハウスね

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0027.md)
 ###### [Previous Chapter](./chapter_0025.md)&nbsp;/&nbsp;
 
----
-
-
 # Episode 26: Suzy Cloud's Match
 
 ## 26話　スージィ・クラウド立ち合いをする

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0066.md)
 ###### [Previous Chapter](./chapter_0064.md)&nbsp;/&nbsp;
 
----
-
-
 # Episode 60: The Laughter of Halbert East
 
 ## 60話　ハルバート・イーストの哄笑

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0174.md)
 ###### [Previous Chapter](./chapter_0172.md)&nbsp;/&nbsp;
 
----
-
-
 # Perfectly a Piko Piko Hammer.
 
 ## 完璧にピコピコハンマーです。

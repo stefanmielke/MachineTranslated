@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0190.md)
 ###### [Previous Chapter](./chapter_0188.md)&nbsp;/&nbsp;
 
----
-
-
 # Chapter 177: Showtime
 
 ## 177話　ショウタイム

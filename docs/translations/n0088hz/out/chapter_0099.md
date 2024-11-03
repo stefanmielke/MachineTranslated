@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0100.md)
 ###### [Previous Chapter](./chapter_0098.md)&nbsp;/&nbsp;
 
----
-
-
 # From Today, I Am an Alchemist (Potion Edition)
 
 ## 今日から私も錬金術師（ポーション編）

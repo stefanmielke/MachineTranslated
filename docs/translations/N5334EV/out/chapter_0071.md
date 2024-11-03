@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0072.md)
 ###### [Previous Chapter](./chapter_0070.md)&nbsp;/&nbsp;
 
----
-
-
 # Chapter 66: The Escape of Jules Narl
 
 ## 66話　ジュール・ナールの逃走

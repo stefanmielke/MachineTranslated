@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0177.md)
 ###### [Previous Chapter](./chapter_0175.md)&nbsp;/&nbsp;
 
----
-
-
 # Damn it, someone like you, a good-natured person, would never abandon me!
 
 ## くっそ、アンタみてぇなお人よし、見捨てられるかよ！

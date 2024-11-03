@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0196.md)
 ###### [Previous Chapter](./chapter_0194.md)&nbsp;/&nbsp;
 
----
-
-
 # Shall I have them make it in exchange for rent?
 
 ## 家賃代わりに作ってもらいますか？

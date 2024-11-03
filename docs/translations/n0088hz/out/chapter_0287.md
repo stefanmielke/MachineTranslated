@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0288.md)
 ###### [Previous Chapter](./chapter_0286.md)&nbsp;/&nbsp;
 
----
-
-
 # Waking Up
 
 ## 目が覚めて

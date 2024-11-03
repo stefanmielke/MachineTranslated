@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0171.md)
 ###### [Previous Chapter](./chapter_0169.md)&nbsp;/&nbsp;
 
----
-
-
 # Karina-chan's Revival!
 
 ## カリーナちゃん復活！

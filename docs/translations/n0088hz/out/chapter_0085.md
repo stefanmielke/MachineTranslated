@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0086.md)
 ###### [Previous Chapter](./chapter_0084.md)&nbsp;/&nbsp;
 
----
-
-
 # I really want to take a ride!!!
 
 ## ちょっと乗ってみたいよなぁ！！！

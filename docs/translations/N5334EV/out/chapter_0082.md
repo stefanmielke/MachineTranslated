@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0083.md)
 ###### [Previous Chapter](./chapter_0081.md)&nbsp;/&nbsp;
 
----
-
-
 # Chapter 77: The Return of Cloud
 
 ## 77話　クラウドの帰還

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0143.md)
 ###### [Previous Chapter](./chapter_0141.md)&nbsp;/&nbsp;
 
----
-
-
 # Bravo, oh, bravo ● With Illustrations
 
 ## ブラボー、おお、ブラボー ●挿絵アリ

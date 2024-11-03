@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0188.md)
 ###### [Previous Chapter](./chapter_0186.md)&nbsp;/&nbsp;
 
----
-
-
 # Well, of course I'm going to return it!!
 
 ## そりゃ返納してしまうよ！！

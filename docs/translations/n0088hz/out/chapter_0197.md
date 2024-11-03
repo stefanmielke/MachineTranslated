@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0198.md)
 ###### [Previous Chapter](./chapter_0196.md)&nbsp;/&nbsp;
 
----
-
-
 # Consultation with Dia-kun Right Away
 
 ## 早速ディア君に相談

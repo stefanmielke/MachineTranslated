@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0274.md)
 ###### [Previous Chapter](./chapter_0272.md)&nbsp;/&nbsp;
 
----
-
-
 # And it seems that the security is very good.
 
 ## そして、治安はとても良いようだ。

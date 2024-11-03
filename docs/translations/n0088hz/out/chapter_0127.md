@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0128.md)
 ###### [Previous Chapter](./chapter_0126.md)&nbsp;/&nbsp;
 
----
-
-
 # The circumstantial evidence is all there!!
 
 ## 状況証拠揃ってるぅ！！

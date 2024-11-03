@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0051.md)
 ###### [Previous Chapter](./chapter_0049.md)&nbsp;/&nbsp;
 
----
-
-
 # W-Wait, it's a monster! (Pirate's Perspective)
 
 ## ば、バケモンだぁ！（海賊視点）

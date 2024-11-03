@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0226.md)
 ###### [Previous Chapter](./chapter_0224.md)&nbsp;/&nbsp;
 
----
-
-
 # Hit and Cover, Rock-Paper-Scissors!!
 
 ## 叩いてかぶってジャンケンポン！！

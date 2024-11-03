@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0242.md)
 ###### [Previous Chapter](./chapter_0240.md)&nbsp;/&nbsp;
 
----
-
-
 # It seems we have to offer a sacrifice
 
 ## 生贄を出さなければいけないらしい

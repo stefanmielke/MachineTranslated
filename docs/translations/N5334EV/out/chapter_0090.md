@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0091.md)
 ###### [Previous Chapter](./chapter_0089.md)&nbsp;/&nbsp;
 
----
-
-
 # Interlude 6: The Master of the Green Mansion
 
 ## 幕間6　グリーン屋敷の主

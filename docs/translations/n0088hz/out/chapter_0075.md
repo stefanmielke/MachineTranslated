@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0076.md)
 ###### [Previous Chapter](./chapter_0074.md)&nbsp;/&nbsp;
 
----
-
-
 # I see, that's terrible
 
 ## なるほど、ひどいねーこりゃ

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0010.md)
 ###### [Previous Chapter](./chapter_0008.md)&nbsp;/&nbsp;
 
----
-
-
 # Lost Memories (Just a Drunk) ●Illustrations Included
 
 ## 失われた記憶（ただの酔っぱらい）　●挿絵アリ

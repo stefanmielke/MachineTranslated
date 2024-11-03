@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0162.md)
 ###### [Previous Chapter](./chapter_0160.md)&nbsp;/&nbsp;
 
----
-
-
 # Chapter 149: The Protection of the Familiar
 
 ## 149話　従魔の加護

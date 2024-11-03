@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0217.md)
 ###### [Previous Chapter](./chapter_0215.md)&nbsp;/&nbsp;
 
----
-
-
 # Chapter 204: Warriors of Amukam
 
 ## 204話　アムカムの戦士たち

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0284.md)
 ###### [Previous Chapter](./chapter_0282.md)&nbsp;/&nbsp;
 
----
-
-
 # True Chaos God, now Kaoru
 
 ## 真・混沌神改め、カオル

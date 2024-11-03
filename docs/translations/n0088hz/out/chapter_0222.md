@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0223.md)
 ###### [Previous Chapter](./chapter_0221.md)&nbsp;/&nbsp;
 
----
-
-
 # Well, really, I was at fault
 
 ## いやほんと、私が悪かったよ

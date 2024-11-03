@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0192.md)
 ###### [Previous Chapter](./chapter_0190.md)&nbsp;/&nbsp;
 
----
-
-
 # Everyone with the Five Elders and Mashiro-san
 
 ## 五大老のみんなとマシロさん

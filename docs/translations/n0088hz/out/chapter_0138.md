@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0139.md)
 ###### [Previous Chapter](./chapter_0137.md)&nbsp;/&nbsp;
 
----
-
-
 # This woman is crazy. (Bibei's perspective)
 
 ## 頭おかしいよこの女。（ビーベイ視点）

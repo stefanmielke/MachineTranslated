@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0118.md)
 ###### [Previous Chapter](./chapter_0116.md)&nbsp;/&nbsp;
 
----
-
-
 # Sorry! ●Illustration Included
 
 ## ごめーんね！●挿絵アリ

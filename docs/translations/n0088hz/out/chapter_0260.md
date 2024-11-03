@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0261.md)
 ###### [Previous Chapter](./chapter_0259.md)&nbsp;/&nbsp;
 
----
-
-
 # If it's what Dear-kun-chan says, I'll obey!
 
 ## ディア君ちゃんさんの言うことなら従いますわ！

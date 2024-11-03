@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0020.md)
 ###### [Previous Chapter](./chapter_0018.md)&nbsp;/&nbsp;
 
----
-
-
 # Chapter 19: Suzy Cloud's First Day at School
 
 ## 19話　スージィ・クラウドの初登校

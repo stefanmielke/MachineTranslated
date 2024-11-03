@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0003.md)
 ###### [Previous Chapter](./chapter_0001.md)&nbsp;/&nbsp;
 
----
-
-
 # Episode 2: Suzy Feels Surprise
 
 ## 02話　スージィ驚きを覚える

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0170.md)
 ###### [Previous Chapter](./chapter_0168.md)&nbsp;/&nbsp;
 
----
-
-
 # Chapter 157: Sweetness and Pumpkin
 
 ## 157話　甘々と南瓜

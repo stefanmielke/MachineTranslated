@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0166.md)
 ###### [Previous Chapter](./chapter_0164.md)&nbsp;/&nbsp;
 
----
-
-
 # Five Great Elders Shock
 
 ## 五大老ショック

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0051.md)
 ###### [Previous Chapter](./chapter_0049.md)&nbsp;/&nbsp;
 
----
-
-
 # Episode 45: The Cloud Family's Dinner
 
 ## 45話　クラウド家の夕餉

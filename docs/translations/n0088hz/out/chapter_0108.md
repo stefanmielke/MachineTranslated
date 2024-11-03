@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0109.md)
 ###### [Previous Chapter](./chapter_0107.md)&nbsp;/&nbsp;
 
----
-
-
 # I might have taught him something... Well, whatever!
 
 ## 知識教えちゃったかも……まぁいっか！

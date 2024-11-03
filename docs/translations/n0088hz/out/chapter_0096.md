@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0097.md)
 ###### [Previous Chapter](./chapter_0095.md)&nbsp;/&nbsp;
 
----
-
-
 # Is it really safe...?
 
 ## 果たしてセーフなのだろうか……？

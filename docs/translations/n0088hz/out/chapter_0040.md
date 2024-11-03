@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0041.md)
 ###### [Previous Chapter](./chapter_0039.md)&nbsp;/&nbsp;
 
----
-
-
 # Secrets of the World (Relatively Unimportant) ●Illustrations Included
 
 ## 世界の秘密（割とどうでもいい）●挿絵アリ

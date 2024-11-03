@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0273.md)
 ###### [Previous Chapter](./chapter_0271.md)&nbsp;/&nbsp;
 
----
-
-
 # Alchemy Kingdom, what kind of evil deeds did they commit?
 
 ## 錬金王国、どんな悪行したんにゃ

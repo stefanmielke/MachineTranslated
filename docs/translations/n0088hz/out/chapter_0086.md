@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0087.md)
 ###### [Previous Chapter](./chapter_0085.md)&nbsp;/&nbsp;
 
----
-
-
 # Some Amazing Information
 
 ## なんかすごそうな情報

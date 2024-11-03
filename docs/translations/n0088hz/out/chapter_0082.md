@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0083.md)
 ###### [Previous Chapter](./chapter_0081.md)&nbsp;/&nbsp;
 
----
-
-
 # What's up? Is today bonus day?
 
 ## なんだい今日はボーナスの日かい？

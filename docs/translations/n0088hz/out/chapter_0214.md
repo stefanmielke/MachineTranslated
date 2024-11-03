@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0215.md)
 ###### [Previous Chapter](./chapter_0213.md)&nbsp;/&nbsp;
 
----
-
-
 # Semifinals, VS Cat Beastman Misha
 
 ## 準決勝、ＶＳ猫獣人ミーシャ

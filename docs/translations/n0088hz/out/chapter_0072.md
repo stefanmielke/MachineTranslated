@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0073.md)
 ###### [Previous Chapter](./chapter_0071.md)&nbsp;/&nbsp;
 
----
-
-
 # Was just a business meeting, you know?
 
 ## ただの商談でしたよ？

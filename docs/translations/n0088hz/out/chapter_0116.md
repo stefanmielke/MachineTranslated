@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0117.md)
 ###### [Previous Chapter](./chapter_0115.md)&nbsp;/&nbsp;
 
----
-
-
 # I am really looking forward to it...!
 
 ## 心から楽しみにしていますよ……！

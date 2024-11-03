@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0076.md)
 ###### [Previous Chapter](./chapter_0074.md)&nbsp;/&nbsp;
 
----
-
-
 # Episode 70: Whispers of the Dark Forest
 
 ## 70話　闇の森の囁き

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0190.md)
 ###### [Previous Chapter](./chapter_0188.md)&nbsp;/&nbsp;
 
----
-
-
 # Five Great Elders' Workshop (Perspective of the Five Great Elders)
 
 ## 五大老工房（五大老視点）

@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0096.md)
 ###### [Previous Chapter](./chapter_0094.md)&nbsp;/&nbsp;
 
----
-
-
 # Wow, rich ●Illustration included
 
 ## わぁ、濃厚 ●挿絵アリ

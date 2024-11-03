@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0238.md)
 ###### [Previous Chapter](./chapter_0236.md)&nbsp;/&nbsp;
 
----
-
-
 # You're quite something, aren't you?
 
 ## おめぇとんでもねーにゃ

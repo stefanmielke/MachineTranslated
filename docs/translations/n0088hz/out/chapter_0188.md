@@ -1,9 +1,6 @@
 ###### [Next Chapter](./chapter_0189.md)
 ###### [Previous Chapter](./chapter_0187.md)&nbsp;/&nbsp;
 
----
-
-
 # Thus, the return festival ended in great success.
 
 ## かくして、返納祭は大盛況に終わった。
