@@ -1,403 +1,402 @@
-# Interlude 1 Let's go to the sea!
+# 幕間1　海へ行こうよ！
 
 ## 幕間1　海へ行こうよ！
 
-Story during summer vacation.
+A story during summer vacation.
 
 *夏休み中のお話し。*
 
-So-called "swimsuit times!
+It's what you call a swimsuit episode!
 
 *所謂、水着回っす！*
-
 
 ----------------
 
 &nbsp;
 
-Iyafooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo! I'm the first one to go!
+“Yaaay! I’m the first one in!!”
 
 *「イヤッフゥーーーーーッッ！！一番乗りぃぃーーー！！」*
 
 &nbsp;
 
-Dana was the first to run toward the surf, her ass shaking in her cherry pink bikini with little fabric.
+Dana was the first to run towards the waves, shaking her barely-covered backside in a cherry pink bikini.
 
 *ダーナが真っ先に、チェリーピンクのビキニで布地の少ないお尻を震わせながら、波間へと向かい走って行った。*
 
 &nbsp;
 
-Oh! Dana! You're cheating!"
+“Ah! Dana! That’s so unfair!!”
 
 *「ああ！ダーナ！抜け駆けズルいよ！！」*
 
 &nbsp;
 
-Carla is running toward Dana, who is kicking the sand and heading toward her!　and kicks the sand toward her.
+Karla kicked up sand as she ran towards Dana, who was already off.
 
 *カーラが走り始めたダーナに向かい　ドンッ！　と砂地を蹴って向かって行く。*
 
 &nbsp;
 
-Kara's swimsuit is a halter-neck bikini with fine white and lapis lazuli stripes.
+Karla's swimsuit was a halter-neck bikini with fine stripes of white and lapis lazuli.
 
 *カーラの水着は白と瑠璃色の細かいストライプが入ったホルターネックのビキニだ。*
 
-He ran straight through Dana's side and blew her away with the impact of his speed.
+She zipped past Dana, sending her flying from the force of her speed.
 
 *そのままダーナの脇を駆け抜け、その速度の衝撃でダーナを吹き飛ばした。*
 
 &nbsp;
 
-Following Kara, Alicia and Jessica also run into the surf.
+Chasing after Karla, Alicia and Jessica also ran towards the waves.
 
 *カーラを追いかけて、アリシアとジェシカも波間へと走って行く。*
 
 &nbsp;
 
-Alicia also wore this mature white halter-neck dress with a large back and side opening.
+Alicia wore a sophisticated white halter-neck one-piece with a large cutout at the back and sides.
 
 *アリシアはこれも、背中と脇が大きく開いた大人っぽい白いホルターネックのワンピース。*
 
-Jessica was wearing a black micro bikini that showed off all of her style, and her braids, which usually fell to the sides, were gathered into a bun and pinned to the sides of her head.
+Jessica flaunted her great figure in a black micro bikini, tying her usually loose braids into a bun on either side of her head.
 
 *ジェシカは、そのスタイルの良さを余す事無く見せつける黒いマイクロビキニで、いつもは両側に降ろしている三つ編みを纏め、お団子にして頭の両脇に留めていた。*
 
-The two also run to the surf, basha-basha-basha, and the tide splashes.
+The two of them splashed through the waves, sending sprays of seawater everywhere.
 
 *二人もバシャバシャと波間まで走り、潮の飛沫を上げている。*
 
 &nbsp;
 
-Sue come quick too!!!!"
+“Come on, Suu! Hurry up!!”
 
 *「スーも早くおいでーー！！」*
 
 &nbsp;
 
-Kara and the others are calling me from the waves.
+Karla and the others were calling me from the waves.
 
 *カーラ達が波間からわたしを呼んでいる。*
 
 &nbsp;
 
-Dana was blown away, and she dragged her head out of the sand and exhaled loudly with a "phew!
+Dana, having been blown away, dragged her head out of the sand and let out a big puff of air.
 
 *ダーナが吹き飛ばされた先で、砂に突っ込んだ頭を引き摺り出し　ぷひゃぁー　と大きく息を吐き出した。*
 
 &nbsp;
 
-It's awful! Kara!"
+“That’s so mean, Karla!!”
 
 *「ヒドイよ！カーラぁ！！」*
 
 &nbsp;
 
-He shouted, spitting sand out of his mouth.
+She shouted while spitting out sand.
 
 *口から砂を　ペッペッ　と吐き出しながら叫んだ。*
 
 &nbsp;
 
-The beach is silky and dazzlingly white.
+The beach was dazzlingly white and smooth.
 
 *サラッサラで眩しい位に白い砂浜。*
 
-The deep sky blue sky that pierces through the sky and the large white iridescent clouds are the summer sky itself.
+The deep sky blue sky was filled with large, white cumulus clouds, embodying summer.
 
 *突き抜けるディープスカイブルーの空に、白く立ち上がる大きな入道雲は夏の空そのものだ。*
 
-The sparkling emerald green sea is still dazzling, and the sound of its waves is pleasant to the ear.
+The sparkling emerald green sea was indeed blinding, and the sound of the waves was pleasant to the ears.
 
 *キラキラとしたエメラルドグリーンの海はやはり眩しくて、その波音は耳に心地良い。*
 
 &nbsp;
 
-Let's go, Sue!"
+“Come on, Suu-chan!”
 
 *「スーちゃん行こうよ！」*
 
 &nbsp;
 
-While I was admiring the ocean, Mia, who was standing next to me, called out to me.
+As I was captivated by the sea, Mia, who was standing next to me, called out.
 
 *海に見惚れていると、隣に立って居るミアに声を掛けられた。*
 
 &nbsp;
 
-...... Mia is, mmm, a tube-top bikini with a V-shaped cutout at the bust!
+…Mia was wearing a tube top bikini with a V-shaped cutout at the chest!
 
 *……ミアは、む、胸元にV字の切れ込みの入っているチューブトップのビキニだ！*
 
-What is that? Won't it spill? No slippage?
+What is that?! Doesn’t it spill out? Doesn’t it slip off?!
 
 *ナニソレ！？零れないの？ズレ落ち無いの？！*
 
-Even just a big piece of corrupted meat will be emphasized a lot!
+Her already large breasts were emphasized even more!
 
 *只でさえデッカイ堕肉が、ムッチャ強調されてゆわよっ！*
 
-The fabric also has violet-colored stripes and is strangely adult-like and ill-looking!
+The fabric had violet stripes, giving it an oddly mature and sexy vibe!
 
 *布地も菫色のストライプとか入っていて妙に大人っぽくて、ィろッぽい！*
 
-If they stick out the tip of my nose, I won't be able to take my eyes off them!
+If it were to poke out at my nose, I wouldn’t be able to look away!!
 
 *鼻先に突き出されたら、目が離せなくなっちゃうじゃにゃい！！*
 
 &nbsp;
 
-Still, she involuntarily presses her hand to her chest and feels something she can't accept!
+Even so, I couldn’t help but cover my own chest with my hands, feeling something I couldn’t quite accept!
 
 *それでも思わず自分の胸元を手で押え、納得出来ない物も感じてしまうにょだ！*
 
 &nbsp;
 
-'Pressing on now won't change anything!
+“It won’t change anything if you cover up now!”
 
 *「今更押えても何にも変わらないわよ！」*
 
 &nbsp;
 
-And the insolent thing whispering behind my back!
+A voice whispered from behind me!!
 
 *と、後ろで囁く不埒もの！！*
 
-Turn around and there he is! That's right! It's Bibi!
+When I turned around, there she was! Yes! Bibi!!
 
 *振り返れば奴がいる！そう！ビビだ！！*
 
 &nbsp;
 
-Bibi is wearing a bright peppermint green swimsuit with white polka dots.
+Bibi was wearing a bright peppermint green swimsuit with white polka dots.
 
 *ビビは、白い水玉の入った鮮やかなペパーミントグリーンの水着を着ている。*
 
-It's a cute little dress with a big open back but a small skirt.
+The back was wide open, but it was a cute one-piece with a small skirt.
 
 *背中は大きく開いているけど、小さいスカートが可愛いワンピースだ。*
 
-Is the big ribbon on the chest the key?
+The large ribbon at the chest was probably the focal point?
 
 *胸元の大きなリボンがポイントかな？*
 
 &nbsp;
 
-Her hair, usually swept back, was pulled into twin tails on either side of her head, and she wore a large straw hat over it.
+Her hair, usually flowing down her back, was tied into twin tails on either side of her head, topped with a large straw hat.
 
 *いつもはそのまま後ろに流している髪を、頭の両側で纏めツインテールにして、その上から大きな麦わら帽子を被っていた。*
 
-Bear child is so ladylike!
+Bibi was radiating a rich girl vibe, huh!?
 
 *ベア子ってばナニやらお嬢様っぽさが全開だわよっ！？*
 
 &nbsp;
 
-If you're a real lady, you're a real lady if you're a real lady if you're a real lady!
+Of course, Bibi is a real rich girl!
 
 *尤もビビってば本物のお嬢様なのよね！*
 
-This sandy beach is also a private beach for the Kuroki family.
+This beach is the Kuroki family's private beach.
 
 *この砂浜もクロキ家のプライベートビーチだし。*
 
-Here in New Knoxport, where I'm staying, it's another house of the Kuroki family.
+And the place we’re staying at in New Noxport is also the Kuroki family's vacation home.
 
 *ここ、ニューノックスポートでの宿泊先も、クロキ家の別宅だし。*
 
-She is the daughter of the Kuroki family, one of the three Amcam families!　I said that to her, and she looked at me suspiciously and said, "You say that?　She looked at me suspiciously and said, ......? Why?
+As expected of one of the Amukamu Three Families, the Kuroki family's daughter! When I said that, I got a suspicious look and was asked, “You’re the one saying that?”
 
 *流石アムカム御三家の一つ、クロキ家のお嬢様！　ってな事を言ったら　アンタがそれを言う？　と不審げな顔で言われてしまったのだけれど……ン？なんでよ？*
 
 &nbsp;
 
-Well! That's not the issue now, the issue is Behrko's insolent remarks!
+Well! More than that, the issue at hand is Bibi's outrageous comment!!
 
 *まあ！今はそんな事よりも、問題はベア子の不埒な発言ですよ！！*
 
-In general, there were some things that didn't sit right with me!
+I had a matter that I couldn’t accept!!
 
 *大体にして、わたしには納得の行かない事案があったのだ！！*
 
 &nbsp;
 
-I'm supposed to be a C. Why is this a B?
+“It’s strange, I should be a C... so why is this a B?!”
 
 *「おかしい、わたしは、Cの筈なのに・・・なんでコレは、Bなの？！」*
 
 &nbsp;
 
-My swimsuit is a lovely rape blossom colored bikini.
+My swimsuit was a cute canola yellow bikini.
 
 *わたしの水着は可愛い菜の花色のビキニだ。*
 
-The cut of the V-zone is moderately sharp.
+The cut of the V-zone was quite daring.
 
 *Vゾーンのカットが中々に際どい。*
 
-However, the large frills attached to the upper and lower parts emphasize the loveliness rather than the obnoxiousness of the design, and I like it because it is quite dainty.
+But the larger frills attached to the top and bottom emphasized cuteness rather than lewdness, making it a rather lovely design that I liked.
 
 *でも上下のパーツに付いている大きめのフリルが、イヤラシさでは無く愛らしさを強調し、中々に可憐なデザインに仕上がっていて気に入っている。*
 
-But the problem is its size.
+However, the problem was the size.
 
 *だが、問題はそのサイズだ。*
 
-Yes, the underwear I usually wear is a free size with elasticity, and although it is not clearly stated, it should be a C!
+That’s right, the underwear I usually wear is a stretchy free size, and while there’s no clear indication, it should be a C!
 
 *そうなのだ、普段装着している下着は伸縮性のあるフリーサイズで、明確な明記は無いがCの筈なのだ！*
 
-And yet! This swimsuit fits perfectly, but somehow it's a size B! I'm not convinced!
+Yet! This swimsuit fits perfectly, but for some reason, the size is a B! I can’t accept it!!
 
 *なのに！この水着はピタリとフィットしているのに、何故かサイズはBだ！納得がいかない！！*
 
 &nbsp;
 
-What? What are you talking about? You don't even have a C!
+“Huh? What are you talking about? You don’t even have a C?!”
 
 *「は？何言ってんの？アンタCまで無いでしょ？！」*
 
-What? Ah, a thing! Sh, it's supposed to be a C minus, so it's a C!"
+“Wha!? I do! It should be a C minus, so it’s a C!”
 
 *「な！？あ、あるもの！し、Cマイナスの筈だから、Cだもの！」*
 
-There is no such thing as a C minus! You have a B!
+“See! There’s no such thing as a C minus! That’s a B!!”
 
 *「だ・か・ら！Cマイナスなんて存在してないわよ！アンタのそれはBなのよ！！」*
 
 &nbsp;
 
-Gah-garn! and the drawn letters fell on my head!
+“G-Gaaah!!” A comic-style sound effect dropped above my head!
 
 *『ガ・ガーーーン！！』と描き文字が頭の上に落ちて来た！*
 
 &nbsp;
 
-You're a B! You're a B, B!"
+“Listen! You are a B! B!!”
 
 *「いい？！アンタはBなのよ！B！！」*
 
 &nbsp;
 
-I was so excited," said Behrko, placing her left hand on her hip and pointing her right index finger at me.
+Bibi put her left hand on her hip and pointed her right index finger at me.
 
 *と、ベア子は左手を腰に当て、右の人差し指をわたしに突きつけて来る。*
 
-I put my hands on the ground without any effort. Ah!
+I weakly placed both hands on the ground. Ouch!
 
 *わたしは力なく両手を地に付けてしまった。あう！*
 
 &nbsp;
 
-"Be aware of it! You know you are a B!
+“Recognize it properly! That you are a B!!”
 
 *「しっかと自覚なさい！自分がBだと云う事を！！」*
 
-"No...even if you fool around with a ribbon like that...it won't change the fact that it's not there! It's still the same, and it's not there!
+“No... that’s not right! Even if I try to cover it with a ribbon, what’s not there doesn’t change!!”
 
 *「な・・・そんな、そんなリボンで、誤魔化して、も！無いのは、変わらない、し！！」*
 
 &nbsp;
 
-Hagu! and Bibi took a step back, holding his chest with both hands.
+Bibi stepped back, clutching her chest with both hands.
 
 *はぐぅ！と両手で胸元を抑えビビが一歩下った。*
 
 &nbsp;
 
-I have it! I have it!
+“I-I have it! I-I definitely have it!!”
 
 *「あ、ありますから！ア、アタシちゃんとありますから！！」*
 
-I have a grip!
+“I-I can grab it properly!”
 
 *「わ、わたし、は、ちゃんと、掴める、し！」*
 
-"Oh, I can do it, too! I can grab it!
+“I-I can grab it too?!!”
 
 *「ア、アタシだって！つ、掴めるしぃ？！！」*
 
-Lies! Bibi is lying, lying, lying!"
+“Lies! Bibi is lying!”
 
 *「ウソ！ビビは、嘘を、付いて、いる！」*
 
 &nbsp;
 
-This time, I stood up and pointed my finger at Bearko!
+This time, I stood up and pointed my finger at Bibi!
 
 *今度は、わたしが立ち上がってベア子に指を突きつけてやった！*
 
-Objection!
+Objection!!
 
 *異議ありぃっっ！！*
 
 &nbsp;
 
-I'm not lying! I've got something!
+“I’m not lying! I can grab it!”
 
 *「う、嘘じゃ無いもの！つ、掴めるもの！」*
 
-There's no way I can get a hold of it! There's no way I can grab it!
+“You can’t grab it!!”
 
 *「掴めるワケ、無い！し！！」*
 
-Na, na, na! With B! No, there's no difference! There's not much difference! You're just fooling around with your frills! You're wearing frills too!
+“W-Wait! B and C aren’t that different! It’s not a big deal!? Besides! You’re covering it up with frills too!!”
 
 *「な、な、な！び、Bと！い、幾らも変わらないし！た、大差無いしぃ！？大体！アンタだってフリルで誤魔化してるし！！」*
 
-Huzzah!"
+“Eek!”
 
 *「ひぎゅっ！」*
 
 &nbsp;
 
-It's there! And there isn't! I can grab it! I can't grab it!　and then me and Bearko went into a teary-eyed mud fight with each other. ......
+I can! I can’t! I can grab it! I can’t! And then, as Bibi and I got teary-eyed and entered into a mudslinging match...
 
 *あるし！ないし！掴めるし！掴めないし！　と、その後わたしとベア子がお互い涙目になりながら泥仕合に突入して行くと……。*
 
 &nbsp;
 
-"Huh. Calm down, both of you! Hey? It's nothing to fight about. It's not a big deal. Okay? Let's just calm down, okay?
+“C-Come on, both of you calm down! Okay? This isn’t something to fight about, right? It’s not a big deal, right? Let’s calm down?”
 
 *「ふ、二人とも落ち着いて！ね？そんな事、ケンカする事じゃないよ？大した事じゃ無いよ？ね？落ち着こう？」*
 
 &nbsp;
 
-We both stared at the one who had dropped the bomb, with tears in our eyes!　and glared at them.
+We glared at the one who dropped such an outrageous bombshell with teary eyes.
 
 *と、とんでもない爆弾を落として来た者に、二人で涙目のまま　キッ！　と睨めつけた。*
 
 &nbsp;
 
-""You! Don't say it. ！！！！"
+““You’re the last one to say that!!!!””
 
 *「「お前が！言うなぁ！！！！」」*
 
 &nbsp;
 
-We both grabbed and squeezed the big, flabby, fat piece of meat that was swaying wildly from side to side in front of our eyes at the same time!
+And at that moment, we both grabbed and squeezed her unnecessarily large breasts at the same time!
 
 *と、目の前でたわわに左右で揺れている、只無駄にデッカいだけの堕肉を、二人で同時に思いっきり掴んで握り込んでやった！*
 
 &nbsp;
 
-I'm so excited! Nnnn! N～～～～～nnnggg!
+“Nggh! N-No! Nnngh! Nnnnnnnnnnnn!!”
 
 *「はンぎゅっ！んぁ！ン～～～～～っぃんんンっ！！」*
 
-"Woah ～～～～～～～n!"
+““Waaahhh!!!””
 
 *「「うぁわあ～～～～～～～ん！！」」*
 
 &nbsp;
 
-We both cried and rubbed each other!
+We both cried and squeezed away!
 
 *二人で泣きながら揉みまくったさっ！*
 
 &nbsp;
 
-Oh, no! No! Squeeze! Both of you! Bibi-chan! Sue-chan nnnn! Ngguunnnn! Nooooooooooooooooooooooooooooooooooooooooooooooooooooooooo!
+“Ng! No! Nngh! Both of you! Nnngh! Bibi! Suu-chan! Nnngh! Noooooo!”
 
 *「ン！だめょぉ！ンぎゅ！ふたりともぉぉおぉーーンんっ！ビビちゃぁン！スーちゃんンーーっん！んぎゅぅん！だめぇぇえっン！」*
 
@@ -405,73 +404,70 @@ Oh, no! No! Squeeze! Both of you! Bibi-chan! Sue-chan nnnn! Ngguunnnn! Noooooooo
 
 &nbsp;
 
-"I wonder what they're doing, these kids..."
+“What on earth are these kids doing...”
 
 *「何をやってるのかしらね、この子達は…」*
 
 &nbsp;
 
-Colin's swimsuit is designed with colorful little triangles and zigzag patterns in neat rows, something very African (?). It is a cross-halter bikini made of fabric.
+Colin was wearing a cross-halter bikini made of a fabric with colorful small triangles and zigzag patterns, looking somewhat African (?),
 
 *コリンの水着は、色とりどりの小さな三角や、ジグザグの模様が整然と並んだデザインで、なんかアフリカっぽい（？）布地で作られたクロスホルターのビキニだ。*
 
-He's sitting on a chair in a pareo, looking classy.
+elegantly sitting on a chair with a pareo wrapped around her.
 
 *パレオを巻いて品よくチェアーに座ってる。*
 
 &nbsp;
 
-Under the shade of a beach house made of logs, he and Jessica's sister, Janice, were sipping cold soft drinks in beach chairs, muttering dismissively.
+Under the shade of a beach house made of logs, she was sipping a chilled soft drink with Jessica’s younger sister, Janice, while muttering in disbelief.
 
 *丸太で作ったビーチハウスの日影の下では、ジェシカの妹のジャニスと一緒にビーチチェアで冷えたソフトドリンクを飲みながら、呆れた様に呟いてた。*
 
 &nbsp;
 
-Nuh ...... Colin. I just found out today that you have big tits in hiding! One extra tear fell!
+Nuu... Colin. I found out today that she’s a hidden big breast girl! A tear fell an extra drop!
 
 *ぬぅ……コリン。隠れ巨乳だと言うのが今日判ったわよ！涙が一滴余分に落ちた！*
 
 &nbsp;
 
-"This, this! This thing! Burn it off! Burn it off!
+“W-Who cares! Just let it fall off! Just fall off!!”
 
 *「こ、こんな！こんな物！もげちゃえ！もげちゃいなさいぃ！！」*
 
-I'm so big! Oh, you're big! Big! Guhinnn! Like this, like this! Big ones!
+“Nyuu! It’s big! It’s big! Guhinn! Something like this! It’s so big!”
 
 *「にゅ！お、おっきいの！おっきいン！ぐひンん！こんな、こんなのぉお！おっきいのおぉぉ！」*
 
-No, no! You can't pick it up! That's right, I'm going to pick it. ...... I'm not allowed to pick it up! Nooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo!"
+“D-Don’t! You can’t take it off! Nnngh! Don’t pinch there... Hinn! Nyuann! Nooooo!”
 
 *「だ、ダメぇ！もいじゃダメだっからぁンーーぁん！そ、そこ摘ん……ひン！にゅぁんン！！ダメよぉおぉーーーっ！」*
 
 &nbsp;
 
-The sound of my and Bibi's cries of grief and Mia's screams and cries of amusement echoed in between the sounds of the waves.
+The painful cries of Bibi and me, along with Mia’s voice that was either a scream or a moan, echoed amidst the sound of the waves.
 
 *わたしとビビの悲痛に泣き喚く声と、ミアの悲鳴だか嬌声だか分らない声が波音の合間に響き渡っていた。*
 
-This continued until Dana joined the fray and took away my bikini top.
+It continued until Dana joined in and snatched away my bikini top.
 
 *それはダーナが参戦し、わたしのビキニトップが奪い取られるまで続いたのだった。*
-
-
 
 &nbsp;
 
 ----------------
 
-The next story will be about the time I went hunting with everyone during the summer vacation as well.
+Next time, during summer vacation, a story about when we all went hunting.
 
 *次回も同じく夏休み中、皆と狩りに行った時のお話し。*
 
-Interlude 2: Let's Go Hunting!"
+“幕間2　狩りへ行こうよ！”
 
 *『幕間2　狩りへ行こうよ！』*
 
 &nbsp;
 
-It will be dropped next week on the 24th at 20:00.
+I will post it on the 24th at 8 PM next week.
 
 *来週24日20時に投下します。*
-

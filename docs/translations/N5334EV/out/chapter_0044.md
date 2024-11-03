@@ -1,65 +1,64 @@
-# Interlude 2 Let's go hunting!
+# Interlude 2 Let's Go Hunting!
 
 ## 幕間2　狩りへ行こうよ！
 
-This is a story about when I went hunting with everyone during the summer vacation after the new equipment was ready.
+This is a story about when I went hunting with everyone during summer vacation after my new equipment was completed.
 
 *夏休み中、新装備が出来上がり、皆と狩へ行った時のお話しです。*
-
 
 ----------------
 
 &nbsp;
 
-The finished equipment was, in my opinion, quite cool and cute, and the tension was soaring.
+The completed equipment was, in my opinion, quite stylish and cute, and it was something that really boosted my spirits.
 
 *出来上がって来た装備は、わたし的には中々にカッコ可愛いくて、テンションがダダ上がる代物だった。*
 
 &nbsp;
 
-She wears an under vest type corset, gloves up to her elbows, long boots up to her knees, shoulder pads, and a cape over that.
+A corset in a vest style, gloves that reach up to the elbows, long boots that go up to the knees, shoulder guards, and a cape draped over it all.
 
 *アンダーのベストタイプのコルセット、肘まであるグローブ、膝上まであるロングブーツ、肩当ても着け、その上からケープを羽織る感じ。*
 
-And the skirt is a tight black leather mini!
+And the skirt is a tight mini made of black leather!
 
 *そしてスカートは黒いレザーのタイトなミニ！*
 
-Around her waist, she has a butt leather made of wolf fur wrapped around her waist and hanging down. This is that thing, it's like a JK with a jacket around her waist!
+Around my waist, I have a wolf fur butt flap hanging down. This is like how high school girls wrap their jackets around their waists!
 
 *腰回りには、ウルフの毛皮で出来た尻革を巻いて垂らしてる。これはアレだね、JKが腰に上着を巻いてる感じだよね！*
 
-The corset is also short and has an inverted V-shaped opening at the lower front, so the navel is peeking out.
+The corset is short, with the front lower part opening in an inverted V shape, so my belly button is peeking out.
 
 *コルセットも、丈が短く前の下部が逆Ｖ字に開いているので、お臍がコッソリ覗いてる。*
 
-With the sigh-high socks extending from the long boots and the absolute area between the skirts, isn't it very dazzling? I wonder if it's not?
+With the thigh-high socks extending from the long boots and the absolute territory between the skirt, it must be very dazzling, don’t you think? Don’t you think?!!
 
 *ロングブーツから伸びるサイハイソックスと、スカート間の絶対領域と合わせて、とっても眩しいんじゃないかしら？かしら？！！*
 
 &nbsp;
 
-Leather gloves and boots are made of layers of leather, and they serve as cuirasses and shin guards.
+The leather gloves and boots are layered with multiple layers of leather, serving as both gauntlets and shin guards.
 
 *革製のグローブやブーツは、何層にも革を重ねられていて、手甲や脛当てとしての機能も果たしてる。*
 
-The corset, after all, made of layers of leather, is no longer a correction device, but rather a magnificent piece of protective gear.
+Indeed, the corset, layered with leather, is no longer just a shaping garment but a proper piece of armor.
 
 *やはり幾重にも革を重ねたコルセットも、最早補正具では無く立派な防具だ。*
 
-By tightening the many belts attached, the size can be finely adjusted.
+By tightening the many belts, fine size adjustments are also possible.
 
 *沢山付いているベルトを締める事で、細かなサイズ調節も可能なのだ。*
 
-As a growing person, this is a nice feature!
+As someone in their growth spurt, this is a delightful feature!
 
 *育ち盛りの身としては、嬉しい機能ですよね！*
 
-The cami she wears under the corset is also cute, with lots of gathers around the bust! It looks as if it could fit two sizes larger.
+The camisole worn under the corset has plenty of gathers at the chest, making it cute! It looks like it could fit even if it were about two sizes larger.
 
 *コルセットの下に着ているキャミも、胸元にギャザーがタップリ入っていて可愛い！後サイズが2つ位大きくても入りそうな程だ。*
 
-Nothing! I'm not saying that the current contents are small!
+I-I’m not saying my current size is small or anything!!
 
 *べ、別に！今の中身が小さいと言っている訳では無いのですからね！！*
 
@@ -67,23 +66,23 @@ Nothing! I'm not saying that the current contents are small!
 
 &nbsp;
 
-When I was at home, wearing the equipment I had received, Bibi and Mia, who were at home with me at the time, asked me if I wanted to go hunting with them to show off my new equipment.　I was so happy to see them.
+While I was at home wearing the delivered equipment and getting excited, Bibi and Mia, who were with me at the time, suggested that since we had new equipment, why not go hunting together?
 
 *届いた装備をお家で身に着けて燥いでいたら、その時一緒に家に居たビビとミアが　どうせなら、新しい装備のお披露目も兼ねて、皆で狩りに行かないか？　と言って来た。*
 
 &nbsp;
 
-I was already in a high mood, so I said yes with two words!
+I was already in a great mood, so I readily agreed!
 
 *もう気分はアゲアゲだったので、二つ返事でオッケーした！*
 
 &nbsp;
 
-Well, even so, we had to get permission and go through various procedures before we could go hunting in the woods with just the kids...but since Howard's dad took care of all the arrangements and procedures, we decided to go hunting two days later.
+Well, that said, there are various permissions and procedures needed for the kids to go hunting in the forest… but since Howard Papa took care of all those arrangements, it was decided that we would go hunting two days later.
 
 *まあ、そうは言っても子供達だけで森の中へ狩に入るには、色々と許可やら手続きが必要になるんだけれど…、そんな色々な手配やら手続きは、ハワードパパがやってくれたので、二日後に早速狩りに行くことが決まってしまった。*
 
-It was short notice, but all eight of the usual girls were in attendance.
+Despite the suddenness, all eight of the usual girls are participating.
 
 *急な話だったのに、いつもの女子8人全員が参加だ。*
 
@@ -91,49 +90,49 @@ It was short notice, but all eight of the usual girls were in attendance.
 
 &nbsp;
 
-Then, on the day of the hunt, we met in front of the I Tsumesho.
+And on the day of the hunt, we met in front of the first outpost.
 
 *そして狩り当日は壱の詰所前で待ち合わせ。*
 
-It's my first hunt and I'm showing off my equipment to everyone!
+It was my first hunt, and I was going to show off my equipment to everyone!
 
 *初めての狩りで、皆に装備のお披露目なのだ！*
 
 &nbsp;
 
-I knew that. ......
+Well, I knew this would happen to some extent...
 
 *ンで、ま、分ってたけどね……。*
 
-To some extent, I had predicted this would happen.
+I had predicted that it would turn out this way, yes.
 
 *こうなるってのはある程度、予測はしてた訳よウン。*
 
-As I thought, or as I expected, or as I thought, or as I expected, ...... was trumped up! By the sisters!
+As expected, or rather, as predicted, or rather, it was just as I thought... I was thoroughly teased by the older girls!!
 
 *やっぱりって言うか、予想通りって言うか、案の定って言うか……捏ね繰り回されたわけですよ！お姉様方にね！！*
 
-My eyeballs are rolling again!
+My eyes were spinning around again!
 
 *またまた目ン玉グルッグルですわよ！*
 
-That's right, I think it's the first time I've ever seen her bare legs in a mini-skirt!
+I mean, I think it’s the first time I’ve shown my bare legs in a mini skirt!
 
 *そりゃね、ミニスカで生脚出したのは初めてだと思うけど！*
 
-Oh, Kara! Don't rub your inner thighs!
+Karla! D-Don’t touch my inner thigh!
 
 *カーラぁ！う、内腿さすっちゃダメだからぁ！*
 
-Jessica, don't be a dick!
+J-Jessica, don’t sniff me!
 
 *ジェ、ジェシカはクンカクンカしにゃいでぇ！*
 
-Oh, is that Colin's? Is that Alicia's?
+W-What is this pressing against me? Is it Colin’s?! Or Alicia’s?
 
 *お、押し付けてるコレはコリンの？！アリシアの？*
 
-Uniiiinnn! Dana! No grabbing! Look! You're scaring the members of the group in the jammed house! Ah! Mia! You were watching at home! Why are you hugging me again? Meow! Don't put your hand in there ........! I'm not going to let you do that!
+Ugh! D-Dana! No grabbing! Look! The members at the outpost are surprised!! Ah! Mia! You were watching at home! Why are you hugging me again... Ugh! Nyaaa! There... your hand is going in...! Nnnyahhh!!!
 
 *うにぃぁぅンん！ダーナ！掴むの無しぃぃ！ほら！詰所の団員の方達がビックリしてるから！！あ！ミア！アンタお家で見てたじゃにゃい！なんでまた抱き付いて……ン！にゃぁっん！！ソコ…手を、入れちゃ……っ！ンにゅあぁぁんぁっっ！！！*
 
@@ -155,35 +154,35 @@ Uniiiinnn! Dana! No grabbing! Look! You're scaring the members of the group in t
 
 &nbsp;
 
-Tsk, I'm tired... I'm tired!
+I’m tired... I’m really tired!
 
 *つ、疲れた…。疲れましたわよ！*
 
-What's this about breathing being disrupted before you even go out hunting or what?
+What is this? My breathing is already ragged before going hunting?!
 
 *狩りに出る前から呼吸が乱されるとか何よコレ？！*
 
-I'm currently slumped down on the bench in front of the Tsumesho! My eyes must be like leprosy eyes without any luster now!
+Right now, I’m slumped on the bench in front of the outpost, and I’m sure my eyes look like those of a zombie with no sparkle!!
 
 *今、詰所前に置いてあるベンチで脱力して、ヘタリ込んじゃってますわよ！きっと今のわたしの眼は、光彩の無いレ〇プ目ってヤツになっているに違いない！！*
 
-But, as usual, it is what it always is!
+But, well, it’s the usual thing!
 
 *でも、ま何時もの事っちゃ事なんだけどね！*
 
-But is it my imagination, or was today's event even more intense than usual?
+However, today felt particularly intense, or is it just my imagination?
 
 *しかし、今日のは何時にも増して、激しかった様な気がするのは気のせいか？*
 
-Is it the mini? Is it the mini-skirts? !
+Is it because of the mini skirt?!
 
 *ミニか？！ミニスカのせいなのか？！！*
 
-At any rate, everyone seemed satisfied after stroking them all around, and they are calm now, but....
+Anyway, everyone seems satisfied after having their fill of touching, and now they’re calm...
 
 *何はともあれ、皆一通り撫で回し終わって満足した様で、今は落ち着いていらっしゃいますが…。*
 
-What is my position in life? Is it a lapdog?
+What on earth is my position?! Is it really some sort of plaything?!!
 
 *ホントわたしの立ち位置って一体何なの？！やっぱり愛玩的なナニかなのかっ？！！*
 
@@ -191,139 +190,139 @@ What is my position in life? Is it a lapdog?
 
 &nbsp;
 
-I was sitting on a bench, taking a break, and looking around at everyone's outfits.
+So, while sitting on the bench and catching my breath, I looked around at everyone’s outfits again.
 
 *で、ベンチに座って一息つきながら、皆の装いを改めて見回しているわたしであった。*
 
-And this is the first time I've seen everyone's hunting gear.
+This is my first time seeing everyone’s hunting gear.
 
 *皆の狩り装備を拝見するのも、これが初見だしね。*
 
 &nbsp;
 
-Kara is dressed in the same black ninja costume (?) that she wore the last time we met in hand-to-hand combat. The same black ninja costume (?) as when we met in the previous meeting.
+Karla’s outfit is the same black ninja outfit (?).
 
 *カーラの装いは、前に手合せした時と同じ黒い忍び装束（？）だ。*
 
-But he still wears armored gloves and boots.
+However, she is wearing armored gloves and boots.
 
 *只、やはり装甲付きのグローブとブーツを着けている。*
 
-And a corset around the torso.
+And she also has a corset around her waist.
 
 *それと胴回りにコルセットも。*
 
-It's a corset, but it looks like an obi because of the Japanese-inspired costume!
+It’s a corset, but since it has a Japanese-style outfit, it looks like an obi!
 
 *コルセットなんだけど、和風っぽい衣装なので帯にも見えるのよね！*
 
 &nbsp;
 
-As expected, Alicia's limb equipment is heavily armored.
+Alicia, as expected, has bulky armor on her arms and legs.
 
 *アリシアは案の定、手足の装備の装甲がゴツイ。*
 
-It looks like the limbs are made of a larger piece of metal.
+It seems her arms and legs are fitted with larger metal armor.
 
 *手足が一回り大きい金属製になってるみたいだ。*
 
-There are vicious-looking metal spikes on the elbows and knees as well.
+There are vicious-looking metal spikes on her elbows and knees.
 
 *肘膝にも凶悪そうな金属製の棘が付いてる。*
 
-It would be painful to be hit with this.
+That would hurt if hit.
 
 *これで殴られたら痛そうだ。*
 
 &nbsp;
 
-Dana is based on an ao dai, which is still a corset, shoulder pads, gloves, and boots.
+Dana is based on an ao dai, and she also has a corset, shoulder guards, gloves, and boots.
 
 *ダーナはアオザイをベースに、やっぱりコルセットに肩当てとグローブ、ブーツ。*
 
 &nbsp;
 
-Yeah, I think, is this a basic set?
+Hmm, I wonder if this is the basic set?
 
 *うん、思うんだけど、これは基本セットなのかな？*
 
 &nbsp;
 
-The children in the rear guard also have the same corset, gloves, and boots.
+The backline girls also have corsets, gloves, and boots that are the same.
 
 *後衛の子達も、コルセット、グローブ、ブーツは一緒なんだよね。*
 
-I wondered if this was basic equipment, even though there are differences in size and shape. I asked...
+Although there are differences in size and shape, I wonder if this is the basic equipment? When I asked...
 
 *サイズや形の違いこそあれ、これって基本装備なのかしらん？と思って聞いてみたら…。*
 
 &nbsp;
 
-I heard that this series of corsets is all the rage right now!
+I heard that this corset series is currently in fashion!!
 
 *このコルセットのシリーズって、今の流行なんだって！！*
 
-So some people are equipped with breastplates and so on, and if you're a knightly man, it's a full plate set.
+So, there are people wearing chest plates and those in knight-style full plate sets.
 
 *だから、胸当てとか装備してる人も居るし、騎士系の人ならフルプレートのセットだし。*
 
-I'm talking about, like, bikini armor!
+I even heard there are bikini armors!!
 
 *び、び、ビキニアーマーとかもあるって話！！*
 
-What a surprise! I wouldn't wear it, though!
+What a thing! I-I won’t wear that!!
 
 *何と云う事でしょう！わ、わたしは着ないけどね！！*
 
 &nbsp;
 
-The rear guard all wear dress-like outfits to match.
+The backline girls are all wearing dress-like outfits.
 
 *後衛は皆、ドレスっぽい衣装で合わせてる。*
 
-It could be a tiered skirt with layers of ruffles or a bustle skirt with a long back.
+They have tiered skirts with frills layered on top of each other, or bustle skirts that are longer in the back.
 
 *フリルが幾重にも重なったティアードスカートだったり、後ろが長いバッスルスカートだったりと。*
 
-Yeah, I knew the dress sense was 19th century!
+Yeah, it really feels like 19th-century dress sense!
 
 *うん、やっぱりドレスセンスは19世紀って感じだね！*
 
-Bibi, for example, wears a polar hat on his hair.
+Bibi has her hair styled up with a polar hat on top.
 
 *ビビなんかは髪を纏め上げた所に、ポーラーハットを乗せてるしね。*
 
-Colin's head also has a small silk hat on it.
+Colin has a small silk hat on his head.
 
 *コリンの頭にも、小さいシルクハットが乗ってる。*
 
-Is it a dress armor?
+Is this what they call dress armor?
 
 *ドレスアーマーってトコなのかな？*
 
 &nbsp;
 
-Still, what stands out most is Mia's outfit.
+But the one that stands out the most is Mia’s outfit.
 
 *それにしても一際目に付くのはミアの格好だ。*
 
-The undercorset is the same as mine, so the torso is constricted and the chest area is pressed out!
+Since she has the same under corset as me, her waist is cinched, and her chest is more pronounced!
 
 *わたしと同じアンダーコルセットだから、胴回りが絞られ、胸元が依り迫り出ている！*
 
-What an outrageous corruption!
+What a scandalous display of flesh!
 
 *全く持って、ナンってけしからん堕肉であろうかっ！*
 
-Her white blouse is stretched out as if it were about to fall out of her corset!
+Her white blouse is stretched to the limit, and it looks like it’s about to spill out from the corset, bouncing around!
 
 *白いブラウスをコレでもかと突っ張らせ、コルセットから零れ落ちそうに、タップンタップンさせておる！*
 
-I'll rub it all over you as much as I can later! I'm going to squeeze you as much as I want later!
+You’ll pay for this! I’ll squeeze and knead you later!
 
 *オノれー！後で思う存分揉みしだき捲くってやるっ！*
 
-That's it already, gniggnimnimnimnimnimnimnimnimnimnimnimnimnimnimnimnim! Gghh!
+Just you wait, I’ll be all over you!! Guh!
 
 *もうそれこそグニグニムニュムニューッと！！グヒッ！*
 
@@ -331,23 +330,23 @@ That's it already, gniggnimnimnimnimnimnimnimnimnimnimnimnimnimnimnimnim! Gghh!
 
 &nbsp;
 
-Well, in case you are wondering - none of the kids in the rear guard have a cane.
+By the way, the backline girls are all not carrying staffs.
 
 *えー、因みにー、後衛の子達は皆杖は持っていない。*
 
-Instead, a "magic pearl" is adorned on the glove of the dominant hand, along with clay accessories.
+Instead, their dominant hand gloves are adorned with “magic beads” along with clay accessories.
 
 *その代り、利き手のグローブに『魔力珠』がクレイアクセサリーと一緒に飾り付けられている。*
 
-This is the medium for activating the magic.
+These serve as a medium for activating magic.
 
 *コレが、魔力発動時の媒体となる。*
 
-In other words, it's a cane substitute.
+In other words, they act as substitutes for staffs.
 
 *つまり杖代りだ。*
 
-I heard that there are people who normally carry a wand, but this style of empty-handed magic use is the current trend!
+I’ve heard that some people do carry staffs, but this hands-free style of casting magic is currently in fashion!
 
 *普通に杖を持っている人も居るらしいけど、やはりこの手ぶらで魔法を使うスタイルが、今の流行なのだそうだ！*
 
@@ -355,73 +354,73 @@ I heard that there are people who normally carry a wand, but this style of empty
 
 &nbsp;
 
-But, I'm going hunting in the woods from now on, and I don't know if it's okay to wear a skirt like this or not. I think so, too...
+But I wonder if it’s okay to go hunting in a skirt like this in the forest...?
 
 *でも、これから森の中に狩りに行くのに、こんなスカートとかで良いのか？とも思うんだけど…。*
 
-Whatever it is, the fabric of this skirt is made of silver thread with mithril, and the lining is also finely embroidered with a magical seal!
+Apparently, the fabric of this skirt uses silver threads made from mithril, and the lining is intricately embroidered with magic seals!
 
 *なんでも、このスカートの生地にはミスリルを使った銀糸が使われていて、裏地にも魔法印が細かく刺繍されているのだそうだ！*
 
-It increases the rate of circulation of magic power within the equipment, thereby increasing its effectiveness in increasing magic power and aiding in the recovery of magic power.
+Because of this, it increases the circulation rate of magic within the equipment, enhancing magical power and aiding in magic recovery.
 
 *それに依って、装備内で魔力の循環率を上げて、魔法威力を上げたり魔力回復を助ける効果が上がる。*
 
-For women in the rear guard positions, a skirt with ample pleats is an indispensable piece of equipment!
+So for the women in backline roles, this skirt with plenty of pleats is essential equipment!
 
 *だから後衛職の女性にとって、この襞のタップリあるスカートは必須装備だったりするんだって！*
 
 &nbsp;
 
-But what about men? I ask....
+But what about the men? When I asked...
 
 *でも男性はどうするの？と聞くと…。*
 
-Men are said to use robes, coats, capes and cloaks, which are similarly treated to increase the circulation of magic.
+It seems men wear robes, coats, capes, or cloaks, similarly treated to enhance magic circulation.
 
 *男性はローブやコート、ケープやマントで、同じ様に魔力循環を上げる処理を施しているそうだ。*
 
-For women, he says, many choose the dress type for its practicality and appearance!
+For women, it seems many choose dress types for practicality and appearance!
 
 *女性の場合は、実用性と見た目重視でドレスタイプを選ぶ人が多いと言う事なんだって！*
 
-It's like girls are still girls!
+Girls really are girls, aren’t they?
 
 *女子はやっぱり女子なのねーって感じだね！*
 
 &nbsp;
 
-Well, and even though it is a dress type, it is not so long that it drags the hem on the ground.
+Well, even though they say dress types, they’re not so long that they drag on the ground.
 
 *まあ、それにドレスタイプと言っても、裾をズルズルと地面に引き摺る程長い訳では無い。*
 
-Bibi and Mia in tiered skirts are also above the knee in length, and Colin and Jessica in bustle skirts show off their dazzling thighs.
+Bibi and Mia’s tiered skirts are knee-length, and Colin and Jessica’s bustle skirts reveal their dazzling thighs.
 
 *ティアードスカートのビビとミアも丈は膝上だし、バッスルスカートのコリンとジェシカは眩しい太腿が顔を覗かせてる。*
 
 &nbsp;
 
-I thought I had seen a set of 19th century costumes and leather armors before, but that's it! It's the fashion of the "steampunk" world!
+This is it! I felt like I had seen a set of leather armor with costumes from the 19th century somewhere, but yes! It’s the fashion of a “steampunk” world!
 
 *コレあれだね！19世紀頃の衣装に、革鎧のセットって何かで見たような気がしてたけど、あれだよアレ！『スチームパンク』な世界観のファッションだ！*
 
 &nbsp;
 
-In a world without internal combustion engines, let alone steam engines, "steampunk" is a funny thing to say!
+It’s a funny story that there’s no internal combustion engine or even steam engines in this world, but still “steampunk”!
 
 *内燃機関どころか蒸気機関も無い世界で、『スチームパンク』ってのも可笑しな話なんだけどさ！*
 
 &nbsp;
 
-Steampunk" refers to an IF world where steam engines have developed instead of internal combustion engines, right?
+“Steampunk” refers to a world where steam engines developed instead of internal combustion engines, right?
 
 *『スチームパンク』って内燃機関の代りに、蒸気機関が発達したIFの世界観のことでしょ？*
 
-So this world where there is no internal combustion engine and magical technology has developed is a "magic punk" world, right?
+So, in this world where there are no internal combustion engines and magic technology has developed, can we call it “magic punk”?
 
 *だからこの内燃機関が無く、魔法技術が発達してるこの世界は『マジックパンク』って事で良いのかな？*
 
-No. Is it 'etherpunk' because of the development of ether theory and technology?
+No, since ether theory and technology have developed, is it “ether punk”?
 
 *いや、エーテル理論と技術が発達しているから、『エーテルパンク』か？*
 
@@ -429,7 +428,7 @@ No. Is it 'etherpunk' because of the development of ether theory and technology?
 
 &nbsp;
 
-So, dressed in our "etherpunk" gear, we entered the safe zone in the forest.
+So, we, clad in such “ether punk” equipment, entered the safe zone in the forest.
 
 *ンで、そんな『エーテルパンク』な装備に身を包んだわたし達は、森の中のセーフゾーンへと入って行ったのだ。*
 
@@ -439,25 +438,25 @@ So, dressed in our "etherpunk" gear, we entered the safe zone in the forest.
 
 &nbsp;
 
-The children's hunting is basically supposed to be done in the safe zone of the forest.
+The children’s hunting is basically done in the safe zones of the forest.
 
 *子供達の狩りは、基本、森のセーフゾーンでする事になっている。*
 
-A safe zone does not mean that it is completely free from danger.
+Even though it’s called a safe zone, it doesn’t mean there are no dangers at all.
 
 *セーフゾーンと言っても、危険が全く無い訳ではない。*
 
-There are beasts that normally inhabit the forest, and relatively weak magical beasts spring up.
+There are ordinary beasts living in the forest, and relatively weak magical beasts can spawn.
 
 *普通に森で生息する獣は居るし、比較的弱い魔獣も湧く。*
 
 &nbsp;
 
-In all likelihood, regular members of the group can hunt the magical beasts that spring up in such a shallow layer as if they were mowing the grass with one hand, and even children can handle them well.
+However, magical beasts that spawn in such shallow layers can be hunted easily by regular members as if they were just trimming grass, and the children can handle them just fine.
 
 *尤も、こんな浅い層で湧く魔獣は、正規の団員なら片手間で草を刈るように狩れるし、子供達でも十分対応出来る。*
 
-So for the children, hunting in the safe zone is a well used opportunity to gain real-world experience.
+Thus, for the children, hunting in the safe zone serves as a valuable opportunity to gain practical experience.
 
 *なので、子供達にとってセーフゾーンでの狩りは、実戦経験を積む場として十分に役立てられているのだ。*
 
@@ -465,181 +464,181 @@ So for the children, hunting in the safe zone is a well used opportunity to gain
 
 &nbsp;
 
-Everyone's hunt is basically conducted in pairs, with the vanguard and the rear guard.
+Everyone’s hunting is basically done in pairs of frontliners and backliners.
 
 *皆の狩りは、基本的に前衛と後衛がペアになり行う。*
 
-In this case, it is in the form of four pairs of people working together.
+In this case, we are acting in four pairs.
 
 *今回の場合は、ペア四組で行動するという形だ。*
 
 &nbsp;
 
-The vanguard is Kara, Alicia and Dana.
+The frontliners are Karla, Alicia, and Dana.
 
 *前衛はカーラ、アリシア、ダーナ。*
 
-The rear guard and magic defense are Jessica, Colin, and Bibi.
+The backliners, with magical defense, are Jessica, Colin, and Bibi.
 
 *後衛、魔法ディフェンスがジェシカ、コリン、ビビ。*
 
-And then there's Mia, the magic offense.
+And Mia is the magical offense.
 
 *そして魔法オフェンスのミアだ。*
 
 &nbsp;
 
-Kara and Jessica. Dana and Colin. Alicia and Bibi.
+Karla and Jessica. Dana and Colin. Alicia and Bibi.
 
 *カーラとジェシカ。ダーナとコリン。アリシアとビビ。*
 
-And I and Mia are each a pair.
+And I am paired with Mia.
 
 *そしてわたしとミアがそれぞれのペアだ。*
 
 &nbsp;
 
-The three groups, except for us, formed a triangular formation, with the top of the formation at the head of the triangular formation, and searched the forest on three different sides, keeping a watchful eye.
+The other three pairs are taking triangular formations, with the apex at the front, exploring the forest while keeping watch in three directions.
 
 *わたしたち以外の三組は、其々ペアで三角形の布陣を取り、その頂点を先頭にして、三方を警戒しながら森の中を探索して行く。*
 
-Once the battle begins, the rear guard concentrates only on damage control for his partner, so even inexperienced children are less likely to lose a great deal of magical power.
+Once combat begins, the backliners focus solely on damage control for their partner, allowing even inexperienced children to avoid significant magical power loss.
 
 *いざ戦闘が始まれば、後衛は自分の相方のダメージコントロールにのみ集中するので、経験の少ない子供でも、大きく魔力のロスをする事が少なくて済むそうだ。*
 
 &nbsp;
 
-Mia and I are positioned in the center of the triangle.
+Mia and I are positioned at the center of that triangle.
 
 *わたしとミアは、その三角形の中心に位置取りしている。*
 
-Mia, a magic attacker, is positioned as a ranger, and she launches her magic according to the combat situation of the vanguard.
+As a magical attacker, Mia takes a skirmisher role, casting spells according to the frontliners’ combat situation.
 
 *魔法攻撃職のミアは遊撃手的な位置付けで、前衛の戦闘状況に応じて魔法を打ち込んで行くのだ。*
 
-I'm like an escort.
+I’m in a protective role, like a bodyguard.
 
 *わたしはその護衛みたいな立場だね。*
 
 &nbsp;
 
-The search in the forest is where Kara, who is normally a scout, would be active first. ......
+In the forest, the scout role is usually where Karla shines...
 
 *森での探索は、本来ならまず斥候役のカーラが活躍する所なんだけど……。*
 
-This party has Bibi's Algernon.
+But in this party, there’s Bibi’s Algernon.
 
 *このパーティには、ビビのアルジャーノンが居る。*
 
-Algernon has the ability to share his senses with a wide range of small animals.
+Algernon has the ability to share senses with a wide range of small animals.
 
 *アルジャーノンは、広範囲の小動物達と感覚が共有出来ると言う能力を持っている。*
 
-They can use this ability to detect things that exist around them like radar.
+Using this ability, it can detect things around like a radar.
 
 *この能力を使って、レーダーの様に周りに存在している物を察知する事が出来るのだそうだ。*
 
-Bibi shares this sensation by channeling Algernon, who then passes this information on to everyone else.
+Bibi channels with Algernon to share those senses and conveys that information to everyone.
 
 *それをビビが、アルジャーノンとチャンネルを合わせる事で感覚を共有し、その情報を皆に伝えるのだ。*
 
-The accuracy, even from my point of view, was quite impressive.
+The accuracy of this was quite impressive from my perspective.
 
 *その精度はわたしから見てもかなりな物だった。*
 
-Kara's mouth was agape and she was boo-hooing in a boring way.
+Karla was pouting and grumbling in boredom.
 
 *カーラが口を尖らせて、つまらなそうにブーブー言っていた。*
 
 &nbsp;
 
-The first such magical beast we came across was called "Sturgillat.
+In the midst of that, the first magical beast we encountered was called a “Star Rat.”
 
 *そんな中、最初に出くわしたのは『スタージラット』と呼ばれる魔獣だった。*
 
-Looking like a cross between a bat and a flying squirrel, it glided in from the tree tops.
+It had a bat and flying squirrel-like appearance and glided down from the trees.
 
 *蝙蝠とムササビの合いの子の様な姿で、木の上から滑空して来た。*
 
-It is a bloodsucking species about the size of a cat, with almost no body hair and sharp claws and fangs.
+About the size of a cat, it had almost no body hair and possessed sharp claws and fangs, being a bloodsucking species.
 
 *大きさは猫ほどで、体毛が殆ど無く、鋭い爪と牙を持つ吸血種だ。*
 
-Five of them attacked us, one after another.
+Five of them attacked one after another.
 
 *それが5体、次々と襲ってきた。*
 
-The first to react was Kara.
+The first to react was Karla.
 
 *真っ先に反応したのはカーラだ。*
 
-As if to relieve the sorrow of not being able to play an active role in the search, he quickly threw something at the first one that came toward him.
+To relieve her frustration from not being able to scout, she quickly threw something at the first one coming toward her.
 
 *索敵で活躍出来なかった憂さを晴らす様に、向かって来た一匹目に素早く何かを投げ付けた。*
 
-Three blades were thrown at Sturgillat, and he shot them down.
+Three thrown blades struck the Star Rat and shot it down.
 
 *トトトン　と投げ付けた刃物が3つ、スタージラットに刺さりそのまま射落とした。*
 
-It's the bitter nothings that threw me.
+What she threw were shurikens.
 
 *投げ付けたのは苦無だ。*
 
-Well, I knew it. You are a ninja, aren't you?
+Well, I knew that. She’s a ninja after all!
 
 *ま、分ってたけどね。忍びの人だものね！*
 
 &nbsp;
 
-Dana was next on the hook for the kill.
+Next to take it down was Dana.
 
 *次に仕留めに掛ったのはダーナだ。*
 
-The gains are long.
+Her weapon is long.
 
 *得物が長いからね。*
 
-Holding the end of the spear in one hand, he took aim, stretched out, and pierced the stargillat.
+Holding the spear with one hand, she aimed and lunged to impale the Star Rat.
 
 *槍の端を片手で持ち、狙いすまして伸び上がりスタージラットを貫いた。*
 
-The way they leapt up with their spears out of the air, they looked like little missiles!
+The way she jumped up with her spear was like a small missile!
 
 *槍を突き上げて跳び上がる様は、小型のミサイルみたいだったよ！*
 
 &nbsp;
 
-Furthermore, Alicia jumped up.
+Then Alicia jumped up.
 
 *更にアリシアが跳び上がった。*
 
-Kicking tree trunks one after another, they rose into the air like a triangle jump.
+Kicking off the tree trunks, she ascended into the air like a triangular jump.
 
 *木の幹を次々と蹴り、三角跳びの様に上空に上がっていった。*
 
-The stargill rat flies about 3-4 meters above the ground.
+The Star Rats were flying about 3 to 4 meters above the ground.
 
 *スタージラットは地上3～4メートル程の所を飛んでいる。*
 
-He kicked down his prey in the air from further above it.
+From even higher up, she kicked down the prey in the air.
 
 *その更に上から空中に居る獲物を蹴り落とした。*
 
-I'm already a total aerial kill! Can't I just wear a black and yellow mask?
+It was completely an aerial combat style! Shouldn’t she be wearing a black and yellow mask?
 
 *もう、完全に空中殺法！黒と黄色のマスク着けて良いんじゃないの？*
 
 &nbsp;
 
-The other two were dropped by Mia asari.
+Mia easily took down the remaining two.
 
 *残りの2体はミアがアッサリ落した。*
 
-≪Branch Spire.
+≪Branch Spear≫
 
 *≪ブランチ・スピア≫*
 
-It is an attack magic that manipulates plants, in which several branches of trees grow up like spears and pierce the enemy.
+Branches from the trees extend like spears, controlling plants to pierce the enemy.
 
 *木々の枝が何本も槍の様に伸び上がり、敵を貫く植物を操る攻撃魔法だ。*
 
@@ -647,19 +646,19 @@ Mia has earth and water attributes.
 
 *ミアは土と水の属性持ちだ。*
 
-He says he specializes in magic that fuses the two and affects plants.
+She excels in magic that influences plants by fusing these two.
 
 *この2つを融合させて、植物に影響を与える魔法が得意なのだそうだ。*
 
-I like dealing with thorns the best," Mia says.
+She says she loves handling thorns the most.
 
 *茨を扱うのが一番好きなんだー　とミアは仰る。*
 
-Mia's eyes narrowed as she said this.
+As she said this, Mia’s eyes narrowed.
 
 *そう言いながらミアの眼が細められた。*
 
-Hey, what is it? Looking into those eyes, I felt a tingle run down my spine, you know?
+W-What’s that? Looking at those eyes sent a shiver down my spine?!
 
 *な、なんだろ？その目を見てると、背筋にゾクリと走る物があったよ？！*
 
@@ -667,55 +666,55 @@ Hey, what is it? Looking into those eyes, I felt a tingle run down my spine, you
 
 &nbsp;
 
-After that, there was still the "Bone Spider," a low-grade undid that looked like a spider made of bones.
+After that, we encountered a low-level undead called “Bone Spider.”
 
 *その後も『ボーンスパイダー』と言う、骨で出来た蜘蛛みたいな低級のアンデット。*
 
-This guy was easily defeated by crushing the buttocks of the skull-like spider.
+It was easily defeated by smashing its skull-like rear end.
 
 *コイツは頭蓋骨みたいな蜘蛛のお尻部分を砕くと簡単に倒せた。*
 
-The movement was really like a spider, and it was really creepy!
+Its movements were really spider-like and super creepy!
 
 *動きがホントに蜘蛛みたいでメッチャきもかった！*
 
 &nbsp;
 
-Another is "Soilcap," a hairless orangutan-like hexenbiest with an insect-like face and claws.
+There was also a magical beast called “Soil Cap,” which had an insect-like face and claws, resembling a hairless orangutan.
 
 *他にも『ソイルキャップ』と言う昆虫の様な顔と爪を持つ、毛の無いオラウータンの様な魔獣。*
 
-This was a bit of a formidable foe, and we all worked together to get around it.
+This one seemed to be a bit of a tough opponent, and we coordinated to take it down.
 
 *これはチョット強敵だったらしく、皆で連携して立ち回った。*
 
-Alicia tanked and took on the attack, and Dana and Kara took the damage and defeated her.
+Alicia took on the role of tank, absorbing attacks, while Dana and Karla dealt damage to defeat it.
 
 *アリシアがタンカーになって攻撃を引き受け、ダーナとカーラでダメージを与えて倒した。*
 
 &nbsp;
 
-In this way, they hunted down the magical beasts in the forest in a moderately smooth manner.
+In this way, we were able to hunt magical beasts in the forest quite smoothly.
 
 *こんな風に、中々順調に森の中の魔獣を狩り取って行ったのだ。*
 
-He said that with this number of people, a magical beast of this strength can be hunted in a stable manner.
+With this number of people, it seems we can reliably hunt beasts of this strength.
 
 *この人数で、この位の強さの魔獣なら、安定して狩れているそうだ。*
 
 &nbsp;
 
-However, I feel that the strength of the magical beasts are all very blue, so I am not sure how strong or weak any of them are.
+However, I personally feel that all the magical beasts are equally terrifying, so I can’t really tell which ones are strong or weak.
 
 *でも、わたし的には魔獣の強さは全部真っ青に感じているので、どれがどれ程度強いのか弱いのか、今一良く分かん無いんだよねー。*
 
 &nbsp;
 
-To be honest, I borrowed two short swords from Howard Papa, but I haven't had a chance to use them, so I don't have them on hand. ......
+To be honest, I borrowed two short swords from Howard Papa, but I haven’t had the chance to use them, so I’m feeling a bit idle...
 
 *正直言って、折角ハワードパパからショートソードを二本お借りして来たけど、使う機会が無いので手持無沙汰ではあるのだけれど……。*
 
-Still, well! It's good that everyone is able to hunt with a safe margin!
+Even so, well! It’s good that everyone is hunting safely!
 
 *それでも、ま！皆が安全マージンで狩り出来てるから良いんですけどね！*
 
@@ -723,167 +722,167 @@ Still, well! It's good that everyone is able to hunt with a safe margin!
 
 &nbsp;
 
-But that guy came out of nowhere.
+But then it suddenly came.
 
 *でもそいつは突然やって来た。*
 
-When the guy showed up, everyone's tension instantly tensed up.
+When it appeared, everyone’s tension instantly heightened.
 
 *そいつが現れた時、皆の緊張が一瞬で張り詰めた。*
 
-We know that the opponent is stronger than the ones we have seen so far.
+I could tell it was a somewhat stronger opponent than the ones we had faced so far.
 
 *今までの物より幾分強い相手なのだろうと云う事が判る。*
 
-It is a large scorpion about two meters long.
+It was a giant scorpion about two meters long.
 
 *それは体長2メートル程の大サソリだ。*
 
-I could recognize "Red Death Stalker" when I tagged it.
+When targeted, it was recognized as a “Red Death Stalker.”
 
 *タゲると『レッドデスストーカー』と認識出来た。*
 
-The name sounds kind of clingy and bad!
+What a bothersome and unpleasant name!
 
 *何だか、しつこそうでヤな感じの名前！*
 
 &nbsp;
 
-Alicia was blown away before I could see it!
+In the blink of an eye, Alicia was blown away!
 
 *見る間にアリシアが吹き飛ばされた！*
 
-Apparently, it has more power than we thought.
+It seems it has more power than we expected.
 
 *どうやら思った以上にパワーが有る様だ。*
 
-He also played Dana's spear.
+Dana’s spear was deflected.
 
 *ダーナの槍も弾いた。*
 
-He is also attacking with Kara's movements. Is she also moving fast?
+It was also attacking in sync with Karla’s movements. Is it fast too?
 
 *カーラの動きにも合わせて攻撃を繰り出している。動きも速いのか。*
 
-Mia's magic doesn't seem to be working at all.
+Mia’s magic didn’t seem to have much effect either.
 
 *ミアの魔法も殆んど効いてる感じが無い。*
 
-Carla's face grew urgent, as if she were ready to go.
+Karla’s expression turned serious, as if she had made up her mind.
 
 *カーラが切迫感が募る、覚悟を決めた様な顔になった。*
 
-What's that? Is this the bad guy? I don't want to see Kara's face like that!
+Uh-oh? Is this a dangerous one? I don’t want to see Karla’s face like that!!
 
 *あれ？コレやばい奴？カーラのそんな顔見たく無いよ！！*
 
 &nbsp;
 
-The tail section of the giant scorpion, with its venomous stinger, closes in on Cara.
+The giant scorpion’s tail, equipped with a poisonous stinger, approached Karla.
 
 *大サソリの、毒針を持つ尾節がカーラに迫る。*
 
-Oh, can't we lose this? That's not good!
+Ah, can’t she dodge this? This is bad!!
 
 *あ、これ躱しきれない？不味い！！*
 
-He immediately jumped out and slashed up his right sword, slashing at its tail.
+I immediately jumped out, slashing upward with my right sword to cut off its tail.
 
 *直ぐ様飛び出し、右の剣を斬り上げてその尾を叩き斬った。*
 
-He then pulls out his left sword and slices the torso in half, head first.
+Then I drew my left sword and sliced its body in half from head to tail.
 
 *そのまま左の剣も抜き放ち、胴体を頭から縦に真っ二つに斬り開く。*
 
 &nbsp;
 
-As soon as we slaughtered it, the other individuals around us gathered around it.
+As I defeated it, the other individuals nearby gathered around.
 
 *そいつを屠ると同時に、周りに居た他の個体も集まって来た。*
 
-Are they sensing that their friends have been hit? Four more scorpions came into view.
+Did they sense that their companion was defeated? Four more scorpions came into view.
 
 *仲間がやられた事を察知してるのかな？更に4体のサソリが視界に入って来た。*
 
 &nbsp;
 
-The faces of Karla and the others are tense.
+Karla and the others’ faces stiffened.
 
 *カーラ達の顔が強張っている。*
 
-I knew these guys were too much for Kara and her team. ......
+As I thought, these guys might be too much for Karla and the others...
 
 *やっぱりコイツらはカーラ達には手に余るのか……。*
 
-I knew they were there from the beginning, but I had high hopes that the mobs that appeared around here would be no problem.
+I had known they were here from the beginning, but I thought they wouldn’t be a problem since they were mobs that appeared around here.
 
 *最初から居るのは分ってたけど、この辺に出てくるMobなら問題無いのだろうと高を括ってた。*
 
 &nbsp;
 
-This is a case for reflection.
+This is a matter for reflection.
 
 *これは反省案件だ。*
 
-It's all very blue, so it's hard to distinguish the strength... This is not the time to say that!
+I can’t distinguish their strengths because everything looks equally terrifying... I can’t afford to think like that!
 
 *全部真っ青だから強さの区別がつかない…。とか言ってる場合じゃない！*
 
 &nbsp;
 
-We need to measure our opponents more carefully!
+I need to be more careful in measuring the opponent’s strength!
 
 *もっとシッカリ相手の実力を測る様にしないとダメだ！*
 
 &nbsp;
 
-We need to explore the magnitude of the signs, the strength of the magic contained within, and other details so that we can fully grasp the differences in strength.
+I need to be able to grasp the differences in strength by examining the size of their presence, the strength of the magic they contain, and more.
 
 *気配の大きさ、内包する魔力の強さとか、もっと細かく探って強さの違いをキッチリ把握出来る様にしないといけない。*
 
-I'm going to make many more mistakes like this after this!
+If I don’t, I’ll keep making mistakes like this!
 
 *こんな失敗この後も幾らでもやってしまう！*
 
 &nbsp;
 
-With this in mind, I quickly dealt with the remaining four.
+Thinking this, I quickly dealt with the remaining four.
 
 *そんな事を考えながら、残りの4体を素早く処理をした。*
 
 &nbsp;
 
-I did the processing, though!
+I managed to take them down, but!!!
 
 *処理をしたのだけれど！！！*
 
 &nbsp;
 
-Just as I was about to cut down the last one...!
+Just as I slashed the last one...!
 
 *最後の一体ぶった斬ったトコロでっ…！*
 
-The sword is broken ahhhhhh!
+The sword broke!!!
 
 *剣が折れたぁぁぁぁぁぁーーーーっっ！！！*
 
 &nbsp;
 
-Geez! I borrowed this from Howard's dad! I borrowed it from Howard Papa, but I couldn't help it!
+Ugh! I borrowed this from Howard Papa!! I finally borrowed it, and now it’s broken!!!
 
 *うぎゃーーーン！ハ、ハワードパパからお借りした物なのにぃぃぃぃ！！折角お借りしたのにぃぃぃぃーーーっっ！！！*
 
-Both bottles are pocked oooh!
+Both of them snapped in half!!!
 
 *二本ともポッキリとぉぉぉぉぉ！！！*
 
 &nbsp;
 
-I put too much "Ki" into it!
+I put too much “ki” into it!
 
 *『氣』を籠め過ぎてしまったのだ！*
 
-The sword itself could not withstand the pressure of the high density of Ki because it was caged far beyond its capacity!
+I ended up exceeding its capacity significantly, and the sword itself couldn’t withstand the high-density pressure of “ki”!
 
 *ついキャパを大幅に超えて籠めてしまったから、剣そのものが高密度の『氣』の圧力に耐えられなかったのだ！*
 
@@ -891,85 +890,85 @@ The sword itself could not withstand the pressure of the high density of Ki beca
 
 &nbsp;
 
-he shouted, flopped down on the spot, picked up the broken sword and started to cry egregiously.
+Ughhh! I screamed and sat down on the spot, picking up the broken sword and starting to cry.
 
 *うぎゃぎゃぎゃ～～～～～っっ！と叫び、その場でペタリと座り込み、折れた剣を拾い上げエグエグと泣き出してしまった。*
 
 &nbsp;
 
-As I was auauing, Jessica came up to me.
+As I was wailing, Jessica came over.
 
 *アウアウしているとジェシカが寄って来て。*
 
 &nbsp;
 
-'Hey, are you all right Sue? Are you hurt? Does it hurt anywhere?"
+“Are you okay, Su? Did you get hurt? Is there anywhere that hurts?”
 
 *「だ、大丈夫スー？怪我したの？どっか痛いトコロあるの？」*
 
-"Oh, Jessica... my sword is broken..."
+“Ah, Jessica... my sword... it broke...”
 
 *「あぅ、ジェシカぁ・・・剣が、折れちゃった・・・のぉ」*
 
-What? The sword? Um... where does it hurt?"
+“Eh? The sword? Um... is there anywhere that hurts?”
 
 *「え？剣？えっと…痛いとこは？」*
 
-"It's not here... my sword... I borrowed it... ah..."
+“None... it’s just that the sword... I borrowed it...”
 
 *「無いのぉ・・・剣がぁ、お借り、したのにぃ・・・あぅ」*
 
-Oh...yeah, right? I'm not hurt ......."
+“Ah... I see, so you’re not hurt...”
 
 *「あ…そう、そうなのね？怪我は無いの……ね」*
 
-"You're up against the Red Death Stalker, you're going to break your sword."
+“It was against a Red Death Stalker, so the sword would break.”
 
 *「レッドデスストーカー相手だもん、剣も折れるよ」*
 
 &nbsp;
 
-Dana came to me and said.
+Dana chimed in.
 
 *と、ダーナが言って来た。*
 
 &nbsp;
 
-But it's my fault!
+“But it’s my fault...!”
 
 *「で、でも、わたしの、せい・・・なのぉ！」*
 
 &nbsp;
 
-Their exoskeletons are minerals.　I can't help it," Kara said, tapping the scorpion's shell with Dana.
+Their exoskeletons are made of minerals, so it can’t be helped. Karla said, tapping the scorpion’s shell along with Dana.
 
 *こいつ等の外骨格は鉱物だモノね、しょうがないよ。　とカーラもダーナと一緒に、サソリの殻をコンコンと叩きながら言って来た。*
 
-I was muttering something about not being able to cut it normally....
+They were also muttering that it normally wouldn’t be cut...
 
 *普通は斬れないよね　なんて事も呟いてたけど…。*
 
 &nbsp;
 
-If everyone's okay, let's just go back to the campsite and report the Red Death Stalker's presence. I also have to report that the Red Death Stalker has appeared. ......"
+“Um... for now, if everyone is okay, let’s head back to the outpost? We need to report that a Red Death Stalker appeared...”
 
 *「えーと…、とりあえず皆無事なら詰所まで戻りましょ？レッドデスストーカーが出た事も、報告しないといけないし……」*
 
 &nbsp;
 
-So Colin suggested, looking around at everyone.
+Colin suggested while looking around at everyone.
 
 *そうコリンが皆を見回しながら提案した。*
 
-Jessica agrees that yes, that would be nice.
+Jessica agreed, saying, “Yes, that sounds good.”
 
 *ジェシカも　そうね、それが良いわね　と同意する。*
 
-Alicia, who was blown away, has already recovered from the damage and is on her feet.
+Alicia, who had been blown away, was already standing up, having recovered from the damage.
 
 *吹き飛ばされたアリシアも、既にダメージから回復して立ち上がっている。*
 
-So we went back to the station and reported the killing of the giant scorpion.
+So, we headed back to the outpost to report the defeat of the giant scorpion.
 
 *そんなワケでそのまま詰所まで戻り、大サソリ討伐を報告をする事になった。*
 
@@ -979,125 +978,125 @@ So we went back to the station and reported the killing of the giant scorpion.
 
 &nbsp;
 
-After reporting back to the Tsumesho, there was a bit of a commotion.
+After finishing the report at the outpost, it caused a bit of a commotion.
 
 *詰所で報告を済ませると、チョットした騒ぎになった。*
 
-The people in the group who identified the remains of the scorpion asked for more information, and people from the village hall were also brought in to retrieve it.
+The members who confirmed the scorpion’s remains sought detailed information, and people from the village office were gathered to retrieve it.
 
 *サソリの遺骸を確認した団員の人達から詳しい事情を求められ、それを回収する為に村役場からも人手が集められた。*
 
-After a while, Howard Papa came too.
+After a while, Howard Papa also arrived.
 
 *暫くするとハワードパパもやって来た。*
 
 &nbsp;
 
-Ha, Mr. Howard, I'm sorry."
+“Howard, I’m sorry.”
 
 *「ハ、ハワードさん、ごめんなさい」*
 
-"What's the matter, Susie? What are you apologizing for?"
+“What happened, Suzy? Why are you apologizing?”
 
 *「どうしたスージィ？何を謝るのだね？」*
 
-I'm sorry I broke the sword I borrowed from you.
+“I broke the sword I borrowed... I’m so sorry.”
 
 *「折角、お借りした、剣を、折って、しまいました・・・ごめんなさいぃ」*
 
-Suzy, you don't have to apologize. You did what you had to do."
+“Suzy, there’s no need to apologize. You just did what you had to do.”
 
 *「スージィ、謝る必要は無い。君はやるべき事をやっただけだ」*
 
-But, but it's my fault..."
+“But, but it’s because of me...”
 
 *「でも、でも、わたしの、せいで・・・」*
 
-I must apologize to you, Suzy.... I gave you a sword that didn't match your strength. I'm sorry you couldn't wield it to your full potential.
+“The one who should apologize is me, Suzy... I gave you a sword that didn’t match your strength. You couldn’t exert your full power, I’m sorry.”
 
 *「謝らなくてはならないのはワシだよスージィ…。君の力に伴わない剣を与えてしまった。存分に力も振るえなかったろうに、…済まなかった」*
 
-I'm not sorry, Mr. Howard! Howard, you should not be apologizing! It was my fault!
+“N-No, that’s not something you should apologize for, Howard! It was my carelessness...!”
 
 *「そ、そんなハワードさん！ハワードさんが、謝られる、事では、無いです！わたしの、不注意・・・です！」*
 
-No, this is my fault for not giving Suzy the sword she deserved. This is not something for Suzy to worry about.
+“No, it was my fault for not giving you a sword that suited you. You don’t need to worry about it, Suzy.”
 
 *「いや、これはスージィに相応しい剣を与えなかったワシの落ち度だ。スージィが気に病む事では無い」*
 
 &nbsp;
 
-We were arguing like that, and someone came to help us out! I was repeating, "I'll take care of it!
+As the two of them continued to go back and forth in a water-throwing argument, someone stepped in to help.
 
 *そんな風に二人で　ワシが、わたしが！と水掛け論の様に繰り返していると、助け舟を出してくれる人が居た。*
 
 &nbsp;
 
-Why don't you take this opportunity to forge a sword worthy of Suzy?"
+“How about taking this opportunity to forge a sword suitable for Suzy?”
 
 *「この機会に、スージィさんに相応しい剣を鍛えては如何ですか？」*
 
 &nbsp;
 
-He was the mayor of the village of August Dulles.
+It was Mayor August Dales.
 
 *オーガスト・ダレス村長だった。*
 
-Augusto came to the stuffing station to check on us, along with an Amcam House employee who had come to collect the scorpions.
+Mr. August came to check on the situation at the outpost along with the staff from Amukam House who came to retrieve the scorpion.
 
 *オーガストさんはサソリの回収に来たアムカム・ハウスの職員と一緒に、詰所まで様子を見に来てくれたのだ。*
 
 &nbsp;
 
-The exoskeleton of the Red Death Stalker can be used to make a strong enough sword if it is refined. How about using it to make a new sword for Suzy and have Howard give it to her as a gift?
+“The exoskeleton of this ‘Red Death Stalker’ can be refined into a strong sword material. How about using this to forge a new sword for Suzy, as a gift from Howard?”
 
 *「この『レッドデスストーカー』の外骨格は、精錬を行えば十分に強い剣の素材足りえます。コレを使いスージィさんの新しい剣を打って、ハワードさんからプレゼントされるのは如何ですか？」*
 
-Mm-hmm! That's good! That's a great idea! Quintessential! That's August!
+“Hmm! That’s good! That’s a wonderful idea! As expected! Well done, August!!”
 
 *「うむ！それはいい！それは素晴らしいアイデアだ！流石だ！流石オーガスト！！」*
 
 &nbsp;
 
-Mr. Howard tapped Mr. August's shoulder repeatedly with a bang, his face tearing up with joy and laughter.
+Howard was repeatedly patting August on the shoulder, looking delighted and laughing.
 
 *ハワードさんはオーガストさんの肩をバンバンと何度も叩いて、嬉しそうに顔を綻ばせ笑い声を上げている。*
 
 &nbsp;
 
-Oh, Mr. August's big body is shaking so much every time Mr. Howard hits it, isn't it?
+Ah, Mr. August’s large body shook significantly every time Howard patted him.
 
 *あ、オーガストさんの大柄なお身体が、ハワードさんが叩く度凄い揺れているよ？*
 
-Is it my imagination or is my smile a little twitchy?
+Is it just my imagination, or is his smile a bit strained?
 
 *気のせいか笑顔が少し引き攣っている？*
 
 &nbsp;
 
-My sword?
+“My sword...?”
 
 *「わたしの、剣・・・ですか？」*
 
-Yes," she said! Suzy! Your sword! Let's make it a sword that matches your equipment! What do you think?"
+“Yes! Suzy! It’s your sword! Let’s make it a sword that matches your equipment! What do you think?”
 
 *「そうだ！スージィ！君の剣だ！その装備に似合った剣にしよう！どうだね？」*
 
-Why would you do that for me?
+“Really, for me?”
 
 *「そんな、態々、わたしの、為に？」*
 
-Don't be shy, okay? It's good for the village that Suzy has a strong weapon. I want to send you one. Will you take it?
+“Don’t hold back! Having a strong weapon is also for the village’s benefit. More than anything, I want to give it to you. Will you accept it?”
 
 *「遠慮などはしないでおくれよ？スージィが強い武器を持つ事は村の為でもある。何よりワシが君に送りたいのだ。受け取ってくれるね？」*
 
-Oh... yes, yes! Thank you very much! I'm so happy...!"
+“Ah... yes, yes! Thank you very much! I’m so happy!”
 
 *「あ・・・はい、はい！ありがとう、ございます！嬉しい・・・です！」*
 
 &nbsp;
 
-Mr. Howard, I see! Mm! Mm-hmm!　He nodded his head again and again and again, as if he was happy.
+Howard was nodding repeatedly, looking very pleased.
 
 *ハワードさんは　そうか！ウム！ウムウム！　と嬉しそうに何度も、何度も頷いておられた。*
 
@@ -1107,109 +1106,106 @@ Mr. Howard, I see! Mm! Mm-hmm!　He nodded his head again and again and again, a
 
 &nbsp;
 
-Your head?
+“W-What’s this?”
 
 *「ご、御頭首？」*
 
-You say, "My eyes are down at ......?"
+“Is his eyelids drooping...?”
 
 *「目尻が下がってる……だと？」*
 
-This loosened up face... seriously?"
+“This relaxed face... is this real?”
 
 *「この緩まれた顔…マジか？」*
 
 &nbsp;
 
-The members of the group took a step or two back, looking at me as if they couldn't believe what they were seeing.
+It seems the members were taking a step back, looking at him as if they couldn’t believe their eyes.
 
 *なんか団員の方達が、信じられない物を見る様な目で一、二歩後ずさった。*
 
 &nbsp;
 
-"Is this... the Mr. Cloud in his parent-jerk mode we've heard so much about? Oh no!"
+“Is this... the parent mode of Cloud that I heard about? This is crazy!”
 
 *「これが…、話に聞いてた親バカモードのクラウドさん？ヤバいよ！」*
 
 &nbsp;
 
-Kara muttered something strange.
+Karla muttered something strange.
 
 *カーラが変な事を呟いた。*
 
 &nbsp;
 
-But I see it all the time at Sue's house, so it's not that unusual, you know? Right? Bibi?
+“But you can see that at Su-chan’s house all the time, so it’s not that rare, right? Right? Bibi-chan?”
 
 *「でも、スーちゃんのお家だと何時も見られるから、そんな珍しくないわよ？ね？ビビちゃん？」*
 
-Shush." Mia! You're talking too loud!"
+“Shh! Mia! Keep your voice down!”
 
 *「しっ！ミア！声が大きいわ！」*
 
 &nbsp;
 
-What? What? What do you mean, Bear Boy?
+Huh? What? What does that mean, Bear-chan?
 
 *え？ナニ？どゆことベア子？*
 
 &nbsp;
 
-What's with the strange atmosphere? Huh?
+There’s a strange atmosphere, isn’t there? Huh?
 
 *何だか妙な空気感なんですけど？あれ？*
 
 &nbsp;
 
-But...well, good. No one is hurt today.
+But... well, it’s fine. No one got hurt today.
 
 *でも…ま、良っか。今日は誰も怪我して無いし。*
 
-Mr. Howard looks very happy! I'm happy as long as it makes him happy!
+Howard looks really happy! As long as Howard Papa is happy, that’s what matters to me!
 
 *ハワードさんは凄く嬉しそうだ！わたしはハワードパパが喜ばれるならそれで良いのだ！*
 
 &nbsp;
 
-It was a fun day, despite everything.
+There were various things, but it was a fun day.
 
 *何やかやとあったけれど、楽しい一日だった。*
 
-I was able to hunt with everyone with my first equipment and even promised to have a new sword struck at the end!
+I was able to hunt with everyone in my first equipment, and in the end, I even made a promise to have a new sword forged!!
 
 *初めての装備で皆と狩も出来たし、最後は新しい剣を打ってもらう約束までした！！*
 
 &nbsp;
 
-When the sword is ready and I show it to you wearing it with this set of equipment, do you think Howard Papa will be pleased?
+When the sword is ready, I wonder if Howard Papa will be happy when I show it to him along with this equipment?
 
 *剣が出来てきて、この装備とセットで身に付けてお見せしたら、ハワードパパは喜んでくれるかな？*
 
-Duh! I bet they'd be happy to hear that!
+Yeah! I’m sure he’ll be delighted!!
 
 *ウン！きっと喜んでくれるに違いない！！*
 
-I'm really looking forward to it!
+I’m really looking forward to it!
 
 *何だか今からとっても楽しみなのだ！*
-
-
 
 &nbsp;
 
 ----------------
 
-In the next issue, we will talk about the end of a chapter.
+Next time, it will be a story after the first chapter ends.
 
 *次回は一章が終わった後のお話し。*
 
-Interlude 3: Let's Go to the Harvest Festival!
+“Interlude 3 Let’s Go to the Harvest Festival!”
 
 *『幕間3　収穫祭へ行こうよ！』*
 
 &nbsp;
 
-It will be dropped next week on the 31st at 20:00.
+I will post it on the 31st at 8 PM next week.
 
 *来週31日20時に投下します。*
-
