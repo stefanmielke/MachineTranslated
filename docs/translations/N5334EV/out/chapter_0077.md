@@ -1,409 +1,408 @@
-# 72 Vampires at Dawn Part 2
+# Episode 72: The Vampire at Dawn, Part 2
 
 ## 72話　夜明けのヴァンパイア　その2
 
-Thank you very much for your patience.
+Thank you for your patience.
 
 *大変お待たせしております。*
 
-I ended up with over 20,000 words;
+In the end, it has exceeded 20,000 characters＾＾；；
 
 *結局2万文字を越えてしまいますた＾＾；；*
 
 &nbsp;
 
-Some of the language may be very cruel.
+There are some very cruel expressions.
 
 *大変残酷な表現がございます。*
 
-If you are not a fan or feel uncomfortable, please do not hesitate to contact us.
+Please be cautious if you are not good with such things or feel uncomfortable.
 
 *苦手な方、不快感を感じる方はどうぞご注意ください。*
-
 
 ----------------
 
 &nbsp;
 
-"Well, I've managed to get around a little bit, haven't I?
+"Hmm, it seems I can move my body a bit now."
 
 *「ふむ、どうにかこうにか多少は身体が動くようになったかね」*
 
-Noooo, my fingertips are still twitching... ......
+"Ugh, my fingertips are still trembling, though..."
 
 *「ぬぅぅ、まだ指先がプルプルしとるがのぉ……」*
 
-"It can't be helped, Mr. Nosoli, you are an old man, and you mustn't push yourself too hard.
+"It can't be helped; after all, Nosori-kun is an old man, so don't overdo it, okay?"
 
 *「仕方あるまい、ノソリ君は老人なんじゃから無理は禁物じゃぞ？」*
 
-What's the meaning of that kindly line with a wry smile in your eyes?
+"Despite the kind words, why does your expression look so mischievous, hmm??!!"
 
 *「優しそうな台詞のワリに、目元がウププと笑っているのはどういう事かのぉぉ？？！！」*
 
 &nbsp;
 
-The doctors are recovering too fast. I don't want to move yet.
+"The teachers are—too fast at recovering—. I—still—don't want to move—yet—."
 
 *「先生方はーー、回復がー早すぎですーー。わたしはーー、まだー動きたくーー無いですぅーー」*
 
-"Well, you still don't seem very tense, even though you almost fell prey to a vampire.
+"Hmm, even though you were almost a vampire's prey, you still lack a sense of urgency."
 
 *「ふむ、あわやヴァンパイアの餌食になりかけたと云うのに、君は相変わらず緊張感が無いね」*
 
-"It's hard to imagine a human being with a life-threatening condition.
+"I can't believe you are a human facing a life-threatening crisis."
 
 *「とても生命の危機に瀕した人間とは思えんのぉ」*
 
-Well, that's what you do best.
+"Well, that's just the charm of you, my assistant, so it can't be helped."
 
 *「まあ、それが助手君の持ち味じゃしな、しょうがないじゃろ」*
 
-"Well, I can't help it."
+"Hmm, it can't be helped."
 
 *「ふむ、しょうがないね」*
 
-Oh, no.
+"It can't be helped."
 
 *「しょうがないのぉ」*
 
-"You teachers are so, so, so, so rude!"
+"Uh, umm—you're being very rude—teachers—!"
 
 *「な、なんかーー、先生方がー、とぉーってもー、失礼ですーー！」*
 
 &nbsp;
 
-So, let's put all that nonsense aside, shall we?
+"Now, let's set aside the trivial matters."
 
 *「で、どうでも良い話しは置いといてじゃな」*
 
-"You don't give a shit how I'm treated?
+"Is that how you treat it as trivial?!"
 
 *「どーでもいいー扱いですかーー？！」*
 
-It's not looking good for you, is it?
+"If we keep going like this, it will be a bit troublesome."
 
 *「このままでは、ちーと不味いじゃろ」*
 
-Yes, I heard that the Knights lost more than half of their batteries in the first raid. And now there are no healers left. Mr. Seiwashi, can't you do something about it?"
+"That's right; the knight's battery said they lost more than half in the initial attack. There aren't any healers left either. Seiwashi-kun, can't we do something about this?"
 
 *「そうだのぉ、騎士団のバッテリーは、最初の襲撃で半分以上失ったと言っておったしのぉ。癒し手もおらん様になってしまったしのぉ。セイワシ君や、何とかならんもんかのぉ？」*
 
-"Well, those batteries require a proper adapter, so trying to charge them directly would be inefficient, time-consuming, and not a good stopgap measure.
+"Hmm, that battery requires a proper adapter, so even if we try to charge it directly, it would be too inefficient and just take time without helping in an emergency."
 
 *「ふむ、あのバッテリーは正規のアダプタが必要だからね、直接チャージしようとしても効率が悪すぎて時間が掛るだけで急場凌ぎにもなら無いだろうね」*
 
-What an inflexible little thing you are."
+"What a troublesome piece of equipment."
 
 *「何とも融通の効かん代物じゃのぉ」*
 
-I can heal a little, but I'm not a priest, so I can't heal you all. Above all, I don't have any magic power right now.
+"I can use a bit of healing too, but since I'm not a cleric, I'm far from full recovery. More importantly, I have no magical power right now."
 
 *「私もー、少しはーー、癒しが使えますがーー、聖職者じゃないのでー、全回復にはー程遠いですーー。何よりー、今はー、魔力がありませんーー」*
 
-"Well, that's just plain useless."
+"Hmm, it's truly useless at this point."
 
 *「ふむ、実に使え無い事この上ないね」*
 
-Wookiee!"
+"Ukiiiiii!!"
 
 *「ウキィーーーッッ！！」*
 
 &nbsp;
 
-Some emerged from their hastily constructed trenches and made a commotion.
+From the hastily dug trench, some people emerged, making a commotion.
 
 *急こしらえの塹壕から顔を出し、騒ぎ立てる者達が居た。*
 
-They are Drs. Seywasi Melchio, Morris Baltasar, and Nosoli Casbal, and Seywasi's assistant, Josrine Joslan.
+The three doctors—Seiwashi Melchio, Morris Baltasar, and Nosori Kasubar—and Seiwashi's assistant, Joslyn Joslan.
 
 *セイワシ・メルチオ、モリス・バルタサル、ノソリ・カスバルの三博士と、セイワシの助手であるジョスリーヌ・ジョスランの4人だ。*
 
 &nbsp;
 
-'Teachers! Please hurry back to the trenches! It's not safe here!
+"Teachers! Please hurry back into the trench! It's dangerous here!!"
 
 *「先生方！急いで塹壕の中に戻って下さい！此処は危険です！！」*
 
 &nbsp;
 
-Some of the knights noticed the four coming out of the trench and ran up to them.
+Noticing the four who had come out of the trench, a member of the knight brigade rushed towards them.
 
 *塹壕の中から出て来た4人に気が付き、彼らの前へ駆け寄って来る騎士団の者が居た。*
 
 &nbsp;
 
-"Oops, ......, I believe you're in the ......3 group, or was it group leader of group 4?"
+"Oh, wait... you are from the third squad, right? Or were you the leader of the fourth squad?"
 
 *「おっと……、君は確か……3班だったか？４班の班長さんじゃったかな？」*
 
 &nbsp;
 
-Morris tapped his fingers on his forehead, searching for the knight's name in his memory.
+Morris tapped his forehead with his finger, searching his memory for the knight's name.
 
 *モリスが額を指で叩きながら、記憶の中の騎士の名前を探っていた。*
 
 &nbsp;
 
-I'm Norman Lance, leader of Team 4. I'm Norman Lance, head of Team 4.
+"I'm Norman Lance! Leader of the fourth squad. I'm from the spear escort unit!"
 
 *「ノーマン・ランスです！４班班長。戦槍護衛部隊のノーマンです！」*
 
-I'll be right with you! Yes, yes! You're the one with the spear guards!"
+"Oh! That's right! You were the spear escort!"
 
 *「をを！そうじゃそうじゃ！槍の護衛の人じゃったな！」*
 
-"Teachers, we don't care about that right now! Now is not the time to worry about that, but rather to evacuate quickly! The enemy is already here! Damn it! Damn you!
+"Teachers! More importantly, please evacuate quickly! The enemy is already here too!! Ugh! You!!"
 
 *「先生方！今はそんな事よりも御早く避難を！此処にももう敵が！！くっ！このっっ！！」*
 
 &nbsp;
 
-At the same time as he announced his name, Norman Lance, with his back to the three doctors, sat down, activated "Boost Up," and drew his axe spear at the ready.
+As he announced his name, Norman Lance turned his back to the three doctors, crouched down, and activated "Boost Up," swinging his halberd.
 
 *自分の名前を告げるのと同時に、三博士に背を向けたノーマン・ランスが腰を落とし『ブースト・アップ』を起動して、構えた斧槍を振り抜いた。*
 
-A dull metallic sound echoes in front of Norman, and the cadmos knight who came running straight at him is blown away, shield and all, by the axe spear.
+With a dull metallic sound, a Cadmos Knight, charging straight at him, was blown away along with its shield by the halberd.
 
 *ノーマンの正面で鈍い金属音を響かせ、真っ直ぐに走って来たカドモスナイトが、斧槍を受けた盾ごと吹き飛ばされる。*
 
 &nbsp;
 
-Immediately, Norman activated the magic in his boots with a "magic manifestation device.
+Immediately, Norman activated magic with the "Magic Activation Device" hidden in his boots.
 
 *直ぐにノーマンは、ブーツに仕込まれた『魔導発現装置』で魔法を起動させた。*
 
 &nbsp;
 
-Air Ride"
+"Air Ride"
 
 *『エアライド』*
 
-It creates a layer of compressed wind between the sole and the ground surface and glides across the surface.
+He created a layer of compressed wind between his feet and the ground, moving as if gliding over the surface.
 
 *足裏と地表の間に圧縮された風の層を作り、地表を滑るように移動する。*
 
 &nbsp;
 
-Norman faced the flying cadmos knight, closed the gap at once, and with the momentum of the "Air Ride" activation, thrust his axe spear deeply into its chest.
+Norman closed the distance to the blown-away Cadmos Knight in one go, using the momentum of "Air Ride" to thrust his halberd deep into its chest.
 
 *ノーマンは、飛ばされたカドモスナイトに向かい一気に間合いを詰め、『エアライド』発動の勢いに乗せ、その胸元に斧槍を深々と突き立てた。*
 
-And just like that, the blue flame emitted from the tip of the spear consumes the cadmos knight.
+Then, he burned the Cadmos Knight to ashes with the blue flames emitted from the spear tip.
 
 *そしてそのまま、槍先から発した蒼い炎でカドモスナイトを焼き尽くす。*
 
-A rejected cartridge flew out of Norman's shoulder and flew through the air in a cloud of white smoke.
+A rejected cartridge flew out from Norman's shoulder, swirling in white smoke as it danced in the air.
 
 *ノーマンの肩口からはリジェクトされたカートリッジが飛び出し、白い煙を纏いながら宙を舞った。*
 
 &nbsp;
 
-Norman made sure that the cadmos knight perished and breathed on his shoulder, propping up the axe spear he held up, as he relaxed his shoulders.
+Norman confirmed that the Cadmos Knight was defeated, relaxed his shoulders, and leaned on his raised halberd while catching his breath.
 
 *ノーマンは、カドモスナイトが滅して行くのを確認し、肩の力を抜きながら、立てた斧槍を支えにして肩で息をしていた。*
 
 &nbsp;
 
-(Is this the wear and tear of killing one of them? ....... This is not good, these guys are definitely better than us. They're no match for the undead we've seen so far, and they're too much for us in a one-on-one fight! (This is no way to protect the teachers, ......)
+(Just to take one down, this much exhaustion... This is bad; these guys are definitely stronger. They are nothing like the undead we've faced before. One-on-one is far too unfavorable! At this rate, guarding the teachers will...)
 
 *（一体仕留めるのに、この消耗か……。不味いぞ、コイツら確実に格上だ。今までのアンデッドとは比較にもならない。1対1では分が悪すぎる！これでは、先生方の護衛など……）*
 
 &nbsp;
 
-Norman pushed up his glasses, which were down a bit, and was painfully aware of the severity of the current situation as he breathed.
+Norman pushed up his slightly askew glasses and keenly felt the severity of the situation while catching his breath.
 
 *ノーマンが、少し下がったメガネを押し上げ、呼吸を整えながら現状の厳しさを痛感していた。*
 
 &nbsp;
 
-"Yes, what is it? You look like a big man, don't you?"
+"What’s this? You seem quite dignified, don’t you?"
 
 *「なんじゃ、なんじゃ？随分大儀そうじゃな？」*
 
-"It can't be helped, they're better than us. You must have your hands full."
+"It can't be helped; the opponent is stronger. I suppose the spear boy is at his limit."
 
 *「仕方が無いのぉ、相手は格上だからのぉ。槍君には一杯いっぱいなんだろうのぉ」*
 
-If you think so, please return to the trenches as soon as possible. If you come ...... with more than one person, you will not be able to ...... get through on your own."
+"Y-you think so? If you believe that, please hurry back to the trench... If they come in numbers, I can't handle it alone..."
 
 *「そ、そうお思いになるなら、御早く塹壕へお戻りください。……複数で来られては、自分一人では……」*
 
 &nbsp;
 
-Norman readjusted his axe and spear, searched the area for signs of life, and urged the three doctors to take shelter.
+Norman readied his halberd again, cautiously sensing the surroundings, urging the three doctors to evacuate.
 
 *ノーマンが斧槍を構え直し、辺りの気配を油断なく探り、三博士へ避難を促した。*
 
 &nbsp;
 
-This is where we are now, in a defensive position created by the logistics unit.
+This place is within the defensive position created by the logistics unit.
 
 *今居るこの場所は、兵站部隊の作り上げた防御陣地の中だ。*
 
 &nbsp;
 
-However, the camp, which had been built up like a fortress, had been severely damaged by the vampire attack earlier.
+However, even the fort-like position had suffered significant damage from the previous vampire attack.
 
 *しかし、砦の様に作り上げられた陣地も、先のヴァンパイアの攻撃で、大きな被害を出していた。*
 
-Most of the tents set up inside had burned down, leaving only their wreckage.
+Most of the tents set up inside had burned down, leaving only the wreckage.
 
 *中に据えられていたテントは殆どが燃え落ち、その残骸を残すのみだ。*
 
 &nbsp;
 
-In the center of the camp, a hole had been dug where the tent had been and a wall had been built around it to create a trench as a defense against magical attacks.
+At the center of this position, as a defense against magical attacks, a hole had been dug where the tents used to be, surrounded by walls to create a trench.
 
 *今この陣地の中心には、魔法攻撃からの防御策として、テントの在った場所に穴を掘り広げ、その周りを壁で囲み塹壕を作り上げていた。*
 
-The wounded were housed in them and were also treated. The three doctors were supposed to have been evacuated into it.
+In there, the injured were being housed and treated. The three doctors were supposed to have been evacuated there as well.
 
 *その中に負傷者を収容し、治療にもあたっている。三博士達も、その中へ避難させられていた筈だった。*
 
-However, Norman, who was in charge of escorting the doctors, noticed them coming outside before he knew it and rushed over to them.
+But Norman noticed the doctors had somehow come outside, and he rushed over in a panic.
 
 *だがいつの間にか外へ出て来た博士達に、護衛を担当していたノーマンが気が付き、慌てて駆け付けたのだ。*
 
 &nbsp;
 
-The battalion commanders are standing around on the front line, but the enemy has already entered the position.
+While the battalion leaders were maneuvering at the front, the enemy had already infiltrated the position.
 
 *前線で大隊長たちが立ち回っているが、既に陣地内には敵が入り込んでいる。*
 
-What will happen if we allow any more enemies to invade. ......
+What would happen if we allowed any more enemy incursions...?
 
 *これ以上敵の侵入を許せばどうなるか……。*
 
-Norman's gaze behind his glasses is filled with strength, and his hand grips the spear-axe as he stares ahead.
+Norman focused his gaze, tightening his grip on the halberd as he glared ahead.
 
 *ノーマンがメガネの奥の眼差しに力を籠め、前方を睨み槍斧を握る手にも力が入る。*
 
 &nbsp;
 
-Hmmm, but I guess we can't say that, can we?
+"Hmm, but it seems we can't just sit around either."
 
 *「ふむ、しかしそうも言っていられない様だね」*
 
 &nbsp;
 
-Seywash muttered as he squinted.
+Seiwashi murmured, squinting his eyes.
 
 *セイワシが、目を細めながらそう呟いた。*
 
-Norman felt his own hair stand on end at the sudden appearance of this presence.
+Norman felt his hair stand on end at the sudden presence that appeared.
 
 *ノーマンは、突然現れたその気配に、自身の総毛が逆立つのを感じた。*
 
 &nbsp;
 
-"Oh, no. You've been hiding here too, haven't you?"
+"Oh? So you were hiding here too?"
 
 *「あら？こんな所にも隠れていらっしゃいましたのね？」*
 
 &nbsp;
 
-A woman in a black nightdress put the index finger of her right hand over her mouth and moved her hips as if she was making a supple motion, speaking to me happily.
+A woman clad in a black night dress spoke, placing her right index finger to her lips and swaying her hips as she spoke cheerfully.
 
 *黒いナイトドレスを纏う女が、右手の人差し指を口元に当て、しなを作る様に腰を動かしながら嬉しそうに語りかけて来た。*
 
-The moment Norman saw the woman ...... Elektra, he put an azure glow on his spear axe, which he held up, and plunged into her in a straight line.
+The moment Norman confirmed the woman—Electra—he enveloped his poised halberd in blue light and charged straight at her.
 
 *ノーマンは、その女……エレクトラを確認した瞬間、構えた槍斧に蒼い輝きを纏わせ、一直線に突貫した。*
 
-The assault, which combines "Boost Up" and "Air Ride," glides across the ground toward the target and thrusts the spear tip toward Elektra at the shortest possible distance.
+The charge, combining "Boost Up" and "Air Ride," propelled him forward as he thrust the spear tip towards Electra.
 
 *『ブースト・アップ』と『エアライド』を併用した突撃は、目標に向かい大地を滑空する様に突き進み、最短距離で槍先をエレクトラへ突き立てる。*
 
 &nbsp;
 
-However, just as he thought he had thrust the tip of his spear, Elektra's body seemed to blur and scramble away from the spot.
+However, just as he thought he had thrust the spear tip into her, Electra's body flickered and vanished from the spot.
 
 *だが、槍先を突き立てたと思った瞬間、エレクトラの身体はブレる様にその場から掻き消えた。*
 
-Norman immediately reverses his body, drills his feet into the ground, brakes himself, and stops in place, hunched over, to search for signs of the area.
+Norman immediately turned his body, digging his feet into the ground to halt his momentum, crouching down to stop and sense the surroundings.
 
 *ノーマンは直ぐに身体を反転し、地に足を穿ち制動をかけ、腰を落としてその場に停止し、辺りの気配を探る。*
 
 &nbsp;
 
-Â "Well, you look very tasty too ......"
+"Well♪ You seem quite delicious too..."
 
 *「まぁ♪貴方もとても美味しそう……」*
 
 &nbsp;
 
-From the back of his head, a sweet-smelling whisper clung to Norman's ear.
+A whisper, carrying a sweet scent from behind, wrapped around Norman's ears.
 
 *頭の後ろから、甘い香りを漂わせる様な囁きが、ノーマンの耳に纏わりついて来た。*
 
-Norman hurriedly jumped back and slid his body between Elektra and the doctors to form a wall.
+In a panic, Norman jumped back, sliding his body between the doctors and Electra to act as a shield.
 
 *ノーマンは慌てて跳び退き、博士達の壁となる様にエレクトラとの間にその身体を滑り込ませた。*
 
 &nbsp;
 
-"Oh, that's very healthy of you. That's good too, isn't it?"
+"Ufu, how noble of you. That part of you is also quite nice, you know?"
 
 *「ぅふ、健気ですわね。そういう所も良いですわよ？」*
 
 &nbsp;
 
-With a chilling sneer, he raises his right hand in front of his face, palm up in a fluttering motion. His right hand was then engulfed in flames.
+With a cold smile, she raised her right hand, flipping it over palm-up to the height of her face. Then, her right hand was engulfed in flames.
 
 *冷ややかな嗤いを零しながら右手を前に上げ、ヒラリと翻す様に掌を上にして顔の高さまで上げて行く。そしてそのまま右手が炎に包まれた。*
 
-When Elektra shakes her hand as if to remove it, the flame grows like a whip and strikes Norman.
+As Electra waved her hand as if to brush it away, the flames stretched like a whip and attacked Norman.
 
 *エレクトラがその手を払う様に振ると、その炎が鞭の様に伸び上がりノーマンを 襲う。*
 
 &nbsp;
 
-The whip of flame flexed and bit into Norman's side as if it had mass, cleaving his body.
+The fiery whip coiled around Norman's side as if it had mass, slashing through his body.
 
 *炎の鞭は、質量を持っているかの様にノーマンの横腹に撓りながら食込み、その身体を薙ぎ払った。*
 
-Blown away, Norman was also engulfed in flames and rolled to the feet of the doctors, screaming.
+Blown away, Norman was engulfed in flames, rolling to the feet of the doctors while screaming.
 
 *吹き飛ばされたノーマンは炎にも包まれ、叫びを上げながら博士達の足元へ転がされた。*
 
 &nbsp;
 
-Norman is at the feet of the doctors, bushy white smoke coming from his armor and grunting in agony.
+At the feet of the doctors, Norman's armor emitted white smoke, and he groaned in pain.
 
 *ノーマンは博士達の足元で、その鎧からブスブスと白煙を上げ、苦しげに呻き声を上げている。*
 
 &nbsp;
 
-'It's been a long time since I've had the pleasure of meeting you, Lord Elf. I hope you are enjoying yourself after this little boy. I know the Lord will enjoy the company of this young lady, so I will greet her graciously. I am very sorry to say goodbye to your grandfathers at ............. Unfortunately, it does not seem to be to our taste. Hohoho ......"
+"It's been a while since I've seen an elf. I had fun with this boy, didn't I? This young lady here will surely entertain the master, so I will welcome her properly. As for the old men... it's quite unfortunate, but this is where we part ways. Unfortunately, it seems we don't share the same tastes. Hohoho..."
 
 *「エルフの殿方とは久しぶりですわ。この坊やの後に楽しませて頂けまして？此方のお嬢ちゃまは、主がお楽しみ下さるでしょうから、丁重にお迎え致しますわ。おじいちゃま達は…………、大変残念ですけれど、此処でお別れですわね。生憎と、あたくし共の趣味には合いそうに御座いませんので。ほほほ……」*
 
 &nbsp;
 
-Elektra narrowed her eyes and let her gaze wander over Norman, Seyvard, and Joseline, in that order, before glancing at Morris and Nosoli, placing her hand over her mouth and letting out a small sneer.
+Electra narrowed her eyes, casting a lingering gaze over Norman, Seiwashi, and Joslyn, before glancing at Morris and Nosori, placing her hand over her mouth and letting out a small chuckle.
 
 *エレクトラが目を細め、ノーマン、セイワシ、ジョスリーヌを、順に纏わり着く様な視線を這わせた後、モリスとノソリを一瞥し、口元に手を置き小さく嗤い声を漏らした。*
 
 &nbsp;
 
-"I'm sorry to hear you've been dumped, Mr. Nosoli."
+"Nosori-kun, it's unfortunate; it seems you've been rejected, hasn't it?"
 
 *「ノソリ君、残念じゃな、フラれてしまった様じゃぞ？」*
 
-"Mr. Morris, you do realize you're included, don't you?"
+"Morris-kun, do you realize you are included in this too?"
 
 *「モリス君、君も含まれている事は分っているのかのぉ？」*
 
-I know! I'm so happy for you, Mr. Eagle. I've got a big crush on you! You're a handsome man, and you've earned it!"
+"I know! Good for you, Seiwashi-kun. You've received a passionate love call! You must feel lucky being a handsome man, right?!"
 
 *「分っとるわい！良かったなセイワシ君。君に熱烈ラブコールじゃ！色男で得したじゃろ？！」*
 
-"Hmmm, this is a very annoying invitation indeed. I guess I have always refused such self-centered invitations!
+"Hmm, what a bothersome invitation indeed. I've always refused such self-serving invitations!"
 
 *「ふむ、実に甚だ迷惑なお誘いだね。昔からこういう自分本位のお誘いはお断りする事にしているんだね！」*
 
-"Oh, no! A handsome man says differently!"
+"Ha! Handsome men sure say different things!"
 
 *「くぁ！色男は言う事が違うのぉ！」*
 
@@ -411,79 +410,79 @@ I know! I'm so happy for you, Mr. Eagle. I've got a big crush on you! You're a h
 
 &nbsp;
 
-Norman's barely moving hand reached for the activation switch on the medical kit attached to his waist.
+With trembling hands, Norman finally reached for the activation switch of the medical kit attached to his waist.
 
 *ノーマンがやっと動く手で、腰に装着されている医療キットの起動スイッチに手を伸ばした。*
 
-The sound of high-pressure air is heard, and the magic of recovery is activated.
+With a loud hiss, the sound of high-pressure air burst forth, activating the healing magic.
 
 *バシュッと高圧のエアが吹き出す様な音をたて、回復の魔法が発動する。*
 
-After using up all the magic power that had been filled, the empty cartridges were ejected from the device, and Norman finally got up from his body.
+Using up all the magical power stored, the now-empty cartridge was ejected from the device, and Norman finally managed to sit up.
 
 *充填されていた全ての魔力を使い切り、空になったカートリッジが装置から排出され、ノーマンはようやく身体を起こした。*
 
 &nbsp;
 
-(Damn! Just one hit consumes a whole cartridge to recover? The difference between them and us is too great!)
+(Damn it! Just receiving one hit used up an entire cartridge for recovery? The gap between us is too great!)
 
 *（クソッ！たった一撃受けただけで、回復するのにカートリッジを丸々１個消費するだと？彼我の差が大きすぎるぞ！）*
 
 &nbsp;
 
-Standing up, Norman, breathing on his shoulder, readjusted his spear axe and pointed the spear tip at Elektra.
+Standing up, Norman caught his breath while readjusting his halberd, aiming the spear tip at Electra.
 
 *立ち上がったノーマンは、肩で息をしながら槍斧を構え直し、エレクトラへと槍先を向けた。*
 
-Elektra smiled and looked at him admiringly.
+Electra looked at him, smiling as if impressed.
 
 *それをエレクトラが、感心した様に笑みを零し視線を送っている。*
 
 &nbsp;
 
-"You are protecting me, aren't you, my knight?
+"Y-you're protecting me, aren't you, knight!!"
 
 *「き、騎士様はーー、わたしをー、庇ってくださるんですねーーー！！」*
 
 &nbsp;
 
-Joseline, who had just positioned herself between Elektra and Joseline, clasped her hands behind her back as if moved, and shouted loudly.
+Just as Norman positioned himself between Electra and Joslyn, Joslyn, overwhelmed with emotion, clasped her hands together and raised her voice.
 
 *ちょうど、エレクトラとジョスリーヌの間に立つ様に位置取りをしたノーマンの背に向け、感極まった様に両手を握り締めたジョスリーヌが、大きく声を上げた。*
 
 &nbsp;
 
-Huh?" Oh, ....... And, of course. It is my duty to protect you all."
+"Huh? Ah... Of course. It is my duty to protect everyone."
 
 *「え？あ……。と、当然です。自分は皆様を御守りするのが務めですから」*
 
 &nbsp;
 
-Norman says this is to be expected, although he is momentarily confused by the sudden voice behind him.
+Taken aback by the sudden voice from behind, Norman quickly reassured himself that this was just a natural occurrence.
 
 *突然の後ろからかけられた声に、一瞬戸惑うも、これは当然の事だとノーマンは言う。*
 
 &nbsp;
 
-"Oh, did you hear...did you hear...teachers...? After all, those who are watching are watching! I am a maiden protected by a knight!
+"Did you hear that, teachers?! After all, those who are watching are noticing!! I am a maiden protected by the knight!!!"
 
 *「お、お聞きにーーー、なられましたかーー先生方ーーー！やっぱりーー、見てる方はー、見ておられるのですよーーー！！わたしはーー、騎士様にー、護られるーー乙女なのですーーーー！！！」*
 
 &nbsp;
 
-You're full of shit!"
+"That's full of points to critique!"
 
 *「つっ込みどころ満載じゃな！」*
 
-I don't even know where to begin.
+"I don't even know where to start critiquing anymore."
 
 *「最早、何処からつっ込んで良いのかすらワカランのぉ」*
 
-"Well, it is not hard to feel pain when I look at my disciple who has fallen ill.
+"Hmm, it pains my heart to see my ailing disciple like this."
 
 *「ふむ、病んでしまった我が弟子を見るに、心が痛まないでもないね」*
 
-"Whatever you want to say..! I am a winner! I'm a winner!
+"Say whatever you want! I am the winner here!! I'm a winner!!!"
 
 *「なんとでもーー、おっしゃっていて下さいーー！わたしはー、これで勝ち組なのですーー！！勝ち組ぃーーー！！！」*
 
@@ -493,107 +492,107 @@ I don't even know where to begin.
 
 &nbsp;
 
-Norman lets out a short breath, sits back down, activates the "air ride" again, and darts toward Elektra, skidding along the ground.
+Norman exhaled sharply, crouched down, and activated "Air Ride" again, gliding toward Electra.
 
 *ノーマンが短く息を吐き、腰を落とし再び『エアライド』を起動して、エレクトラへと向かい地を削りながら滑る様に驀進する。*
 
-Norman, holding his axe spear to his left, swung the tip of his spear, which was covered with azure holy air, with the momentum of his thrust toward Elektra.
+With the halberd positioned to the left, Norman surged forward, swinging the spear tip enveloped in blue holy energy.
 
 *斧槍を左に構えたノーマンは、エレクトラに向け突き進む勢いに乗せ、蒼い聖気を纏うその槍先を振り抜いた。*
 
-Just as it seemed that the crescent-shaped axe section would catch Elektra with a burst of crushed air, Elektra's body shakes again and disappears from the scene.
+With a sound like crushed air, the crescent-shaped axe part was about to catch Electra when, once again, her body flickered and disappeared from the spot.
 
 *押し潰された空気が弾ける破裂音を響かせて、三日月形の斧部がエレクトラを捉えると思われた瞬間、再びエレクトラの身体がブレ、その場から消失する。*
 
-This time, however, he immediately recaptured the sign.
+However, this time, he quickly sensed her presence again.
 
 *だが、今度は直ぐに気配を捉えなおした。*
 
-Using the momentum from his axe and spear, he turns his body, corrects his trajectory, and takes a new aim with the tip of his spear.
+Using the momentum from the halberd swing, he turned his body to adjust his trajectory and pierced the new target with the spear tip.
 
 *斧槍を振り切った勢いを使い、その身をターンさせ軌道を修正し、新たな狙いを槍先で穿つ。*
 
 &nbsp;
 
-With a clang, the tip of the spear hit something and stopped moving.
+With a clink, the spear tip hit something and stopped moving.
 
 *ガキリ　とその槍先が何かに当り動きを止めた。*
 
-Before she knew it, Elektra was standing in the darkness, her blood-colored claws outstretched like knives, catching Norman's axe-spear thrust. Electra's eyes opened again in admiration, and the smile around her mouth deepened.
+Electra, who had been standing in the darkness, extended her blood-colored claws like knives and caught Norman's thrust with them. Electra opened her eyes wide in apparent admiration, deepening her smile.
 
 *いつの間にか闇の中に立っていたエレクトラが、血の色をした自らの爪をナイフの様に伸ばし、ノーマンの繰り出した斧槍の一突きを受け止めていたのだ。エレクトラは再び感心した様に目を開き、口元の笑みを深めた。*
 
 &nbsp;
 
-Gnashing his back teeth, Norman quickly pulled back the tip of his spear.
+Clenching his teeth, Norman quickly pulled back the spear tip.
 
 *奥歯をギリッと噛み締めたノーマンは、素早く槍先を引き戻した。*
 
-Polearm Rapid Attack"
+"Polearm Rapid Attack"
 
 *『ポールアーム・ラピッドアタック』*
 
-A series of cartridges covered in white smoke are rejected from Norman's cupped hands.
+From Norman's gauntlet, cartridges wrapped in white smoke were continuously rejected.
 
 *ノーマンの手甲から、白煙を纏ったカートリッジが連続でリジェクトされる。*
 
-At the same time, a barrage of axe and spear strikes were unleashed. The spearheads struck Elektra with such tremendous speed that they created afterimages.
+Simultaneously, a flurry of thrusts from the halberd was unleashed. The spear tip attacked Electra at a speed that created afterimages.
 
 *それと同時に、斧槍の連撃が繰り出されて行った。残像を生むほどの凄まじい速度で、槍先がエレクトラを襲う。*
 
 &nbsp;
 
-But Elektra, with her eyes narrowed and her head tilted back in amusement, was making light work of it with the five fingers of her right hand together and her long, blade-like red fingernails.
+However, Electra easily deflected them with her long red claws, which she gathered together like a blade, tilting her head with a playful smile.
 
 *だが、エレクトラはそれを楽しそうに目元を細め小首を傾げながら、右手の五指を纏め、刃の様に長く伸びた赤い爪で軽々と往なしていた。*
 
 &nbsp;
 
-Suddenly, Norman's thrusting stopped. On the spot, Norman spits out a mouthful of blood.
+Suddenly, Norman's thrust came to a halt. He coughed up blood, having been slashed diagonally across his back.
 
 *唐突にノーマンの繰り出していた突きが止まった。その場で、カハッ　とノーマンが口から血を吐き出す。*
 
-Before he knew it, the fingers of Elektra's left hand, standing close to Norman's, were thrusting into Norman's side.
+Electra had appeared beside Norman, her left hand's fingers piercing into his side.
 
 *いつの間にか、ノーマンに寄り添う様に立ったエレクトラの左手の指が、ノーマンの脇腹へ突き立っていた。*
 
-The fingertip claws are as long as his right hand, penetrating the mobile armor like paper, and all five claws are deeply embedded in Norman's body.
+The claws at her fingertips extended long like before, piercing through Norman's armored body as if it were paper, all five digging deep into him.
 
 *指先の爪は右手同様長く伸び、機動装甲を紙の様に貫き、五本ともがノーマンの身体に深々と刺さる。*
 
 &nbsp;
 
-Elektra pulled her claws out of Norman's body with a yick, moving them as if she was licking them off.
+Electra slowly withdrew her claws, dragging them along Norman's body as she did so.
 
 *エレクトラはその爪を、ノーマンの身体から舐る様に動かしながら、ユックリと引き抜いて行った。*
 
-Electra, gazing happily at Norman as he screamed, slid her red claws out of Norman's body.
+As she gazed at Norman, who was screaming in pain, she pulled her red claws free with a satisfying slickness.
 
 *叫び声を上げるノーマンを楽しそうに見つめながら、エレクトラは赤い爪をズルリとノーマンの身体から抜き取った。*
 
-Then he crawled his red tongue over his own long fingernails, which were covered with the Norman's blood, one by one.
+Then, she began to run her tongue along each long claw, stained with Norman's blood, savoring the taste.
 
 *そして、そのノーマンの血が纏わり着く自分の長い爪を、一本ずつ赤い舌を這わせて行った。*
 
-As she licks her nails as if she is sucking them, Elektra's eyes become more and more moist.
+With each lick, her eyes grew more and more glistening with delight.
 
 *しゃぶる様に自分の爪を舐める程に、エレクトラの瞳は見る見る潤るみを帯びていく。*
 
 &nbsp;
 
-Norman, who had moved away from Elektra, supported himself with his axe spear and barely managed to hold on.
+Norman, separated from Electra, struggled to support his crumbling body with the halberd, barely managing to hold on.
 
 *エレクトラから離れたノーマンは、グラリと崩れそうになる身体を斧槍で支え、辛うじて持ち堪えた。*
 
-The five claws that pierced the body had also deeply damaged the internal organs further inside.
+The five claws that had pierced him further damaged his internal organs.
 
 *体を貫いた5本の爪は、更に奥の内蔵をも深く傷つけていた。*
 
-In extreme pain, Norman again activates the medical kit around his waist to treat the wound.
+Enduring the intense pain, Norman activated the medical kit around his waist again to treat his wounds.
 
 *激痛に耐えノーマンは、再び腰回りの医療キットを起動させ、傷の治療を行う。*
 
-The treatment is completed immediately and the used-up cartridges are rejected, but they do not return to their exhausted strength.
+He quickly finished the treatment, but while the used cartridges were ejected, his exhausted stamina did not return.
 
 *直ぐに治療を終え、使い切られたカートリッジがリジェクトされるが、消耗した体力までは戻って来ない。*
 
@@ -601,509 +600,509 @@ The treatment is completed immediately and the used-up cartridges are rejected, 
 
 &nbsp;
 
-The healing techniques used by the priesthood are, in the first place, a form of regeneration that reads the subject's etheric information and recreates the subject in his or her original state.
+The healing techniques used by the clergy read the ether information of the target and recreate their original form, essentially a form of regeneration.
 
 *そもそも聖位職の使う癒しの術は、対象者のエーテル情報を読み取り、本来の在るべき姿を再現する云わば再生の術だ。*
 
-The results depend greatly on the skill of the user, but in any case, it is a high-level art that can only be used by those who serve the gods.
+The effectiveness of this depends greatly on the user's skill, but in any case, it is a high-level art that only those who serve the gods can use.
 
 *その成果は使用者の技量に依り大きく変わるが、何れにしても、神々に仕える者のみが使用出来る高位の御業だ。*
 
 &nbsp;
 
-On the other hand, there is also magic that can provide treatment among those handled by other magic users.
+On the other hand, among those who use other forms of magic, there are also healing spells available.
 
 *一方、その他の魔法を使う者達が扱う中にも、治療を行う事が出来る魔法も存在する。*
 
-Many of these healing magics are designed to manipulate body fluids, activate cells, and greatly increase one's own healing power, so in most cases, they cannot restore lost strength or blood.
+Many of these healing spells operate by manipulating bodily fluids and promoting cell activation, significantly enhancing the user's healing ability, but they often cannot restore lost stamina or blood.
 
 *それらの治療魔法の多くは、体内の体液操作や細胞の活性化を促し、自らの治癒力を大きく上げ治療にあたる物の為、往々にして、失った体力や血液までは戻せない事が殆どだ。*
 
 &nbsp;
 
-Currently, the recovery magic contained in the "magic storage case" loaded in the medical patch that is standard equipment in the "heavy mobile magic armor" is the latter. Therefore, even if wounds can be healed, lost blood and physical strength cannot be restored.
+Currently, the healing magic contained in the medical patch standardly equipped with the "Heavy Mobile Magic Armor" is of the latter type. Therefore, while it can heal wounds, it cannot restore lost blood or stamina.
 
 *現在、『重機動魔導装甲』に標準装備の、医療パッチに装填された『魔法蓄積筐体』に籠められた回復魔法は後者の物だ。故に、傷は治せても、失った血液、体力までは回復する事は叶わない。*
 
 &nbsp;
 
-Right now, Norman's wounds are barely healed. Even if he were to proceed with further healing, he would not have the strength to do so.
+Right now, Norman's wounds have finally closed. Even if he were to push for further healing, he wouldn't have the stamina to sustain it.
 
 *今ノーマンは、やっと傷が塞がった状態だ。これ以上治癒を進めたとしても体力が持たない。*
 
-It takes energy to heal wounds and to create blood. Now, with the awakening effect of recovery magic, he is barely able to stand on his feet.
+Healing wounds and regenerating lost blood both require stamina. Right now, he is barely standing due to the awakening effect of the healing magic.
 
 *傷を治すのにも、失われた血液を造血するのにも体力が必要だ。今は回復魔法が併せ持っている覚醒効果で、辛うじて立っている様な物なのだ。*
 
-Either way, the last of the recovery magic cartridges is the one you just used. There is no more left.
+In any case, the healing magic cartridge he just used is the last one. There is no way back.
 
 *どちらにしても、回復魔法のカートリッジは今使った物で最後だ。もう後が無い。*
 
 &nbsp;
 
-But even so, we can't back down from this.
+However, even so, he cannot retreat from here.
 
 *だが、それでも、此処より引く訳には行かない。*
 
-Norman readjusted his axe spear, his ready gaze blinking behind the lenses of his glasses, and pointed it, along with the spear point, at Elektra.
+Norman readied his halberd again, blinking his eyes with a determined gaze behind his glasses, directing the spear tip toward Electra.
 
 *ノーマンは斧槍を構え直し、覚悟を決めた眼差しをメガネのレンズの奥で瞬かせ、槍先と共にその先をエレクトラへと向けた。*
 
-Elektra notices the look in Norman's eyes and giggles, letting out an exhale and narrowing her eyes.
+Electra noticed Norman's gaze and smiled slyly, narrowing her eyes.
 
 *エレクトラは、そのノーマンの眼差しに気付き、吐息を漏らしながら目を細めてほくそ笑む。*
 
 &nbsp;
 
-However, there was one who put his hand on Norman's shoulder and stepped forward, determined to do so.
+But just as Norman had made up his mind, someone placed a hand on his shoulder and stepped forward.
 
 *しかし、その覚悟を決めたノーマンの肩に手を置き、前へ進み出る者が居た。*
 
 &nbsp;
 
-"Hmmm, you did well. I think you should get some rest."
+"Hmm, well done. I think you should take a little rest."
 
 *「ふむ、よくやったね。少し休むと良いと思うね」*
 
-Let's go, sir! This place is dangerous! Please leave quickly!
+"S-sensei! This place is dangerous! Please step back quickly!!"
 
 *「せ、先生！此処は危険です！早くお下がりください！！」*
 
 &nbsp;
 
-Seywasi held Norman back and took a step forward.
+Seiwashi stopped Norman, taking a step forward.
 
 *セイワシがノーマンを押しとどめ、前へと一歩踏み出した。*
 
 &nbsp;
 
-"Oh, no? You couldn't resist coming out, could you? Don't worry, we'll have you soon.
+"Oh? You couldn't hold back and came out, huh? Don't worry; I'll take care of you soon enough."
 
 *「あら？我慢できずに出てきてしまわれましたの？心配せずとも、直ぐに貴方も頂いて差し上げましてよ？」*
 
 &nbsp;
 
-Elektra happily says a few words to Seywash as she crawls her tongue under her own fingernails.
+Electra spoke to Seiwashi while licking her blood-stained fingers.
 
 *エレクトラが自らの爪に舌を這わせながら、楽しそうにセイワシに言葉をかける。*
 
 &nbsp;
 
-The trees in Irosio are filled with a high concentration of magic. They should be quite resistant to flames emitted by magic. Considering the size and skill of the magical power that burns them away so easily without even chanting, they must have originally been wizards of considerable ability.
+"Hmm, the trees of Iroshio are filled with high concentrations of magical power. Normally, they should have considerable resistance to flames unleashed by magic. However, considering the magnitude and skill of the magic that burned them so easily without even a chant, it seems the original caster was quite powerful."
 
 *「ふむ、イロシオの樹木は高濃度の魔力に満たされているからね。本来であれば魔法で放たれた炎に対しては相当な耐性を持って居る筈なんだがね。それをこれほど簡単に詠唱すらなしに焼き払う魔力の大きさ巧みさから考察すると元は相当な実力を持った魔法使いだったのだろうね」*
 
-"............ what's wrong with that?"
+"…What does that have to do with anything?"
 
 *「…………それが、どうか致しましたの？」*
 
 &nbsp;
 
-What does Elektra, whose expression has disappeared, have to do with Seywash's musings? She asked coldly, "What does that have to do with anything?
+In response to Seiwashi's analysis, Electra's expression turned cold as she questioned what relevance it had.
 
 *セイワシの考察に、表情を消したエレクトラが、それが何の関係があるのか？と冷ややかに問いかける。*
 
 &nbsp;
 
-I don't really care. I just thought that if you are going to use magic, it would be appropriate for me to be your partner.
+"Hmm, I don't intend to do anything in particular. I just thought it would be appropriate for me to face you if you are going to use magic."
 
 *「ふむ、特にどうともしないね。ただね、魔法を使うのであれば私がお相手するのが順当かと思っただけだね」*
 
-I'm sure you've been to ....... You seem to have a lot to say about magic, don't you? Shall I play with you directly at ...... with my magic? It is a learning experience to know the edge of the abyss, isn't it?"
+"…Is that so? It seems you have quite a bit to say about magic, huh? …Then, shall I play with my magic directly?"
 
 *「……左様で御座いますか……。魔法に関しては一家言あるとでも仰りたいようですわね？……では、あたくしの魔法で直に遊んで差し上げましょうか？深淵の端を知る事も、一つの学びになりますわよ？」*
 
 &nbsp;
 
-"Well, let's get on with the lecture, shall we?"
+"Hmm, then let the lecture begin."
 
 *「ふむ、では講義を始めて貰おうかね」*
 
 &nbsp;
 
-In response to Seywash's words, Elektra took out a leather sachet and scattered the fangs inside it around.
+In response to Seiwashi's words, Electra took out a small leather pouch and scattered the fangs contained within it around.
 
 *セイワシの言葉に答える様に、エレクトラは革の小袋を取出し、その中に詰まっている牙を周りにばら撒いた。*
 
 &nbsp;
 
-First, let's have a little fun with these kids, shall we? Ho ho ho ......"
+"First, let's play with these little ones for a bit, shall we? Hohoho..."
 
 *「まずは、この子達と少しばかり戯れて頂きましょうか？ほほほ……」*
 
 &nbsp;
 
-Electra's mouth turns up at the corners as she spreads her hands out wide as if she is trying to wipe them away, and she sneers.
+As she spread her arms wide, smiling, Electra laughed.
 
 *払う様に手を大きく広げながら、口角を吊り上げ、エレクトラは嗤い声を上げる。*
 
-Then Morris stepped forward.
+At that moment, Morris stepped forward.
 
 *そこへモリスが　ズイッ　と、間へに進み出た。*
 
 &nbsp;
 
-"Well, Mr. Morris, can you go?"
+"Hmm, can you handle it, Morris-kun?"
 
 *「ふむ、モリス君行けるかね？」*
 
-Atabojay!"
+"Of course!"
 
 *「あたぼーじゃい！」*
 
 &nbsp;
 
-Morris folded the edge of the shovel-like "earth-mover" in his hand into a hoe-like shape, and swung it down and stabbed it into the earth.
+Morris snapped the blade of the shovel-like "Earth Up" into a hoe shape and swung it down, driving it into the ground.
 
 *モリスが手に持っていた、スコップの様な『大地起こし』の刃先をカチリと折り、鍬の様な形に変えると、そのまま振り降ろし大地に突き刺した。*
 
-Then a crack ran from the point of penetration to the place where the fangs were spread, and the place caved in one after another.
+As he did, cracks spread from where it was stabbed to the area where the fangs were scattered, causing the ground to collapse one after another.
 
 *すると、突き刺した先から牙が撒かれた所まで亀裂が走り、その場所が次々と陥没して行った。*
 
 &nbsp;
 
-Electra sees this, raises her eyebrows suspiciously, and stops moving.
+Seeing this, Electra raised an eyebrow in confusion, stopping her movements.
 
 *それを見たエレクトラが怪訝に眉を寄せ、動きを止める。*
 
 &nbsp;
 
-You seem to be wondering. The magic is a summoning magic that uses the dragon's fangs as a catalyst to summon magic from the earth's veins to be activated by the magician. The magician uses only a small amount of magic power to activate it, making it a very economical magic.
+"Hmm, you look puzzled. That magic is a summoning spell that utilizes the magical power absorbed from the ley lines, using dragon fangs as a catalyst. The caster uses only a small amount of magical power for activation, making it incredibly economical."
 
 *「ふむ、不思議そうな顔だね。その魔法は竜の牙を触媒に地脈から吸い上げた魔力を利用して術者が起動式を用いる召喚魔法だね。術者は発動に使う僅かな魔力のみしか使わないから実に経済的この上ない魔法だね」*
 
-That's where this "Earth Awakening" comes in! It can also manipulate the flow of magic in the earth. Too bad! Now the magic around the catalyst is karakketsu! Ha ha ha ha!
+"And that's where this 'Earth Up' comes in! This can also manipulate the flow of magical power underground. Too bad! The magical power around that catalyst is completely empty right now!! Gahaha!"
 
 *「そこでこの『大地起こし』じゃ！これは地中の魔力の流れも操作出来るんじゃよ。残念じゃったな！今その触媒の周りの魔力はカラッケツじゃい！！がははは！」*
 
-The magic of the earth's veins is useless without the magic of the magician's veins, since there is no burden of magic on the magician.
+"Hmm, since there's no magical burden on the caster, if there's no ley line magic, it can't be used."
 
 *「ふむ、術者の魔力負担が無い分、地脈の魔力が無ければ使い様が無いからね」*
 
 &nbsp;
 
-Elektra narrows her eyes and looks coldly at Seywash.
+Electra narrowed her eyes, staring coldly at Seiwashi.
 
 *エレクトラが目を細め、セイワシを冷たい眼差しで見つめる。*
 
 &nbsp;
 
-I'm sure you can come to that. ....... But you don't think you've sealed my hand with that, do you?
+"So, that's how it is… But you don't think you've sealed my hands with that, do you?"
 
 *「そう来られますか……。ですが、それであたくしの手を封じたなどと、思ってはおりませんわよね？」*
 
 &nbsp;
 
-As she said this, Electra began to spin the flame in her lightly raised right hand.
+As she said this, Electra lightly raised her right hand, starting to swirl flames within it.
 
 *そう言いながら、エレクトラが軽く上げた右手の中で炎を回し始めた。*
 
 &nbsp;
 
-"Well, of course," he said, "but I wouldn't recommend wasteful behavior. But I wouldn't recommend wasting your time.
+"Hmm, of course not. But I wouldn't recommend unnecessary actions."
 
 *「ふむ、当然だね。しかし無駄な行為は余りお勧めはしないね」*
 
-Hush now!
+"Speak as you wish!!"
 
 *「ほざきなさいませ！！」*
 
 &nbsp;
 
-As soon as Elektra shouted this, he shook off his hand vigorously and threw the flame in his palm.
+As Electra shouted, she swung her hand vigorously, throwing the flames from her palm toward Seiwashi.
 
 *エレクトラがそう叫ぶと同時に、勢いよく手を振り払い、掌の中の炎を投げ付けた。*
 
-The flames become a flaming bullet, which is directed at the seiwaashi at high speed with a booming sound.
+The flames became fireballs, rushing toward Seiwashi with a loud roar.
 
 *炎は炎弾となり、セイワシに向け豪と云う音と共に高速で迫る。*
 
 &nbsp;
 
-However, before the flaming bullet could make contact with the seiwaashi, it shone brightly in the air, and then disappeared as if it had burned up.
+However, before the fireball could touch Seiwashi, it suddenly brightened in mid-air and then extinguished as if it had burned out.
 
 *しかし、炎弾はセイワシに接触する前に、空中で一際輝きを増した直後、燃え尽きたかの様に立ち消えてしまう。*
 
-When Elektra sees this, her eyes widen.
+Electra's eyes widened in shock.
 
 *それを見たエレクトラが目を見張る。*
 
 &nbsp;
 
-"Hmmm, the magic concentration camp can be used in this way as well."
+"Hmm, the 'Magic Accumulation Array' can be used in this way too."
 
 *「ふむ、『魔力集積陣』はこんな使い方も出来てね」*
 
 &nbsp;
 
-At the foot of the sardine, a thin, brass-colored stick-like object surrounded the trench and was long enough to sever the distance between it and Elektra.
+At Seiwashi's feet, a thin brass-colored stick-like object had formed a long circle around them, separating Electra from them.
 
 *そう言うセイワシの足元には、真鍮色をした細いスティック状の物が、塹壕を囲う様、エレクトラとの間を断絶する様に長く取り巻いていた。*
 
 &nbsp;
 
-"This is ......, when did this ...... happen?"
+"W-what is this… When did this happen…"
 
 *「こ、これは……、いつの間にこんな……」*
 
 &nbsp;
 
-Norman pushed his glasses up with his right hand as he leaned his weight on the axe spear that stood to his left, staring at the shimmering brass-colored line at the Seiwaashi's feet and muttering in surprise.
+Norman, leaning on his halberd to the left, pushed up his glasses with his right hand, staring in astonishment at the shimmering brass line at Seiwashi's feet.
 
 *ノーマンが左に立てた斧槍に体重を預けながら、右手でメガネを押し上げ、セイワシの足元で煌めく真鍮色のラインを見詰め驚いたように呟いた。*
 
 &nbsp;
 
-"Hmmm, thanks to your spearman's attention, I guess."
+"Hmm, thanks to the spear boy distracting her."
 
 *「ふむ、槍君がソレの気を引いていてくれたおかげだね」*
 
 &nbsp;
 
-Saying this, Seywash tossed several adjuster cases in his hands.
+Saying this, Seiwashi threw several adjuster cases he had been holding.
 
 *そう言うとセイワシは、手に持っていた幾つものアジャスターケースを放り投げた。*
 
-The empty case rolls straight to the ground.
+The empty cases rolled on the ground.
 
 *空になっているケースは、そのまま地面に転がって行く。*
 
 &nbsp;
 
-The "magic concentration zone" is now taking in Irosio's enormous amount of magic power and at the same time, it is also blowing up the concentrated magic power on this spot. This has created a magical barrier that is so strong that even half-hearted magic will be unable to overcome it. I don't mean to say this, but I think this is quite powerful.
+"Hmm, now the 'Magic Accumulation Array' is absorbing the vast magical power of Iroshio while simultaneously releasing the concentrated magical power here. As a result, this place is now in a state where it has a magical barrier strong enough to withstand ordinary magic. I must say, this is quite powerful."
 
 *「ふむ、今『魔力集積陣』はイロシオの膨大な魔力を取り込むのと同時にこの場でその集束された魔力を吹き上げているんだね。それにより今この場は生半可な魔法では打ち消される程の魔力障壁が張られているのと同じ状態になっているんだね。言っては何だがコレはかなり強力だと思うね」*
 
 &nbsp;
 
-I don't think you can pull it off with half a magic trick," says Seywash.
+Seiwashi remarked that it would be impossible to break through with ordinary magic.
 
 *半端な魔法では抜く事は出来ないと思うね　とセイワシは言う。*
 
-Hearing this, Elektra wrinkled her brow and squinted her eyes in abhorrence.
+Hearing this, Electra furrowed her brow, narrowing her eyes at Seiwashi.
 
 *それを聞いていたエレクトラは、忌々しげに眉間に皺を寄せ目を細めた。*
 
 &nbsp;
 
-"Are you ...... left ......? If so, why don't you stroke him directly?"
+"…Is that so? Then, wouldn't it be fine to just stroke it directly?"
 
 *「……左様で御座いますか……。でしたら、直接撫でて差し上げれば宜しいのでは？」*
 
 &nbsp;
 
-Elektra said, extending the red fingernail of her fifth finger to the length of a small knife at once and taking a lick of the nail of her index finger, she looked at Seiwaashi with narrowed eyes.
+As Electra said this, she extended her fingers, making them knife-like in length, licking her index finger as she cast a sidelong glance at Seiwashi.
 
 *エレクトラはそう言うと、五指の赤い爪を一気に小刀程の長さに伸ばし、その人差し指の爪を一舐めしながら、セイワシを細めた目で流し見た。*
 
-The figure disappears from the place as if dissolving in the darkness.
+Then, she smoothly disappeared from that spot, as if melting into the darkness.
 
 *そのままユラリと、闇に溶ける様にその場所から姿を消す。*
 
-However, almost as soon as Elektra disappeared, the sound of something exploding echoed through the air.
+However, just as Electra vanished, a loud crack echoed.
 
 *だが、エレクトラの姿が消えたのとほぼ同時に、バチリッ　と何かが爆ぜた音が響き渡る。*
 
 &nbsp;
 
-Ack?
+"Ugh?!"
 
 *「ぁくッ？！」*
 
 &nbsp;
 
-There was Elektra, who let out a small scream and fell backward as if something had knocked her off her feet.
+There was Electra, letting out a small scream as she was pushed back, as if she had been struck by something.
 
 *そこには小さく悲鳴を上げ、何かに弾き飛ばされた様に後方に下がるエレクトラが居た。*
 
 &nbsp;
 
-"...... what? ...... what the hell have you done?
+"What… what did you… What are you doing?!!!"
 
 *「……な、何を？……貴方、一体、一体何をなさいましたの？！！！」*
 
 &nbsp;
 
-Elektra raised her eyebrows and looked at Seywash sharply, as if in alarm, and then questioned him hoarsely, holding his right hand down.
+Electra furrowed her brow, sending a sharp glare at Seiwashi as she pressed her right hand against her body, raising her voice to question him.
 
 *エレクトラが眉根を寄せ、警戒する様にセイワシに鋭い目線を送り、右手を抑えながら声を荒げて問い質した。*
 
-The fingertips of his right hand were smoking white smoke as if he had been burned.
+The fingertips of her right hand were sizzling, emitting wisps of white smoke as if they had been burned.
 
 *その右手の指先は、焼かれた様にシュウシュウと白い煙を上げていた。*
 
 &nbsp;
 
-I don't recommend that you carelessly disembodied and enter the place," he said. As I said before. As I said before, there is a burst of converged magical energy in the area right now. It's a combination technique with the "earth awakening," which can manipulate the earth's veins. It is a combination technique with the "earth raising" that can manipulate the veins of the earth. That is the same as exposing the flow of the earth's veins, so to speak.
+"Hmm, I wouldn't recommend carelessly becoming incorporeal and invading there. As I said earlier, that place is currently in a state where concentrated magical power is being released. Well, it's a combination with 'Earth Up' that can manipulate the ley lines. Since it draws out the powerful magical power of Iroshio and circulates it, it's essentially exposing the flow of the ley lines."
 
 *「ふむ、不用意に非実体化して其処に侵入する事はお勧めしないね。さっきも言ったけどね。今そこは収束された魔力が吹き上がっている状態なんだね。まあ地脈を操作出来る『大地起こし』との合わせ技であるのだけどね。大地から強大なイロシオの魔力を吸い上げ回している訳だからね。其れは謂わば地脈の流れを剥き出しにしているのと等しいんだね」*
 
 &nbsp;
 
-Seywash and Morris grinned and clenched their fists against each other in a trickle, the corners of their mouths lifting.
+Seiwashi and Morris smirked, lightly bumping their fists together.
 
 *セイワシとモリスがニヤリと口角を上げながら、コツリと互いの拳を合わせた。*
 
-Elektra gave it a silent, cold stare.
+Electra silently directed a cold glare at them.
 
 *それをエレクトラが、無言で冷たい眼差しを向けていた。*
 
 &nbsp;
 
-Astral beings like yourselves cannot cross this current. If you force yourselves into the flow, your manas will be trapped in the torrent of the earth's veins and will dissipate to the end of causality without returning to the three realms. If it is disembodied, it is even more so. Well, if you want to try it, I say be my guest.
+"Hmm, beings like you who are astral in nature cannot cross this flow. If you force yourself into it, your mana will be trapped in the ley line's torrent, and you will dissipate into the void without returning to the three realms. Especially if you are incorporeal. Well, feel free to test it if you wish."
 
 *「ふむ、キミ達の様なアストラル主体の存在はこの流れを越える事は出来ないからね。無理に流れに身を入れればマナスが地脈の奔流に囚われ三界に還る事無く因果の果てに霧散する事になるだろうね。非実体化していれば尚更だね。まあ試すならご自由にと云う所だね」*
 
-".................."
+"…………"
 
 *「………………」*
 
 &nbsp;
 
-Elektra silently listened to Seywasi's words and looked around the area where the barrier was put up without caution.
+Electra listened silently to Seiwashi's words, scanning the area, which was guarded by the barrier.
 
 *エレクトラが無言でセイワシの言葉に耳を傾け、油断なく障壁が張られている周りを見回した。*
 
 &nbsp;
 
-"...... And then what? What are you going to do after that? It seems to me that you have already reached an impasse.
+"…So? What do you intend to do after this? It seems to me that you are already at an impasse…"
 
 *「……それで？その後どうなさるおつもりですの？あたくしには、既に手詰まりの御様子にしか伺えませんが？」*
 
 &nbsp;
 
-Electra, who had returned her eyes to Seywash, said this with a funny giggle as she narrowed her eyes and put her hand over her mouth.
+Returning her gaze to Seiwashi, Electra narrowed her eyes, placing her hand to her mouth as she chuckled softly.
 
 *目線をセイワシに戻したエレクトラが、目を細め口元に手を当てながら、おかしそうにクスクスと嗤いながらそう言った。*
 
 &nbsp;
 
-"This is how it's done!"
+"This is how it goes!!"
 
 *「こうするんだのぉぉ！！」*
 
 &nbsp;
 
-In Nosoli's palm was a small torch-like object that blew sparks.
+In the palm of Nosori, who shouted that, was a small object resembling a torch, spewing sparks.
 
 *そう叫んだノソリの掌の中には、火花を吹き上げる小さなトーチの様な物が収まっていた。*
 
-In front of his eyes, he wears black, light-shielding glasses.
+He was also wearing dark black sunglasses over his eyes.
 
 *そしてその目元には、まっ黒な遮光眼鏡が着けられている。*
 
-Furthermore, I noticed that everyone in the room was wearing dark glasses as well.
+Moreover, it became apparent that everyone present was wearing similar black glasses as well.
 
 *更に、気付けばその場に居る全員が、同じ様に黒い眼鏡を着けていた。*
 
 &nbsp;
 
-As soon as Elektra's eyes widened in surprise, Nosoli threw the torch in his hand toward the ground with all his might.
+As Electra's eyes widened in surprise, Nosori threw the torch to the ground with all his might.
 
 *エレクトラが驚いた様に目を見開いたのと同時に、ノソリは手に持っていたトーチを地面に向かい思い切り投げ付けた。*
 
-The torch bursts into flames with a bash sound, enveloping the entire area in an intense flash of light.
+With a loud bang, the torch exploded, enveloping the area in a blinding flash of light.
 
 *トーチが　バッシュ　と云う破裂音を響かせ弾け、辺り一面を強烈な閃光で包んで行く。*
 
 &nbsp;
 
-I'm sorry! What is it? What is this? ...... Kooooooooooooooo!!!"
+"W-what is this?!!… Ugh!!"
 
 *「な！なんですの？これは？！！……くぅっーーー！！」*
 
 &nbsp;
 
-Elektra guards her face with her arms to avoid the light that takes away her vision, but the intense flashes of light seem to pierce even that, filling Elektra's world with white.
+Electra shielded her face with her arms to avoid the blinding light, but the intense glare pierced through even that, filling her world with white.
 
 *エレクトラが視界を奪う光を避ける為、両腕で顔をガードするが、激しい閃光はそれすらも貫く様に、エレクトラの世界を白で埋めて行く。*
 
-By the time Elektra's vision returned, those who should have been there had already disappeared.
+By the time Electra's vision returned, the people who had been there were already gone.
 
 *やがてエレクトラの視界が戻る頃には、既にそこに居た筈の者達の姿は消えていた。*
 
 &nbsp;
 
-"............, what a surprise, ......."
+"……What on earth just happened…"
 
 *「…………全く、何と云う事でございましょう……」*
 
 &nbsp;
 
-Electra squints and blinks as if to check her eyesight, and looks around the area, but there is already no sign of anything in the vicinity.
+Narrowing her eyes to check her vision, Electra blinked and slowly scanned the area, but there was no sign of anyone nearby.
 
 *視力を確かめる様に目を細め、瞬かせ、辺りをユックリとエレクトラが見回すが、付近には既に何の気配も無い。*
 
 &nbsp;
 
-"Hmm, you mean in there. ......"
+"Hmph, so it was within that…"
 
 *「ふん、その中と云う事ですか……」*
 
 &nbsp;
 
-Electra muttered as if looking through the wall of the trench.
+Electra murmured, directing her gaze toward the trench wall, as if she could see through it.
 
 *塹壕の壁に視線を向け、見透かしたようにエレクトラが呟いた。*
 
-Electra puts her hands on her hips and exhales deeply and quietly, letting out a sigh as her shoulders drop from their cowering position.
+Then, placing her hands on her hips, she let out a deep, quiet sigh, dropping her shoulders slightly.
 
 *やがてエレクトラは腰に手を当て、一度竦めた肩を落としながら、溜息を零す様に深く静かに息を吐く。*
 
 &nbsp;
 
-I can't help it. ...... I was originally going to surround you so that you would not run away. ...... Well, good, go hide for now. This is such an absurd barrier, it won't last until the sun rises anyway, will it? There is no escape anyway. ......
+"It can't be helped… Originally, I intended to surround everyone here so they wouldn't escape… Well, it's fine; for now, stay hidden. This reckless barrier won't last until dawn anyway. In any case, there is no escape…"
 
 *「しょうがありませんわね……。元々あたくしは、此処の皆様がお逃げにならぬ様に、囲うつもりでおりましたから……。まあ、良いですわ、今は隠れておいでなさい。これだけ無茶な障壁、どうせ朝日が昇るまで持ちませんでしょ？いずれにせよ逃げ場は御座いませんし……」*
 
 &nbsp;
 
-Elektra narrowed her eyes and stroked her mouth with her finger. Her fingertips, which should have been burnt, had already returned to their beautiful white shape.
+Electra narrowed her eyes, stroking her mouth with her finger. The fingers that should have been burned had already returned to a beautiful white shape.
 
 *エレクトラは目を細め、口元を指で撫でる。焼けた筈の指先は、既に白く美しい形に戻っていた。*
 
-Then he snaps his fingers next to his face.
+Then she snapped her fingers beside her face.
 
 *そしてその指を顔の横でパチリと鳴らす。*
 
-Then, small flames lit up on both sides of the ground where Electra stood.
+Suddenly, small flames lit up on either side of Electra.
 
 *すると、エレクトラの立つ地の両脇に、小さな炎が灯った。*
 
 &nbsp;
 
-The flames, which flicker and dance, are as large as a man's fist and powerfully illuminate Electra's feet.
+The flames danced and flickered, strong enough to illuminate Electra's feet, about the size of a human fist.
 
 *揺れる様に燃え踊る炎は、人の拳ほどの大きで力強くエレクトラの足元を照らし出す。*
 
-As if conducting a band, she gracefully fluttered her hands out, and flames were created and spread around Elektra one after another.
+As if conducting an orchestra, she elegantly spread her arms, and flames began to emerge around Electra in succession.
 
 *その場で楽団の指揮でもする様に優雅にフワリと両手を広げれば、炎が次々とエレクトラを中心に生み出され広がって行った。*
 
-Soon, the shimmering lights were surrounding the trench and shook powerfully, as if they did not want anything to be missed.
+Eventually, they lined up to encircle the trench, flickering powerfully as if to say they would miss nothing.
 
 *やがてソレは塹壕を囲むように連なり、何物も見逃すまいとでも云う様に力強い揺らめきを放つ。*
 
 &nbsp;
 
-Elektra gazes at the flames with satisfaction, then brings her white fingers up to her mouth again, where she runs her red tongue over them.
+Electra gazed at the flames with satisfaction, bringing her white fingers back to her mouth and licking them again.
 
 *エレクトラはその炎たちを満足げに見つめ、再び白い指を口元に近付け、そこに赤い舌を這わせて行く。*
 
 &nbsp;
 
-"...... the next time I see you, I'm going to squeeze everything out of you, okay? Looking forward to it?"
+"…When we meet next time, I will squeeze everything out of you, you know? So look forward to it."
 
 *「……次にお逢いした時は、貴方の全てを絞り抜いて差し上げますわよ？楽しみにしていらして？」*
 
 &nbsp;
 
-And Elektra laughed aloud.
+Then Electra laughed aloud.
 
 *そしてエレクトラが声を上げて嗤う。*
 
-Soon, its body blurred as it disappeared into the darkness of the forest, and only the echoes of its laugh echoed through the darkness of the trees.
+Eventually, her body flickered and disappeared into the forest's darkness, leaving only her laughter echoing between the trees.
 
 *やがてその身体がブレる様に森の闇に消え、嗤い声の響きだけが木々の暗がりの間に響いていた。*
 
@@ -1117,199 +1116,199 @@ Soon, its body blurred as it disappeared into the darkness of the forest, and on
 
 &nbsp;
 
-Hmmm, something gives me the chills."
+"Hmm, I feel a chill."
 
 *「ふむ、何か寒気を感じるね」*
 
-"Ahhh, that's...I know...somehow...that...that...is...definitely...a rabukkoru. "Oh, that's... that's... that's... that's... that's... that's... that's... definitely... a love corral.
+"Ah, I can somewhat sense that. It's definitely a love call."
 
 *「ああーー、それはーー、なんとなくー分りますーーー。まちがいなくーらぶこーるですねーーー」*
 
 &nbsp;
 
-Seywash hugged his shoulder and shook himself with a burr.
+Seiwashi hugged his shoulders, shivering slightly.
 
 *セイワシが自分の肩を抱き、ブルリと身体を震わせた。*
 
 &nbsp;
 
-"Oh no, that was a close one."
+"Phew, that was a close one."
 
 *「いや～、危ない所だったのぉ」*
 
-Yes, indeed, it was a close call.
+"Indeed, it was a hair's breadth away."
 
 *「全くじゃ、危機一髪じゃったな」*
 
-"Well, I'm glad they let you off the hook for now."
+"Hmm, for now, it seems we were spared."
 
 *「ふむ、取敢えずは見逃してくれた様で助かったね」*
 
 &nbsp;
 
-Sitting in the trenches, the three doctors breathed a sigh of relief.
+Sitting in the trench, the three doctors let out sighs of relief.
 
 *塹壕の中で座り込み、三博士は安堵の息を付いていた。*
 
-However, when Norman heard this, he took off the light-shielding glasses he had been made to wear, and while adjusting his own glasses, which had shifted, he shouted out in surprise.
+However, hearing this, Norman took off the sunglasses he had been wearing and, adjusting his glasses, exclaimed in surprise.
 
 *だが、それを聞いたノーマンが装着させられていた遮光グラスを外し、ずれた自分のメガネを直しながら驚いた様に声を上げた。*
 
 &nbsp;
 
-What are you talking about? It was the teachers who dominated him from start to finish!"
+"What are you talking about?! It was the teachers who were overwhelming her the whole time!!"
 
 *「何を仰っているんですか？！始終奴を圧倒していたのは先生方ではありませんか！！」*
 
 &nbsp;
 
-Hearing this, Morris replied with a sigh.
+Morris sighed and replied.
 
 *それを聞いたモリスが、溜息を漏らしながら答えた。*
 
 &nbsp;
 
-No, that was just in the nick of time. What do you say, Mr. Seywash?"
+"Well, that was cutting it close. Right, Seiwashi-kun?"
 
 *「いやぁ、あれはギリギリじゃったぞ。なあセイワシ君？」*
 
-If they had used the "Great Flame Stream" that was shot at us a little while ago, the barrier would have been removed without a doubt. If they had used that, we would have had no choice but to be extinguished. It's a good thing they wanted to capture us.
+"Hmm, if that 'Great Firestorm' had been used earlier, the barrier would have definitely been breached. If that had happened, we would have been turned to ash. Fortunately, they seemed to want to capture us."
 
 *「ふむ、ちょっと前に撃たれた『大火焔流』でも使われて居たら間違い無く障壁は抜かれていたからね。アレを使われては消し炭になるしかないからね。アチラが我々を捕えたがっていたのが幸いしたね」*
 
-The fangs that were scattered would have been useless if they had been scattered away from the area of effect of the "earth waker"!
+"If those fangs that were scattered had been outside the range of 'Earth Up,' it would have been over!"
 
 *「あのバラ撒いとった牙も、『大地起こし』の効果範囲から離れて撒かれいたらそれまでじゃったしな！」*
 
-Hm, and the barrier would have been good for another 10 minutes," he said. Either way, it was a dead end.
+"Hmm, and more importantly, that barrier was only good for about ten more minutes. Either way, we were in a tight spot."
 
 *「ふむ、それになによりあの障壁は後10分も維持できれば良い方だったからね。どちらにしても詰んでいた訳だね」*
 
-"Oh, no. ......"
+"Is that so…"
 
 *「そ、そんな……」*
 
 &nbsp;
 
-The last one I used, the 'Reishin Flash Bullet,' worked somehow! I brought it to blind the demonic beasts. I brought it as a distraction for demonic beasts, but it seems to work well for astral demons too! Whoo-hoo-hoo!
+"Fortunately, the 'Spirit Shock Flash Bomb' I used at the end worked somehow! I brought it as a distraction for magical beasts, and it seems to work well on astral beings too! Uhyohyo!"
 
 *「最後に儂がかました『霊震閃光弾』も何とか効いたしのぉ！魔獣用の目くらましとして持って来たんだがのぉ。アストラル主体の魔物にも良く効くようだのぉ！うひょひょひょ」*
 
 &nbsp;
 
-But it worked because it caught me off guard," Nosoli said, laughing.
+Of course, it only worked because it caught them off guard, Nosori laughed.
 
 *尤も、不意を突けたから効いのだが　と、言いながらノソリが笑う。*
 
 &nbsp;
 
-Well, either way, I think it's best to do what you can now. Come here, Joseline, because this is a job for you.
+"Well then, in any case, it would be best to do what can be done now. Joseline, come here; this is a job suited for you."
 
 *「ふむ、どちらにしても今出来る事をやってしまうのが良いだろうね。ジョスリーヌ君此処へ来たまえコレは君向きの仕事だからね」*
 
-"Yes? I'm facing... work...?"
+"Yes? A job suited for me?"
 
 *「はいー？わたしーー向きのー、お仕事ーですかーーー？」*
 
-"Well, Mr. Spear, will you lie down here?"
+"Indeed, so Spear, why don't you lie down here for a moment?"
 
 *「ふむ、では槍君、君は此処で横になってくれるかね」*
 
-"Who is it? Yourself?"
+"Huh? Me?"
 
 *「は？自分ですか？」*
 
-I think your wound is only closed, but it is far from healed. You can barely stand up, can you?
+"Yes, your injury is merely closed up; it is far from healed. You must be struggling to stand, am I wrong?"
 
 *「ふむ、君の怪我は傷が塞がっているだけで完治には程遠い筈だね。立っているのもやっとだと思うんだが違うかね？」*
 
-"...... is, no, ...... is, yes, indeed it is. And, but ......!"
+"...No, that is correct. But still..."
 
 *「……は、いえ……は、はい、確かにそうです。で、ですが……！」*
 
-'Hmmm, just go ahead and lie down with your tots. And you, Joseline. It's your knight, isn't it? I think it would be best if you treated it yourself."
+"Good, just lie down already. And Joseline, he is your knight, right? I think it would be good for you to heal him yourself."
 
 *「ふむ、いいからトットと横になるといいね。で、ジョスリーヌ君。君のナイトなのだろう？君が自ら治療してあげると良いと思うね」*
 
-What? Sensei, I have been saying for a while now that I have no magic power..."
+"Huh? Sensei, I've been saying that I have no magical power for a while now."
 
 *「はーー？センセー、わたしはーさっきからずっとー、魔力が無いとーー言っているじゃありませんかーー」*
 
-Hmmm, that's why I got you this."
+"Exactly, that's why I prepared this for you."
 
 *「ふむ、だからこれを用意して上げた訳だね」*
 
 &nbsp;
 
-What is this? What is this? Why are you putting on the bracelet? Moreover, this bracelet has a chain attached to it! This makes me look like a captured person!
+"What... what is this?! Why am I being made to wear this bracelet?! And it's got a chain attached to it! It feels like I'm some sort of prisoner!"
 
 *「な、なんですかーー？！これはーーー？！なんでー腕輪を嵌めるんですかーーー？！し、しかもーこの腕輪ー、鎖がー付いてるじゃーないですかー！！これじゃーまるでー捕まった人ーみたいじゃーないですかーーー！！」*
 
-It's just a small chain. It's not worth fussing over."
+"It's just a thin little chain, not something to fuss about."
 
 *「鎖っちゅうても、細っこいチェーンじゃな。騒ぐ程でもないじゃろ」*
 
-The chain is connected to the "magic concentration circle. The chain is connected to a "magic concentration zone," which supplies the magic power according to your magic power, so you can concentrate on your recovery work as much as you want. There are a lot of injured people here, so I hope you can get on with it.
+"Hmm, that chain is connected to a 'magic power accumulation array.' It will supply magic power according to your needs, allowing you to focus solely on healing. There are many injured people here, so I hope you can get to work quickly."
 
 *「ふむ、そのチェーンは『魔力集積陣』に繋がっているんだね。君の魔力に合わせて供給するから君は思う存分回復作業に専念できる訳だね。此処には大勢の怪我人が居るのだからドンドン進めて行って欲しいね」*
 
-Huh? Eh? Wait, wait, please! By any chance... am I... stuck... here...?
+"Wait, wait! Are you saying that I can't move from here?!"
 
 *「え？えーーー？ちょ、ちょっとーー、待ってーくださいーー！ひょっとしてーわたしーー、ココからー動けないんですかーーー？！」*
 
-I'm not going to rest until there are no more people injured enough to move. I should think there would be no time to rest, at least until there are no more people injured to the point of immobility."
+"Of course. You should assume there won't be any time to rest until there are no more people here with serious injuries."
 
 *「ふむ、当然だね。少なくとも動けない程の怪我を負っている人が居なくなるまでは休む時間は無いと思った方が良いね」*
 
-Hi! Huheeeeeeeee? There are more than 20 people who have been seriously injured, aren't there?
+"Wha?! Huh?! There are over 20 seriously injured people, you know?!"
 
 *「ひ！ふひぇーーー？！！大怪我をーしてる方ってーー、20人以上ーーいますよねーーー？」*
 
-There is no one left in the priesthood who specializes in this field. There's a limit to how much magic the magicians can do, isn't there? The number of medical patches is also limited! You have no choice but to do your best, my assistant!
+"The dedicated healers are gone. The magic users have their limits with magic power! There are also limits to the number of medical patches available! It’s up to you, Assistant, to do your best!"
 
 *「専門の聖位職が居なくなったんじゃ。魔法職の連中がやるにも魔力に限界があるじゃろ？！医療パッチの数にも限りがある！ここは助手君が頑張るしか無いじゃろ！！」*
 
 &nbsp;
 
-Oh, no! I haven't slept for a long time! I've been up all night...? Does that mean you can't rest at all?
+“W-What?! I haven’t slept at all! I’ve been up all night! Are you saying I can’t rest at all?!”
 
 *「そ、そんなーー！わ、わたしーー、ずっとー寝てませんよーーー？！徹夜ーですよーーー？全然ー休めないーって事ですかーーー？！」*
 
-It's like that! It's the same for everyone here! If you think you're the only one who can rest, you're wrong!
+“Everyone here is in the same boat! It’d be a big mistake to think only you get to rest!”
 
 *「そんなもん！此処に居る全員同じだからのぉ！助手君だけ休めると思ったら大間違いだのぉ！！」*
 
-The three of us are stuck here because we are adjusting the flow of magic in the "magic concentration zone" to Joseline's magical quality. You will continue to recover there.
+“Hmph, the three of us will be stuck here adjusting the flow of magic from the 'magic power accumulation array' to match your magic quality. You'll be the one doing the healing from there.”
 
 *「ふむ、我々3人は『魔力集積陣』の魔力流をジョスリーヌ君の魔力質に合わせる調整で此処から動けないのでね。君にはそこで回復し続けて貰う事になるね」*
 
-In general, the magic to restore physical strength in order to improve healing power consumes more magic power than it is effective, and is not very user-friendly!
+“Besides, the 'health recovery' magic used to enhance healing is high in magic consumption compared to its effectiveness, making it quite inconvenient!”
 
 *「大体にしてー、治癒力をー高めるためのー、『体力回復』の魔法はーー、効果に比べてー消費魔力がー高くーー、使い勝手がー悪いんですよーー！」*
 
-That's why we supply the magic power! The assistant can use all the magic he wants and do his job until he collapses!"
+“That’s why we’re supplying the magic power! You can use it freely without worrying about your own magic, just do your job until you collapse!”
 
 *「その為に儂らが魔力供給するんじゃろが！助手君は魔力を気にせず使いまくって、ぶっ倒れるまで自分の仕事をすれば良いんじゃ！」*
 
-I don't have time to play with you, my assistant!
+“There’s no time for you to play around!”
 
 *「助手君に、遊んでおる暇などないからのぉ！」*
 
-"Well, I'm going to need you to work hard."
+“Let’s make sure you work hard, shall we?”
 
 *「ふむ、キリキリ働いて貰おうかね」*
 
-"Oh, teachers...you're such bastards!"
+“Y-You’re all such heartless people!!”
 
 *「せ、先生方のーー、人でなしーーーーーーー！！」*
 
 &nbsp;
 
-A brass-colored chain of lights illuminated the area in the dimly lit trench.
+In the dim trench, the brass-colored chains glimmered, illuminating the surroundings.
 
 *うす暗かった塹壕の中に、真鍮色のチェーンが光を帯び辺りを照らす。*
 
-Joseline's plaintive cries only echoed through the air.
+Within that, Joslyn's pained cries echoed.
 
 *その中を、ジョスリーヌの悲痛な叫びが只響き渡って行った。*
 
@@ -1331,101 +1330,101 @@ Joseline's plaintive cries only echoed through the air.
 
 &nbsp;
 
-Kuhi, kuhi! Kihihi, yihi! Haa! Aahi!
+"Kuh, kuh! Kihi, heehee! Hah! Ahh!!"
 
 *「くく、くひ！きひひ、ぃひひっ！はぅ！ぁひ！！」*
 
 &nbsp;
 
-A blade flashes through the darkness of the forest.
+The darkness of the forest split as a blade flashed.
 
 *森の闇を裂き刃が閃く。*
 
-The machete-like slash of the great sword, delivered in rapid succession, one flash, then two, then three, is sharp and heavy.
+With one, two, three swift strikes, the heavy blows of a machete-like great sword were sharp and heavy.
 
 *一閃、二閃、三閃と、矢継ぎ早に繰り出される鉈の様な大剣の斬撃は、鋭く重い。*
 
-Kyle Irvine, however, was able to overcome this challenge by using his nightsword, which was covered with blue sanctuary, to hit them one after another.
+Yet, Kyle Arvine deflected them one after another with his knight sword enveloped in blue holy energy.
 
 *だがそれを、カイル・アーバインが青い聖気を纏わせたナイトソードで次々と弾き、凌いで行く。*
 
 &nbsp;
 
-And a single blue sword flash that Kyle draws in the darkness.
+Then, a blue sword flash traced through the darkness.
 
 *そして、カイルが闇に描く一筋の青い剣閃。*
 
-The brown woman who avoids it jumps back.
+The brown-skinned woman, Joel, jumped back to avoid it.
 
 *それを避ける褐色の女が、後ろに飛び退く。*
 
-But blood splashed vigorously from the wound on his brown flank.
+However, blood splattered vigorously from the wounds on her brown skin.
 
 *だが、その褐色の脇腹に付けられた傷口からは血潮が勢い良く飛び散った。*
 
-The brown skin was covered with scratches and blood dripped from every part of the body.
+Looking closely, she had multiple wounds across her body, with blood dripping from everywhere.
 
 *見れば、その褐色の肌の彼方此方には幾つもの傷が付けられ、身体のいたる所から血が滴っている。*
 
 &nbsp;
 
-The brown woman ...... Joel's face was upturned, and from time to time a lustrous exhalation escaped from her mouth, while her moist eyes fixed feverishly on Kyle, who was at the point of the sword she was holding.
+The brown-skinned woman… Joel, flushed in the face, occasionally let out lustful breaths from her mouth, sending heated glances toward Kyle, who stood at the tip of her sword.
 
 *褐色の女……ジョエルは顔を上気させ、時折その口元からは艶のある吐息を漏らし、潤みを帯びた瞳で構えた剣の先に居るカイルに熱を帯びた視線を送っていた。*
 
-Kyle keeps his sword at the right side of his face and takes a stance with the tip of the sword pointed at Joel.
+Kyle held his sword up to the right side of his face, pointing the tip at Joel.
 
 *カイルはそのまま剣を顔の右側で構え、剣先をジョエルに向けた構えを取る。*
 
-Without pause, Joel stepped in at a speed that could not be caught by an ordinary person.
+Without a moment's pause, Joel stepped in at a speed that ordinary people couldn't catch.
 
 *間を置かず、常人には捉えられぬ速度でジョエルが踏み込んだ。*
 
-Kyle flicked Joel's sharply drawn great sword with the belly of his nightsword and sliced through Joel's ample bosom with the tip of his cut.
+Kyle deflected Joel's sharply swung great sword with the belly of his knight sword, then slashed the tip toward Joel's ample chest.
 
 *ジョエルの鋭く振り降ろされた大剣をカイルがナイトソードの腹で弾き、そのまま切っ先でジョエルの豊かな胸元を切り裂いた。*
 
-Joel screams in pleasure as blood sprays out of his mouth. Immediately afterwards, however, Joel's figure vanishes as if in a blur.
+With a high-pitched cry of pleasure, Joel let out a "kihi" as fresh blood splattered. However, immediately after, her figure flickered and vanished.
 
 *飛び散る鮮血に　きひぃ　とジョエルは甲高く悦楽の声を上げた。しかし直後、ブレる様にジョエルの姿が消える。*
 
-At the same time, Kyle's figure blurs and disappears, and the next moment, blood sprays on the spot.
+At the same time, Kyle's figure also flickered and vanished, and in the next moment, blood splattered in the air.
 
 *同時にカイルの姿もブレる様に消え、次の瞬間その場に血飛沫が舞う。*
 
 &nbsp;
 
-Aaghii!
+"Ugh!!"
 
 *「ぁぎぃ！！」*
 
 &nbsp;
 
-Joel screamed and appeared with his body turned up, his back slashed wide at an angle.
+Letting out a scream, Joel appeared, her back slashed diagonally.
 
 *叫びを上げ、背中を斜めに大きく切り裂かれたジョエルが、身体を仰け反らせ姿を現せた。*
 
-On his back, Kyle stood in the form of a slashed up nightsword.
+Standing behind her was Kyle, having slashed upward with his knight sword.
 
 *その背側には、ナイトソードを斬り上げた形でカイルが立っていた。*
 
-Kyle immediately regains his stance, but the look on his face is grim as he breathes on his shoulder.
+Kyle quickly readied his stance again, but his expression was harsh as he breathed heavily.
 
 *直ぐにカイルは構えを取り直すが、肩で息をするその表情は厳しい。*
 
 &nbsp;
 
-Oh, ahi, khi, khi! I like ......, I like it! You're pretty good, too! Hihi! Let's ...... do more!
+"Ah, ahh, kihi! Good... You're not bad either! Hehe!! Let's do more... more!!"
 
 *「ぁ、あひ、きひ！イイ……、イイぜ！お前も中々イイじゃないか！ひひ！！もっと……、もっとしようぜ！！」*
 
-As far as I'm concerned, ......, I'd like to get this over with."
+"…I just want to finish this quickly."
 
 *「……オレとしては、とっとと終わらせたいんだがな」*
 
 &nbsp;
 
-Joel's lewd-sounding laughter echoed through the trees as the sound of swords striking the wind echoed through the air.
+The sound of swords cutting through the air echoed as Joel's lascivious laughter reverberated among the trees.
 
 *剣が風を切り打ち合う音が響く中、ジョエルの淫靡な響きを帯びた笑い声が、木々の間に木霊した。*
 
@@ -1435,109 +1434,109 @@ Joel's lewd-sounding laughter echoed through the trees as the sound of swords st
 
 &nbsp;
 
-A huge black shadow looms just beside it.
+Just beside them, a massive black shadow loomed.
 
 *その直ぐ脇に、黒く巨大な影が迫る。*
 
-Howard cut it off with a full swing of his great black sword.
+Howard swung his black great sword horizontally like a full swing, cutting it down.
 
 *それをハワードが、黒い大剣をフルスイングする様に真横に切り払った。*
 
-The skull of a huge black ancient dragon, longer than a man's height, was bounced sideways with great force. Then Howard shouted backward.
+The massive black ancient dragon skull, taller than a person, was forcefully knocked aside. Howard then called out behind him.
 
 *人の身長よりも長い、巨大な黒い古代竜の頭骨が勢いよく横へ跳ね飛ばされて行く。そしてハワードが後方に向かい声を上げた。*
 
 &nbsp;
 
-Conrad! He's gone!"
+"Conrad! It's coming!!"
 
 *「コンラッド！行ったぞ！！」*
 
-"Oh, man! I'm running out of time for this, you big bastard!"
+"Dammit! This big thing is relentless!!"
 
 *「っこの！いい加減キリが無ぇな、このデカ物がっ！！」*
 
 &nbsp;
 
-Conrad ducked under the flank of one of the undead that had been flung away, parried the charge of the other one that was coming forward with his battle-axe, and spat the words abhorrently.
+Conrad ducked under the undead that had been knocked aside and countered another charge with his battle axe, spitting out curses.
 
 *コンラッドが、弾き飛ばされたアンデッドの脇を潜り抜け、突き進んで来たもう一体の突撃を戦斧で受け飛ばし、忌々しげに言葉を吐き捨てた。*
 
 &nbsp;
 
-Damn it!"
+"Ugh!!"
 
 *「くっっ！！」*
 
 &nbsp;
 
-Tony Easton just barely avoided the long tail of undead that loomed like an even blacker wall.
+Tony Easton barely dodged the long tail of the approaching undead, which was like a black wall.
 
 *トニー・イーストンが、更に黒い壁の様に迫るアンデッドの長大な尾を、ギリギリのところで避けた。*
 
-At the same time, the kite shield caught the large and small stones and debris that its tail bounced off. However, it was almost blown away by the momentum of the kite, but it barely managed to hold on.
+At the same time, he caught the small stones that the tail had knocked aside with his kite shield. However, he was pushed back by the force and nearly knocked down, but he managed to hold on.
 
 *それと同時に、その尾が弾き飛ばした大小の石礫をカイトシールドで受け止める。だがその勢いに押され、飛ばされそうになったが、辛うじて耐え切って見せた。*
 
-He quickly regains his position and prepares for the next attack.
+Then, he quickly regained his stance, preparing for the next attack.
 
 *そして直ぐ様体勢を立て直し、次の攻撃に備える。*
 
 &nbsp;
 
-The attack has been going on for more than an hour now.
+This back-and-forth had already lasted over an hour.
 
 *もうかれこれ、この攻防も一時間は超えている。*
 
-The opponent is just too tough.
+The opponent was just too tough.
 
 *何分相手がタフ過ぎだ。*
 
-If we could break even one of their corners with a big blow, it would be enough to reverse the current war situation, but even though they are not willing to give up, I am getting fed up with the way they repair themselves as soon as they get a few scratches.
+If they could land a big hit and break through even one of their ranks, the current situation could turn in their favor, but even though they were holding back, the undead were quickly repairing any damage done, which was becoming increasingly frustrating.
 
 *大きな一撃で、奴等の一角でも崩せれば今の戦況は十分に覆せる筈だが、此方も出し惜しみをしているとは言え、多少の傷を付けた所で見る間に修復して行く様は、いい加減辟易させられる。*
 
-Tony and Kyle may be getting to the end of their rope, Howard thinks as he looks at them.
+Tony and Kyle might be reaching their limits, Howard thought, glancing at the two.
 
 *トニーもカイルもそろそろ限界かもしれんな　とハワードは二人を流し見、思う。*
 
 &nbsp;
 
-"Master, it is that chain, after all. The miasma is being sent through that chain."
+"Master, it's definitely that chain. It's sending the absorbed miasma through that chain."
 
 *「旦那様、やはりあの鎖でごぜぇます。吸い上げた瘴気を、あの鎖で送っております」*
 
-"Well, I guess that's about it."
+"Hmm, so that's where it is."
 
 *「ふん、やはりそんな所か」*
 
-"Go on! You're playing a very small hand!"
+"How petty of them to use such tricks!"
 
 *「け！せせこましい手を使いやがって！」*
 
 &nbsp;
 
-On the other side of the large undead, a woman in chains was wearing a thin smile.
+Behind the massive undead, a woman wrapped in chains wore a thin smile.
 
 *大型アンデッドの向こう側で、鎖を纏った女が薄く嗤いを浮かべていた。*
 
-The chain-wearing woman ...... Marina let the chains she wears sway around her body as if she were swaying in feathers.
+The woman wrapped in chains… Marina swayed the chains around her body as if they were feathers.
 
 *鎖を纏う女……マリーナは、羽衣でも揺らすかの様に、纏う鎖をその身の周りでユラユラと揺蕩わせていた。*
 
-Furthermore, some of the chains extending from the marina are also connected to the giant undead.
+Moreover, several of the chains extending from Marina were connected to the giant undead.
 
 *更にマリーナから伸びる鎖の幾本かは、巨大なアンデッド達とも繋がっている。*
 
 &nbsp;
 
-It seems she is sucking up the miasma from deep within the earth and sending it through the chains to the bones.
+"That woman is drawing miasma from deep underground and sending it to the bones through the chains."
 
 *「あの女が地中深くから瘴気を吸い上げ、鎖を通じて骨共に送っておる様でごぜぇます」*
 
 &nbsp;
 
-Gilbert shined the magic seal on his eyepatch and told Howard about the flow of magic he had captured, as if to say that he had finally seen it.
+Gilberto, with his eye patch's magic seal glowing, seemed to have finally caught sight of the magical flow, informing Howard.
 
 *ジルベルトがアイパッチの魔法印を輝かせ、ようやく見えたと言いたげに、捉えた魔力の流れをハワードに告げた。*
 
@@ -1545,79 +1544,79 @@ Gilbert shined the magic seal on his eyepatch and told Howard about the flow of 
 
 &nbsp;
 
-Now Howard and his group were completely separated from the main body of the Order.
+Now, Howard and the others were completely separated from the main force of the knight brigade.
 
 *今ハワード達は、騎士団本隊とは完全に分断されていた。*
 
-Around them, three giant undead "Dark Scaled Danasaur" surrounded them, keeping a certain distance between them as if to check them.
+Surrounding them were three giant undead, "Dark Scale Danasaur," keeping a certain distance while encircling them.
 
 *その周りには巨大なアンデッド『ダーク・スケイルダナソー』が三体、彼らを牽制する様に一定の距離を保ちながら取り囲んでいた。*
 
-If Howard and his team tried to avoid them, they would turn to them, and if they tried to attack, the three of them would work together to catch and avoid them.
+Whenever Howard and the others tried to evade, the undead would maneuver to block them, and if they attempted to attack, they would coordinate and defend.
 
 *ハワード達が避け進もうとすれば、そちらに回り込み、攻め入ろうとすれば三体で連携して、受け、避ける。*
 
-The timing of the game was exquisitely misaligned, and I was having a very difficult and frustrating time.
+They were experiencing a frustrating time where their distance was expertly manipulated.
 
 *間合いを絶妙にズラされ、何ともやり辛い歯がゆい時間を過ごしていた。*
 
 &nbsp;
 
-In other words, the same as the undead who attacked us in the first place.
+In a way, it was just like the undead that had initially attacked them.
 
 *言って見れば初めに此処を襲って来たアンデッド共と一緒だ。*
 
-They are just trying to sew Howard and the others into this place.
+They were merely trying to pin Howard and the others down here.
 
 *只、ハワード達を此処へ縫い付けようとしているのだ。*
 
-Marina, who had not moved from behind the huge black undead, looked quietly at Howard and the others with a thin smile on her mouth.
+Marina, who stood behind the massive black undead, wore a thin smile, quietly observing Howard and the others.
 
 *黒い巨大アンデッドの後ろから動かぬマリーナが、口元に薄い笑いを浮かべ、ハワード達に静かに視線を送っていた。*
 
 &nbsp;
 
-"What's the matter, Howard, out of breath?"
+"What's wrong, Howard? Are you out of breath?"
 
 *「どうしたハワード息切れか？」*
 
-"Get out of my face, you fool! You're the one who's lost your footing!"
+"Don't be ridiculous! You look unsteady yourself!"
 
 *「馬鹿を抜かせ！お主こそ足元がおぼついておらんぞ！」*
 
-I'm just storing up a little power! I'm just saving up a little bit of energy! Who do you think you are?
+"Ha! I'm just gathering a bit of strength! Who do you think I am?!"
 
 *「は！ちょいとばかり力を貯め込んでるだけよ！俺を誰だと思ってる？！」*
 
-I'll decide soon, then! Then it's time to decide, alright?
+"Hah! Then it's about time to end this, right?!"
 
 *「ふは！ならばそろそろ決めるが、良いな？！」*
 
-Oh, yeah!
+"Of course!!"
 
 *「おうよ！！」*
 
 &nbsp;
 
-Howard's class, "Warlord," raises the morale and combat power of the entire unit just by being there.
+Howard, with the class of "Warlord," raised the morale and combat power of the entire unit just by being there.
 
 *ハワードが持つクラス『ウォーロード』は、そこに身を置くだけで部隊全体の士気と戦闘力を底上げする。*
 
-Conrad, a former class of "Herculean Lords," though retired from active service, was similarly more aggressive than usual for the knighthood he is in.
+Even though he had retired, Conrad, once a "Herculean Lord," similarly boosted the knight brigade's attack power.
 
 *現役を退いたとはいえ、元『ハーキュリーロード』のクラスであるコンラッドも同様に、彼が居る騎士団の攻撃力は通常よりも上がっていた。*
 
-The fact that the Knights were able to fight so well against the undead hordes was largely due to their presence.
+The reason the knight brigade had been able to hold their own against the horde of undead was largely due to their presence.
 
 *此処まで騎士団がアンデッドの大群に対して善戦出来たのは、彼らが居た事に依る所が大きい。*
 
 &nbsp;
 
-And Howard and his team were now about to use one of their own unique skills.
+And now, Howard and the others were about to use one of their unique skills.
 
 *そしてハワード達は今、自身の持つ固有スキルの一つを使おうとしていた。*
 
-The magic of Howard and Conrad is kneaded inside it, increasing in density.
+Howard and Conrad's magical power was being concentrated within them, increasing in density.
 
 *ハワードとコンラッドの魔力がその内側で練り上げられ、密度を増して行く。*
 
@@ -1625,177 +1624,177 @@ The magic of Howard and Conrad is kneaded inside it, increasing in density.
 
 &nbsp;
 
-But then, with a loud boom, a flaming bullet approaches.
+But at that moment, a loud sound echoed as fireballs approached.
 
 *だがそこへ豪と音を立てて、炎弾が迫る。*
 
-Tony Easton caught it with his kite shield, which he quickly set up.
+Tony Easton quickly raised his kite shield to block them.
 
 *それをトニー・イーストンが、咄嗟に構えたカイトシールドで受け止めた。*
 
-The flaming bullets shot one after the other impacted Tony through his shield like a barrage of huge hammers.
+The successive fireballs hit him like a barrage of giant hammers, delivering a tremendous impact through the shield.
 
 *次々と撃ち込まれる炎弾は、巨大なハンマーの連打の様な衝撃を、盾越しにトニーに与えた。*
 
-Tony bit his back teeth and let out a small moan as he held on, but was finally engulfed by the force of the flaming bullet and blown away.
+Tony gritted his teeth, letting out small groans as he endured, but eventually, he was overwhelmed by the force of the fireballs and blown away.
 
 *トニーは奥歯を噛み締め、小さく呻きを漏らしなが耐えていたが、ついに炎弾の勢いに呑まれ吹き飛ばされた。*
 
-Tony's body, engulfed in flames, slams against the rock face, thrashing.
+His body, engulfed in flames, slammed against the rocky surface, rolling over.
 
 *炎に包まれたトニーの身体が岩肌に打ちつけられ、もんどり打つ。*
 
 &nbsp;
 
-Gah!"
+"Ughhh!!"
 
 *「がぁぁっっ！！」*
 
-TONY!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+"Tony!!!"
 
 *「トニーーッッ！！！」*
 
 &nbsp;
 
-Kyle turns around and yells at Tony.
+Kyle turned and shouted toward Tony.
 
 *カイルが振り向きトニーに向かい叫ぶ。*
 
-Tony was rolling on the earth, bushy and white smoke, and eventually began to yuk up his body.
+Tony rolled on the ground, emitting white smoke, but eventually began to slowly rise.
 
 *トニーは大地を転がり、ブスブスと白煙を上げていたが、やがてユックリと身体を起こし始めた。*
 
-Kyle confirms this and breathes a sigh of relief.
+Seeing this, Kyle let out a sigh of relief.
 
 *それを確認し、カイルが安堵の息を漏らす。*
 
 &nbsp;
 
-Where are you coming from? Where did you come from?
+"You bastard! Where did that come from?!"
 
 *「おのれ！何処から？！」*
 
 &nbsp;
 
-Kyle kept Joel in check as he searched the area, keeping his eyes peeled. Then, a woman in a black nightdress emerges from the darkness.
+Kyle, while keeping an eye on Joel, scanned the surroundings cautiously. Suddenly, a woman in a black night dress emerged from the darkness.
 
 *カイルがジョエルを牽制しつつ、油断無く辺りを探る。すると、黒いナイトドレスを纏った女が闇の中から滲み出る様に姿を現した。*
 
-The woman ...... Elektra kept her right hand outstretched, which had been struck by a flaming bullet, and her tongue crawled over her left hand, which was covered in blood up to the wrist.
+The woman… Electra, with her right hand still extended from firing the fireball, was licking her left hand, which was stained with blood.
 
 *女は……エレクトラは、炎弾を打ち出した右手を突き出したまま、手首まで血に塗れた左手に舌を這わせていた。*
 
 &nbsp;
 
-"......! That, that blood?!!!!"
+"…! That blood?!!"
 
 *「……！そ、その血は？！！」*
 
 &nbsp;
 
-Kyle peels his eyes when he notices the blood smeared on Elektra's hands.
+Kyle's eyes widened as he noticed the blood on Electra's hand.
 
 *カイルが、エレクトラの手に塗れる血に気付き目を剥く。*
 
-Elektra narrowed her eyes and cowered her shoulders in a grand gesture toward Kyle.
+Electra narrowed her eyes at Kyle, dramatically shrugging her shoulders.
 
 *エレクトラは目元を細め、カイルに向け大仰に肩を竦めて見せた。*
 
 &nbsp;
 
-......Kokono!"
+“...You!”
 
 *「……こっの！」*
 
 &nbsp;
 
-Elektra, smiling at Kyle, who was glaring at her, dropped her right hand, which was pointing forward, and turned to Joel, who was nearby, and said a few words.
+Electra smiled at Kyle, who was glaring at her, then lowered her right hand, turning her face towards Joel, who was nearby, and spoke.
 
 *エレクトラは、睨めつけて来るカイルに笑みながら、前方に向けていた右手を降ろし、近くに居るジョエルに顔を向け言葉をかけた。*
 
 &nbsp;
 
-"Oh? Joel, that gentleman has been on my radar, hasn't he?"
+“Oh? Joel, I had my eye on that gentleman over there.”
 
 *「あら？ジョエル、其方の殿方はあたくしが目を付けていましたのよ？」*
 
-I'm not sure how to do this! This one's pretty responsive and fun, too, huh?"
+“Hehe, really?! This guy’s actually pretty fun to deal with, isn’t he?”
 
 *「ひへへ、そうなのか？！コイツも結構手応えあって、楽しいいぜ？」*
 
-"Is it not that one you want? Leave this one to me."
+“Isn’t your target the one over there? This one should be left to me.”
 
 *「貴女のお目当ては、あちらではなくって？此方はあたくしにお譲りなさいな」*
 
-"Huh? That's not true, Elektra! I was the first one to play with you. It's not fair to take over! Let me play more!
+“Wait, that’s not fair, Electra! I was the one playing first! It’s terrible to steal him away! Let me play a bit longer!”
 
 *「ぅえ？そりゃないぜエレクトラ！先に遊んでたのは俺だぜ？横取りは酷いよ！もっと遊ばせろよぉ！！」*
 
 &nbsp;
 
-Electra sighed heavily as Joel raised his eyebrows and looked like a child who had just had a toy taken away from him.
+With a frown, Joel showed an expression like a child who had his toy taken away, prompting Electra to let out a big sigh.
 
 *眉根を寄せ、まるで玩具を取り上げられた子供の様な表情を見せるジョエルに、エレクトラは大きくため息を付いた。*
 
 &nbsp;
 
-I found it at ....... I'm sorry Joel. This man is yours to do with as you please."
+“...I understand. I’m sorry, Joel. This one is yours to enjoy.”
 
 *「……分りましたわ。御免なさいねジョエル。この方は貴女の好きになさい」*
 
-Is that okay? Yes! Hee hee hee."
+“Really?! Awesome!! Hehe!”
 
 *「イイのか？！やったぜ！！ひへへ」*
 
-Instead, ............."
+“In return...”
 
 *「その代り…………」*
 
 &nbsp;
 
-Electra then goes behind Joel.
+Saying this, Electra moved behind Joel.
 
 *そう言ってエレクトラがジョエルの背後に回る。*
 
 &nbsp;
 
-"...... will you make this up to me later?"
+“...You’ll make up for this later, won’t you?”
 
 *「……この埋め合わせは、後でして頂きますわよ？」*
 
 &nbsp;
 
-Elektra went on, running her fingers along the open wound on Joel's back.
+Electra continued to run her fingers along the wound on Joel’s back.
 
 *エレクトラはそのまま、ジョエルの背に開いた傷に沿って、指を這わせて行った。*
 
-Joel arched his back, screamed loudly, and his body shook.
+Joel arched his back, letting out a loud scream and shaking his body.
 
 *ジョエルは背を仰け反らせ、大きく叫び声を上げ、身体を震わせた。*
 
-Then he looked back over his shoulder at Elektra and gave a small nod with moist eyes.
+Then, looking back at Electra over his shoulder, he nodded slightly with teary eyes.
 
 *そして肩越しにエレクトラを見返り、潤んだ瞳で小さく頷く。*
 
-Elektra's eyes narrowed in satisfaction at the sight, and she lovingly stroked Joel's cheek with her long fingers before disappearing into the darkness.
+Seeing this, Electra narrowed her eyes in satisfaction, lovingly caressing Joel’s cheek with her long fingers before disappearing into the darkness.
 
 *エレクトラはそれを見て満足げに目を細め、愛おしげにジョエルの頬を長い指で撫で上げると、そのまま闇に消えて行った。*
 
 &nbsp;
 
-As soon as Elektra disappeared, Joel immediately pulled the great sword to his mouth and licked up its blade, the corners of his mouth lifting. And then .......
+As Electra vanished, Joel immediately brought his greatsword to his lips, curling his mouth into a smile as he licked the blade. And then...
 
 *エレクトラが消えると、ジョエルは直ぐに大剣を口元に寄せ、口角を吊り上げながらその刃を舐め上げた。そして……。*
 
 &nbsp;
 
-"...... Heh, come on! Let's have some more fun!"
+“...Hehe, alright! Let’s have even more fun!!”
 
 *「……へへ、さあ！もっともっと楽しもうぜ！！」*
 
 &nbsp;
 
-With that, he turned to Kyle, raised his great sword and headed toward him.
+With that, he raised his greatsword toward Kyle and charged forward.
 
 *そう言ってカイルに向かい大剣を振り上げ向かって行った。*
 
@@ -1809,523 +1808,523 @@ With that, he turned to Kyle, raised his great sword and headed toward him.
 
 &nbsp;
 
-A flaming bullet that arose from the darkness struck Howard's back as he popped the huge black dragon's skull with "Grand Divider".
+A massive black dragon skull was deflected by Howard using the "Grand Divider." Suddenly, a fireball appeared from the darkness, hurtling toward his back.
 
 *黒く巨大な竜の頭骨を『グランドデバイダ』で弾き上げたハワードの背に、闇の中から生じた炎弾が襲う。*
 
-Howard dodged a flaming bullet that approached him at high speed one after another without looking back.
+Howard deftly evaded the rapidly approaching fireballs without looking back.
 
 *次々と高速で迫る炎弾を、ハワードは後ろも見ずにユラリと躱す。*
 
-The dodged fireball hit a huge undead black bone that had been hit in the jaw and blew away its heavy body.
+The fireballs, missing their target, struck the massive undead black bone creature, sending its heavy body flying.
 
 *躱された炎弾は、顎をかち上げられた黒い骨の巨大アンデッドに当り、その重量のある身体を吹き飛ばした。*
 
 &nbsp;
 
-With light in his gray eyes, Howard turns and cuts off the last of the approaching flaming bullets, and after the flaming magic fizzles out, he cuts through the darkness behind it with the returning blade.
+With gleaming gray eyes, Howard turned to slash at the last incoming fireball, dissipating the magical flames. He followed through with a sweeping strike, cutting through the darkness beyond.
 
 *灰色の瞳に光を湛えながら、迫る最後の炎弾を振り向きざまに切り払い、炎の魔法を霧散させたハワードは、返す刃でその奥の闇を切り裂く。*
 
-With a clattering sound, Howard's slash was caught by five red knife-like claws.
+The sound of a hard impact echoed as Howard's strike met the five sharp claws, resembling red knives, that attempted to intercept him.
 
 *ガキリと硬質な音を響かせ、ハワードが繰り出した斬撃を、赤いナイフの様な五本の爪が受け止めた。*
 
 &nbsp;
 
-"......ck!"
+“...Ugh!”
 
 *「……くっ！」*
 
 &nbsp;
 
-The woman in the black nightdress that arose from the darkness,...... Electra grunted in pain and jumped backward.
+With a pained groan, the woman clad in a black knight dress—Electra—leaped back, clearly struggling.
 
 *闇より生じた黒いナイトドレスの女……エレクトラは、苦しげに呻き後方へ跳んだ。*
 
-Howard steps into it with one foot and thrusts another follow-up blow.
+Howard seized the opportunity and lunged forward for another strike.
 
 *それをハワードが一足で踏み込み、更に追いの一撃を突き入れる。*
 
-The powerful sword blow, clothed in concentrated magic and distorting even the surrounding atmosphere, not only repelled the red claw that was about to catch it, but also shattered it into pieces.
+The strike, infused with concentrated magical energy, distorted the surrounding air and not only deflected the red claws but shattered them entirely.
 
 *濃縮された魔力を纏い、周りの大気すら歪ませる豪剣の一撃は、受けようとした赤い爪を弾くだけに留まらず、粉々に砕いた。*
 
-Electra, who had been thrown off her body, still stuck out her left arm and pointed her five fingers at Howard, extending her red claws in place of her shattered right claw.
+Electra, propelled back, extended her left arm in place of her broken right claw, aiming her five fingers at Howard, elongating the red claw toward him.
 
 *身体ごと弾き飛ばされたエレクトラは、それでも砕かれた右の爪に替わり、左の腕を突出しその五指をハワードに向け、赤い爪を突き伸ばした。*
 
-A red claw like a spear, extending at high speed, grazes Howard and thrusts him into the black earth.
+The rapidly extending spear-like red claw grazed Howard before embedding itself into the black ground behind him.
 
 *高速で伸びる槍の様な赤い爪がハワードをかすめ、黒い大地に突き立つ。*
 
-Howard's grazed leather armor was smoking white as if it had been burned.
+Howard’s leather armor emitted smoke as it burned where it had been touched.
 
 *かすめたハワードの革鎧は、焼けた様に白煙を上げていた。*
 
-The red claws, which stuck out of the ground, emitted a vermilion light like iron in a blast furnace, and scorched the ground with high heat.
+The red claw, planted firmly in the ground, glowed with a fiery hue, scorching the earth around it.
 
 *地面に突き立った赤い爪は、熔鉱炉の鉄の様に朱色の光を放ち、高熱を持って地面を焦がして行った。*
 
 &nbsp;
 
-Electra's mouth corners up in a grin as she shows Howard that the redness of her fingernails is the flame itself.
+Electra smirked, showcasing her claw's red hue, which was akin to fire itself, and taunted Howard with a sinister grin.
 
 *自分の爪の赤さが、炎その物である事をハワードに見せつけ、エレクトラは口角を上げニヤリと嗤う。*
 
 &nbsp;
 
-Elektra pulls back and thrusts her left claw at high speed toward Howard again.
+She retracted her left claw and launched it at Howard again at high speed.
 
 *エレクトラは引き戻した左の爪を、再びハワードに向かい高速で突き伸ばす。*
 
-Four of the five fingers were extended to burn each of Howard's limbs.
+Four of her fingers aimed to scorch Howard's limbs,
 
 *五指の内四本は、それぞれハワードの四肢を焼こうと伸ばされた。*
 
-The last one, still with a gray light, was aimed at the eye staring at me, and I reached out and let it fly, hoping to crush it.
+while the last one targeted his eye, glistening with a gray light.
 
 *最後の一本は、未だ灰色の光を持って、此方を睨むその目を潰してやろうと、狙い定めて伸ばし飛ばした。*
 
 &nbsp;
 
-However, Howard grabbed the ricasso part of the sword, spun the large sword as if it were a baton, and flicked it away.
+However, Howard adjusted his grip on the sword's ricasso and spun the large blade like a baton, sending the claws flying away.
 
 *だが、それをハワードは剣のリカッソ部分を掴み直し、大型の剣をバトンでも回すかの様に回転させ弾き飛ばして行った。*
 
-The momentum of the great sword, which was turned with a force that tore apart the atmosphere, shattered all the red claws and sent them flying apart.
+The force of the spinning sword sliced through the air, obliterating the red claws,
 
 *大気を引き裂く勢いで回された大剣の勢いで、赤い爪は悉く砕かれ飛び散って行く。*
 
-The last one was crushed by Howard's back left fist as he swung away.
+and the final one shattered against Howard's left backfist.
 
 *剰え最後の一本は、振り払ったハワードの左の裏拳で砕かれた。*
 
 &nbsp;
 
-Electra's eyes widened and she looked frightened as she was pushed by her own claws, which were crushed and torn apart, and by the force of the atmosphere, which was closing on her like a whirlpool.
+As her claws were effortlessly destroyed, Electra's eyes widened in shock as she was pushed back by the force of the air swirling around them.
 
 *呆気なく砕かれた自分の爪と、切り裂かれ、渦の様に迫る大気の勢いに押され、エレクトラが目を見開き怯みを見せた。*
 
-But by then, Howard had already disappeared from Elektra's sight.
+Yet at that moment, Howard had already disappeared from Electra's sight.
 
 *だがその時、既にエレクトラの視界からハワードは消えていた。*
 
-Elektra caught Howard's presence behind her and felt a strong shock to her body at about the same time.
+She sensed his presence behind her just as she felt a strong impact on her body.
 
 *エレクトラがハワードの気配を自分の背後に捉えたのと、己が身に強い衝撃を感じたのはほゞ同時だった。*
 
 &nbsp;
 
-Aggi!!!!"
+“Agh!!”
 
 *「あぎっっ！！」*
 
 &nbsp;
 
-Howard slid behind Elektra and, with the momentum of his revolving great sword, grabbed the tip of the sword and swung it around, striking her in the side of the head with the crossbar as if he were hitting her with a hammer.
+Howard, having smoothly moved behind Electra, maintained the momentum of his spinning greatsword and swung it like a hammer, slamming the crossguard into her side.
 
 *滑る様にエレクトラの後ろに移動したハワードは、回転させた大剣の勢いを乗せたまま、剣先を掴んで振り回し、ハンマーでも打ち付ける様に、十字鍔でエレクトラの横腹を殴りつけたのだ。*
 
 &nbsp;
 
-Blown away, Elektra punctures the earth with her limbs and immediately repositions herself.
+Electra was launched backward, her limbs digging into the earth as she quickly regained her footing.
 
 *吹き飛ばされたエレクトラは四肢で大地を穿ち、直ぐに体勢を立て直す。*
 
-The side of the body that took the blow was smoking and the damage done was not going to be undone immediately.
+Her wounded side emitted smoke, and the damage she had sustained was not healing immediately.
 
 *打撃を受けた脇腹がシュウシュウと煙を上げ、付けられた損傷が直ぐ元に戻ろうとしていない。*
 
-Electra's brow furrows as she puts her hand over her wound, and she sweats profusely with a stern expression on her face.
+Pressing a hand to her wound, Electra furrowed her brow, sweat pouring down her face.
 
 *傷に手を当てながらエレクトラは眉根を寄せ、厳しい表情のまま大量の汗を流す。*
 
-Elektra understood, having been hit directly by Howard. She understood the magnitude and density of Howard's magical power.
+She realized the immense magical power Howard contained, its density palpable after receiving a direct blow from him.
 
 *エレクトラは、直接ハワードから打撃を受けた事で理解してしまったのだ。ハワードの内包する魔力の大きさを、その濃密さを。*
 
 &nbsp;
 
-He is not good. He has the power to destroy us if we meet him head on.
+This was bad. If they exchanged blows directly, he possessed enough strength to obliterate them.
 
 *ヤツは不味い。真正面から打ち合えば、我らを滅せるだけの力を有している。*
 
-Things are fundamentally different from the knights I have been playing with.
+Howard was fundamentally different from the knight brigade she had previously toyed with.
 
 *今まで遊んでいた騎士団達とは、根本的にモノが違う。*
 
 &nbsp;
 
-Elektra raised her body without caution and glared at Howard.
+Electra, rising cautiously, glared at Howard.
 
 *エレクトラは油断なく身体を起こし、ハワードを睨みつけた。*
 
 &nbsp;
 
-But they are only human after all.
+But ultimately, he was just a human.
 
 *だが所詮相手は人間だ。*
 
-If they continue to attack day and night as originally planned, they will eventually wear out.
+As initially planned, if they continued their relentless assault day and night, he would eventually wear down.
 
 *当初の予定通り、昼夜間断無く攻め続ければ何れ消耗する。*
 
-We just need to finish them off where they are weak.
+Once weakened, it would be easy to finish him off.
 
 *弱った所で仕留めれば良いだけの話だ。*
 
-This is an opponent with this much power. To eat them all up will be a great source of sustenance for us.
+With such power on their side, consuming it would provide a great boon for them.
 
 *これだけの力を持った相手だ。これを喰らい切る事は、我らにとって大きな糧となる。*
 
 &nbsp;
 
-Thinking all the way there, Elektra shook her standing body yulally and the corners of her mouth hung wide.
+Considering all that, Electra swayed her standing body gently and lifted the corners of her mouth into a broad smile.
 
 *そこまでを考え、エレクトラは立った身体をユラリと揺らし、口角を大きく吊り上げた。*
 
 &nbsp;
 
-It's wonderful to have a gentleman of such power. ......
+"How wonderful it is to have a gentleman with such power here..."
 
 *「素晴らしいですわ、これ程のお力を持つ殿方がいらっしゃるなんて……」*
 
-"............"
+"..."
 
 *「…………」*
 
-"What do you say? Would you like to enjoy the greatest pleasures of this world at the end of your life?"
+"What do you say? At the end of your life, why not indulge in the greatest pleasures this world has to offer?"
 
 *「如何で御座います？その人生の最後に、この世で最高の享楽をお受けになられませんか？」*
 
 &nbsp;
 
-Elektra opened her large V-shaped bosom, exposing the raised tips of her tassels, which were about to spill out, swinging widely.
+Electra opened her chest, which formed a large V, and while shaking the drooping fullness, she revealed the raised tips.
 
 *エレクトラが大きくVの字に開いた胸元を開き、零れ落ちそうな房を大きく揺らしながら、隆起した先端を露わにした。*
 
-She thrusts her hips out further, peeking her open legs through the slit in her dress, which is cut deeply near the waist, to show the white half of her body to Howard.
+Furthermore, she pushed her hips forward, revealing her legs through the deep slit in her dress that cut down to her waist, displaying her white lower body to Howard.
 
 *更に腰を突出し、ウエスト近くまで深く切れ込まれているドレスのスリットから開いた脚を覗かせ、ハワードに白い半身を見せつける。*
 
 &nbsp;
 
-Elektra opened her slit further and flushed her glazed eyes invitingly at Howard, tracing her bare thighs provocatively with her fingertips.
+Electra further opened the slit and provocatively traced her exposed thigh with her fingertips while glancing at Howard with lustful eyes.
 
 *エレクトラは更にスリットを開き、ハワードを誘う様に艶のある目で流し見ながら、剥き出した腿を自分の指先で挑発的になぞり上げた。*
 
 &nbsp;
 
-Have you ever met this many women? Come and visit us at ....... Taste the best of women. All the pleasures of this world are here. Melt ...... inside me and I will ...... give it to you.
+"Have you ever encountered a woman like me? Come now... Experience the finest woman. All the pleasures of this world are here. I will... melt within you..."
 
 *「これだけの女に、出逢った事が御座いまして？さあ、いらして……。最上の女を味わい下さいませ。この世の悦楽の全てが此処にございます。あたくしの中で……溶かして……差し上げます……わ」*
 
 &nbsp;
 
-Staring at Howard with moistened upper eyes, Electra spread her slit further and inserted a finger deep into the base of her leg, making a wet sound.
+While gazing up at Howard with glistening eyes, Electra opened the slit even more and inserted her fingers deep into the roots of her thighs, producing a moist sound.
 
 *潤みを帯びた上目でハワードを見詰めながら、エレクトラは更にスリット広げ、脚の付け根の奥に指を差し入れ、湿りを帯びた音を立てていた。*
 
 &nbsp;
 
-Howard, however, keeps his poised sword tip pointed at Elektra, quietly overflowing with fighting spirit.
+However, Howard kept his sword aimed at Electra while quietly exuding his fighting spirit.
 
 *だがハワードは、構えた剣先をエレクトラに向けたまま、静かに闘気を溢れさせている。*
 
-Then, as it was, he muttered a few words.
+And then, he murmured a single word.
 
 *そして、そのまま一言呟いた。*
 
 &nbsp;
 
-I'm afraid I've never met a better woman than ...... Sonia!"
+"Unfortunately... I have never met a woman better than Sonia!"
 
 *「生憎、……ソニアより良い女になど、会った事が無くてな！」*
 
 &nbsp;
 
-Electra's eyes widened at Howard's rejection.
+Electra's eyes widened at Howard's words of rejection.
 
 *ハワードの拒絶の言葉に、エレクトラが目を見開いた。*
 
-He responded to Howard's fighting spirit, which spread as it was, and took a step backward.
+Reacting to Howard's expanding fighting spirit, she took a step back.
 
 *そのまま広がるハワードの闘気に反応し、足を一歩後ろへ下げた。*
 
 &nbsp;
 
-Electra immediately relaxes her shoulders and shakes her head slowly with a sigh, as if to say it's a shame.
+Immediately, Electra relaxed her shoulders and slowly shook her head with a sigh, as if to say it was unfortunate.
 
 *直ぐにエレクトラは肩の力を抜き、残念だと言いたげに、ため息交じりでゆっくり首を振る。*
 
 &nbsp;
 
-I'm sorry to hear that. ...... But I think it's best if we take a short pause now. ...... I will see you later. ......
+"How disappointing... But it would be best to give it a moment... We shall meet again later... at that time..."
 
 *「残念ですわ……。ですがいま少し、間を置かせて頂いた方が宜しいですわね……。また後程お会い致しましょう……その時は」*
 
 &nbsp;
 
-With that said, his body dissolves into the darkness with an expression that does not erase his inferiority complex.
+Saying this, she melted into the darkness with an expression that could not erase her lust.
 
 *そう言って、劣情を消せぬ表情のまま、身体を闇へと溶け込ませて行く。*
 
-Elektra had turned into a black mist from the edges of her body and was about to disappear into the forest.
+Electra began to dissolve into black mist from the edges of her body and was about to disappear into the forest.
 
 *エレクトラは、身体の端から黒い霧と化し、森の中へと消えて行こうとしていた。*
 
 &nbsp;
 
-It's warm! Vampire!"
+"You're lukewarm! Vampire!!"
 
 *「温いわ！ヴァンパイア！！」*
 
 &nbsp;
 
-Howard shined the magic seal engraved on his equipment, stepped toward the black fog, and swung down a blue-lighted "Grand Divider" blow.
+Howard illuminated the magical sigils engraved on his equipment and leaped forward towards the black mist, swinging down the blow of the 'Grand Divider' that emitted blue light.
 
 *ハワードは装備に刻まれた魔法印を輝かせ、黒い霧へと向け一足飛びに踏み込み、蒼い光を放つ『グランドデバイダ』の一撃を振り降ろした。*
 
 &nbsp;
 
-Geeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee!"
+"Gyahhhhhhh!!!"
 
 *「ぎぁぁああぁあああぁぁーーーーーーっっっ！！！！」*
 
 &nbsp;
 
-Electra sprawled on the spot with a scream as if squeezed out from inside her body.
+Letting out a scream that seemed to come from deep within, Electra writhed and rolled on the ground.
 
 *身の内から絞り出す様な絶叫を上げて、エレクトラがその場でのたうち転げまわる。*
 
-Its shoulder had been cut wide open, and the right arm side was nearly severed from the body.
+Her shoulder was deeply slashed, and her right arm was nearly severed from her body.
 
 *その肩口は大きく切り裂かれ、右腕側が身体から切り離されかけていた。*
 
-The nightdress is also ripped, spilling her ample bosom, and Elektra continues to scream as she spits blood.
+Her knight dress was torn, spilling out her ample bosom as Electra continued to scream while spitting blood.
 
 *ナイトドレスも裂かれ、豊満な胸元を零し、エレクトラが血を吐きながら絶叫し続ける。*
 
 &nbsp;
 
-Elektra?
+"Electra?!"
 
 *「エ、エレクトラ？！！」*
 
 &nbsp;
 
-Joel, who had been slashing with Kyle, opened his eyes and shouted at Elektra's unusual behavior.
+Joel, who was engaged in a battle with Kyle, widened his eyes and shouted at Electra's sudden change.
 
 *エレクトラの異変に、カイルと斬り結んでいたジョエルが目を見開き叫んだ。*
 
 &nbsp;
 
-"Sir Cloud, ......, did you slay a non-embodied opponent?!"
+"Lord Cloud... Did you just slash an incorporeal opponent?!"
 
 *「クラウド卿……、非実体化した相手を斬ったのか？！」*
 
 &nbsp;
 
-Kyle's out-of-the-box feat of slaying Howard's black mist opponent was a sight to behold.
+Kyle was astonished by the act of cutting down Howard’s opponent, which was beyond common sense.
 
 *カイルが、ハワードの黒い霧と化した相手を斬ると云う、その常識の枠外の所業に舌を巻く。*
 
 &nbsp;
 
-Joel! Take Elektra and back away!"
+"Joel! Take Electra and fall back!!"
 
 *「ジョエル！エレクトラを連れて下がりなさい！！」*
 
 &nbsp;
 
-A woman in chains ...... Marina shouted at Joel from behind a large black undead.
+The woman wrapped in chains… Marina shouted towards Joel from behind the large black undead.
 
 *鎖を纏う女……マリーナが、黒い大型アンデッドの後ろからジョエルに向け叫んだ。*
 
 &nbsp;
 
-Marina also noticed.
+Marina was also aware.
 
 *マリーナも気が付いていた。*
 
-Howard, Conrad and Gilbert to the power.
+She recognized the power of Howard, Conrad, and Gilberto.
 
 *ハワードや、コンラッド、ジルベルトの力に。*
 
 &nbsp;
 
-We knew they were capable of great things.
+She understood that they possessed significant strength.
 
 *彼らが大きな実力を有している事は分っていた。*
 
-I had taken on the role of separating them from the Knights and checking them, but the closer I looked at them, the more their out-of-bounds power chilled me to the core.
+While she took on the role of separating and restraining them from the knight order, the closer she got, the more her core chilled at their out-of-reach power.
 
 *その彼等を騎士団から分断し、牽制する役を引き受けていたが、間近で見れば見る程、彼らの埒外の力に身体の芯が冷たくなる。*
 
-However, no matter how much power you have, you cannot fully display all of your abilities if you are shackled.
+However, no matter how great their power, if they were shackled, they could not unleash their full potential.
 
 *だが、幾ら大きな力を持っていようとも、足枷があれば実力の全ては出し切れない。*
 
-The plan was to surround the weak in the rear so that they could not escape and take their yoke upon them.
+For that reason, she planned to encircle the weaklings in the back so they couldn't escape, binding them to their yoke.
 
 *その為に、後方に居る弱者を逃げられぬ様に囲い込み、彼らの軛にする手筈だった。*
 
-Sooner or later, they will not be able to escape or show their ability, and they will be worn out.
+That way, they would eventually exhaust themselves, unable to escape or utilize their strength.
 
 *そうすればやがて、逃げる事も実力を出す事も叶わず、消耗して行く。*
 
 &nbsp;
 
-All that remains is to easily overrun it.
+All that remained was to trample over them easily.
 
 *後はそれを容易く蹂躙すればよいのだ。*
 
 &nbsp;
 
-So there is no need to go head-to-head, just pull back for now.
+So, there was no need to confront them head-on; it was enough to retreat for now.
 
 *だから態々正面からやり合う必要は無い、今は引くだけで良い。*
 
 &nbsp;
 
-Morning will soon come. The night is almost over! Let's pull out for a moment."
+"Morning will soon come. The night will end! Let's pull back for a moment."
 
 *「もう直ぐ朝が来る。夜が終わるわ！一時だけ引き上げましょう」*
 
 &nbsp;
 
-Yes, just pull it at the crack of dawn.
+Yes, all she needed to do was pull back for a moment at dawn.
 
 *そう、夜明けの一時だけ引けば良い。*
 
-Then we can go right back and continue the war of attrition.
+Then she could return immediately and continue the war of attrition.
 
 *そうしてまた直ぐに戻り、消耗戦を続ければ良いのだから。*
 
 &nbsp;
 
-Just as Marina gave the order to pull up with a cold smile on her face, Howard thrust his great black sword, "Grand Divider," into the earth and shouted.
+As Marina wore a cold smile on her face and gave the order to withdraw, Howard drove the black great sword, 'Grand Divider,' into the ground and shouted.
 
 *マリーナが冷たい笑みをその顔に浮かべ、引き上げの指示を出したその時、ハワードが黒い大剣『グランドデバイダ』を大地に突き立て声を上げた。*
 
 &nbsp;
 
-Don't think you can get away with this forever, vampire!
+"Don't think you can escape forever, vampire!!"
 
 *「いつまでも逃げ切れると思うなヴァンパイア！！」*
 
-You keep chocking up to me, slyly and spicy!"
+"You've been annoying us repeatedly with your sly little antics!!"
 
 *「何度もチョコチョコと、狡っ辛くちょっかいかけて来やがって！！」*
 
 &nbsp;
 
-Conrad also barked up a storm, not hiding his irritation.
+Conrad also shouted, not hiding his irritation.
 
 *コンラッドも苛立ちを隠さず吠え上げた。*
 
 &nbsp;
 
-But that's the end of it! From now on, you will never leave this land!
+"But that ends here! From this point on, you shall not leave this land!!"
 
 *「だがそれも此処までだ！此れより、貴様らはこの地を出る事は叶わん！！」*
 
-I don't think there's anything you can do about that, ......?"
+"...I don't think that's something you can do anything about."
 
 *「……そんな事、アナタ方がどうにか出来る事では無いと思うけど？」*
 
 &nbsp;
 
-At Howard's words, Marina raises her eyebrows in displeasure and tells him that he cannot interfere with their activities.
+At Howard's words, Marina frowned in displeasure and told him they couldn't interfere with their actions.
 
 *ハワードの言葉に、マリーナが不快気に眉根を寄せ、自分たちの行動に干渉など出来ぬと告げる。*
 
-Instead of responding, however, Howard put more force into his hand, which held the "Grand Divider" propped up against the ground.
+But instead of responding to her, Howard gathered strength in the hand gripping the 'Grand Divider' that was embedded in the ground.
 
 *だがハワードはそれに応える代わりに、地に突き立てた『グランドデバイダ』を握る手に力を籠めた。*
 
 &nbsp;
 
-From now on, this land shall be my territory! Open up the land! Grand Divider! "The land of the sovereigns!"
+"I shall make this land my territory! Break through! Grand Divider!! 'The Monarch's Territory'!!"
 
 *「今よりこの地を我が領土と成す！切り拓け！グランドデバイダー！！『君主の領土』！！」*
 
 &nbsp;
 
-As if in response to Howard's shout, the magic seal engraved on the "Grand Divider" shines brighter.
+In response to Howard's shout, the magic sigils engraved on the 'Grand Divider' glowed even brighter.
 
 *ハワードの叫び上げに応じる様に、『グランドデバイダ』に刻み込まれた魔法印が一際輝きを増す。*
 
-The brilliance of the great sword thrust into the earth spread across the land with Howard at its center.
+The brilliance of the great sword, thrust into the ground, spread outward from Howard.
 
 *地に突き立てられた大剣の輝きは、ハワードを中心に大地に広がった。*
 
-It expands to a radius of more than 100 meters, filling the area with the vast amount of magical power that Howard had been concocting.
+It expanded over a radius of more than 100 meters, filling the land with the vast magical power Howard had been refining.
 
 *それは半径100メートル以上の範囲まで拡大し、その地をハワードが練り上げていた膨大な魔力で満たして行く。*
 
 &nbsp;
 
-At the same time, power is poured into those who are within its range.
+Simultaneously, power was poured into those within that range.
 
 *同時に、その範囲内に居る者達に力が注がれる。*
 
-Kyle feels the overflowing power and swings his sword.
+Kyle felt the overflowing strength and swung his sword.
 
 *カイルが溢れる力を感じ、剣を振る。*
 
-The sword flashed ever sharper, and I was amazed at the sharpness of my own sword.
+The flashing blade showed unprecedented sharpness, and he was amazed by its own cutting edge.
 
 *閃く剣筋は嘗て無い鋭さを見せ、我が身の切れに目を見張った。*
 
 &nbsp;
 
-Tony gets up and takes a blow from a large undead that was approaching him head-on, and is surprised to find that there is almost no damage.
+Tony stood up and received the blow from the approaching large undead head-on, surprised by the minimal damage he sustained.
 
 *トニーが立ち上がり、迫っていた大型アンデッドの一撃を正面から受け止め、ダメージが殆ど無い事に驚く。*
 
 &nbsp;
 
-Norman emerged from the trench, and with a swing of his spear-axe, filled with holy chi, he broke the magical fire that surrounded him.
+Norman, emerging from the trench, dispelled the magical flames surrounding him with a swing of his halberd infused with holy energy.
 
 *塹壕から出たノーマンが、周りを囲む魔力の炎を聖気を籠めた槍斧の一振りで打ち消した。*
 
 &nbsp;
 
-Cedric Meyer breaks the approaching cadmos knight with a single sword.
+Cedric Meyer cleaved the approaching Cadmus Knight in one stroke.
 
 *セドリック・マイヤーが、迫るカドモスナイトを一刀で断ち割る。*
 
 &nbsp;
 
-Cornel Wallich plays several cadmosites by himself.
+Cornell Walrich single-handedly knocked back several Cadmus Knights.
 
 *コーネル・ウォーリッチが、単騎でカドモスナイト数体を弾き飛ばす。*
 
 &nbsp;
 
-Now, within the "territory" that Howard has opened up, the knights have greatly improved their fighting ability.
+Now, within the territory that Howard had opened, the combat power of the knights had significantly increased.
 
 *今、ハワードが拓いた『領地』内で、騎士達の戦闘力が大きく向上した。*
 
 &nbsp;
 
-With this! Stay crushed! 'Extreme citadel'!"
+"With this! Be crushed!! 'Grand Fortress'!!"
 
 *「これで！潰れてろ！！『極大城塞』！！」*
 
 &nbsp;
 
-Conrad, as if to make a no-holds-barred move, brings his huge battle axe down to the earth and unleashes his skills.
+Conrad slammed his gigantic battle axe into the ground, unleashing his skill.
 
 *コンラッドが、ダメ押しとばかりに巨大な戦斧を大地に打ち下ろし、スキルを放つ。*
 
-The magic power released from the battle-axe that was brought down spread out, creating ripples in the earth, and gave birth to a huge wall formed by magic power around them.
+The magical power released from the struck battle axe spread, creating ripples in the earth, and birthed a massive wall made of magical energy around them.
 
 *打ち下ろされた戦斧から放たれた魔力は、大地に波紋を生じさせながら広がり、彼らの周りに魔力で形作られた巨大な城壁を産み出した。*
 
-The ramparts that were created crushed the three giant undead at once and surrounded them thickly.
+The generated wall crushed three enormous undead at once and thickly surrounded them.
 
 *生み出された城壁は3体の巨大アンデッドを一気に押し潰し、彼らの周りを分厚く囲う。*
 
@@ -2333,11 +2332,11 @@ The ramparts that were created crushed the three giant undead at once and surrou
 
 &nbsp;
 
-Howard uses the power of the "Grand Divider" to create a temporary territory and build the Conrad Wall on top of it. It creates a solid wall in a limited area.
+Howard used the power of the 'Grand Divider' to create a temporary territory and then built Conrad's wall on top of it, forming a solid barrier in a confined space.
 
 *ハワードが『グランドデバイダ』の力を使い暫定的な領地を作りだし、その上にコンラッド城壁を築き上げる。それは限定された領域で堅固な壁を生み出す。*
 
-It is a solid barrier that prevents enemies from attacking from the outside and never lets those inside escape. It was an absolute barrier created in a limited space for a short time.
+This wall would obstruct enemies attacking from the outside and prevent those inside from escaping—a robust barrier. It was an absolute defense created for a brief time within a limited space.
 
 *外から襲い来る敵を阻み、内側に居る者は決して逃がさぬ堅牢な障壁。それは僅かな時間、限定空間に作りだされる絶対防壁だった。*
 
@@ -2345,137 +2344,137 @@ It is a solid barrier that prevents enemies from attacking from the outside and 
 
 &nbsp;
 
-Now you can't escape! You can't escape!
+"With this, you lot can no longer escape! Submit!!"
 
 *「これでテメぇらはもう逃げられ無ぇ！観念しろ！！」*
 
 &nbsp;
 
-Conrad, having exerted all the magic he had worked out, exhaled heavily.
+Conrad, having exhausted his refined magical power, took a deep breath.
 
 *練り上げた魔力を出し切ったコンラッドが、大きく息を吐いた。*
 
 &nbsp;
 
-"You do not like the light of day and always hide in the shadows.
+"You despise the sunlight, always hiding in the shadows."
 
 *「貴様らは陽の光を嫌い、常に陰に隠れ身を潜める」*
 
 &nbsp;
 
-They are like vermin, so to speak," Howard says.
+Howard stated that they were akin to pests.
 
 *謂わば害虫と同じだ　とハワードは言う。*
 
-Marina raises her eyebrows deeply at his words and glares at Howard.
+At those words, Marina furrowed her brow deeply and glared at Howard.
 
 *その言葉にマリーナが深く眉根を寄せ、ハワードを睨む。*
 
 &nbsp;
 
-The higher beings are not afraid to go out in the sun, even in the daytime, but only the light of dawn will truly destroy you. But only the light of dawn will truly destroy you.
+"Annoyingly, higher beings walk about freely even during the day. However, only the dawn's light will truly destroy you."
 
 *「腹立たしい事に、上位の存在は昼間でも陽の下を平気で出歩く。だが、明けの陽光だけは貴様らを真に滅ぼす」*
 
 &nbsp;
 
-Howard pulls out his "Grand Divider," which he thrust into the ground, and takes a stance.
+Howard pulled the 'Grand Divider' from the ground and took his stance.
 
 *ハワードが、地に突き立てた『グランドデバイダ』を引き抜き、構えを取る。*
 
 &nbsp;
 
-No longer will you be able to hide in the shadows. Perish here, vampire!"
+"You can no longer hide in the shadows. Perish here, vampire!"
 
 *「最早、影に隠れ潜む事は叶わん。此処で滅びよヴァンパイア！」*
 
-I'm not sure how we'll be able to fight them now that they've unleashed so much magic! How can we fight as before now that you've unleashed so much magic?"
+"That doesn't seem like something you can manage! Now that you've unleashed such magical power, I wonder if you can fight as you did before?"
 
 *「そんな物、アナタ方をどうにかすれば済むだけの話！これ程の魔力を放った今、これまで通りに戦えるのかしら？」*
 
 &nbsp;
 
-Marina, whose chain that she had extended to pierce the barrier was bounced off the magical wall, turned back to Howard once again and glared into his face.
+Marina, having her chain repelled by the magical wall, turned back to Howard and glared at him.
 
 *障壁を貫こうと伸ばした鎖を、魔力の壁で弾かれたマリーナが改めてハワードに向き返り、その顔を睨めつけた。*
 
 &nbsp;
 
-Although the Knights have improved their combat power, they are still not as good as us.
+Even though the knight order had increased their combat power, they still couldn't match us.
 
 *騎士団は戦闘力を上げたとはいえ、まだ我々には及ばない。*
 
-In fact, Joel, who is seriously on the offensive while protecting Elektra, is still overwhelmed against the two knights.
+In reality, Joel, while protecting Electra, was still overwhelming the two knights with his serious offensive.
 
 *現にエレクトラを庇いながらも、本気で攻勢に出るジョエルは騎士二人を相手に未だ圧倒している。*
 
-After all, it is these people who should truly be alarmed.
+Indeed, the ones to be truly wary of were these individuals.
 
 *やはり、真に警戒すべきはこの者達だ。*
 
-There are not many more hours until dawn, but which of us is really trapped? Let me make it clear here.
+Although dawn was drawing near, which side was truly cornered? I will clarify that here.
 
 *夜明けまではもう幾らも無いが、本当に追い詰められているのはどちらなのか？此処でハッキリさせてやる。*
 
 &nbsp;
 
-"Gather round! The Bloody Chain!
+"Gather! 'Bloodstained Chains'!!"
 
 *「集いなさい！『血塗れの鎖』！！」*
 
 &nbsp;
 
-The marina collects several chains that wave in the vicinity, and each chain is gathered together by the left and right hands.
+Marina gathered the many chains rippling around her and bundled them in her left and right hands.
 
 *マリーナは周辺で波打つ何本もの鎖を集め、それぞれ左右の手で纏めて行く。*
 
-The bundle of chains, which is more than a meter long, is made up of more than a dozen strands of rope.
+Several chains intertwined and were bound together, forming a bundle that exceeded one meter in length.
 
 *十数本の鎖を依り合せ纏め上げ、綱の様に束ねられた鎖の束は1メートルを超える。*
 
-Marina maneuvered it like a giant whip and brought it down on Howard with a force that crushed the atmosphere.
+Marina wielded it like a gigantic whip, striking down toward Howard with enough force to crush the air.
 
 *それをマリーナは巨大な鞭の様に操り、大気を押し潰す勢いでハワードに向かい打ち下ろした。*
 
-Howard, however, easily avoided this problem, carrying a large sword on his shoulder, as if he were taking a stroll.
+However, Howard easily dodged it as if he were merely taking a stroll, with the great sword still slung over his shoulder.
 
 *しかしそれをハワードは、大剣を肩に担いだまま、散歩でもする様な気軽な足運びでスルリと躱す。*
 
-The avoided chain strikes the earth, sending heavy vibrations echoing around the area and heavily chipping away at the black rocky earth.
+The avoided chain struck the ground, resonating with a heavy vibration and significantly carving the black rocky earth.
 
 *避けられた鎖は大地を打ち、重い振動を辺りに響かせながら、黒い岩の大地を大きく削る。*
 
-The chains flexed again like a wall as Howard dodged to the side, cutting into the ground.
+As it scraped the earth, the chain swayed again, closing in on Howard like a wall.
 
 *地を削りながら、横へと避けたハワードに向かい、再び鎖が大きく撓りながら壁の様に迫る。*
 
-Furthermore, another whip of chains was struck down.
+Additionally, another chain whip was swung down.
 
 *更に、もう一本の鎖の鞭が打ち下ろされた。*
 
-The two walls are closing in on Howard as if they were sandwiched between each other, scraping away at the rocks.
+With a grinding sound, the two walls moved in to sandwich Howard.
 
 *ガリガリと岩を削りながら、ハワードを挟み込む様に二つの壁が迫る。*
 
-Marina chuckled coldly as she saw the chain whip flexing and closing in around Howard.
+Seeing the chains bend and close in on him, Marina coldly smirked.
 
 *撓りながら、ハワードを囲い込む様に迫る鎖の鞭を見て、マリーナが冷たくほくそ笑んだ。*
 
 &nbsp;
 
-But just when it looked like the chains were going to crush Howard, a chunk of the chain exploded like an explosion.
+However, just as the chains seemed ready to crush Howard, the mass of chains exploded like a bomb.
 
 *だが、鎖がハワードを押し潰すと見えたその時、爆発でもする様に鎖の塊りが爆ぜ飛んだ。*
 
-As Marina stares wide-eyed in astonishment, Howard uses his mighty sword to break off the oncoming chains one after another.
+While Marina stared in astonishment, Howard sliced through the approaching chains one after another with his mighty sword.
 
 *マリーナが驚愕に目を見開き見つめる中、ハワードはその剛剣で、迫る鎖を次々と断ち切って行く。*
 
-The whip of the chain, which should have had overwhelming mass, was shredded at first glance, and the chain was scattered into pieces.
+The chain whip, which was supposed to possess overwhelming mass, was swiftly severed, scattering the chains in every direction.
 
 *圧倒的な質量を持っていた筈の鎖の鞭は、見る見る削ぎ落とされ、鎖がバラバラに散り飛ばされて行った。*
 
-Howard's eyes, which were constantly swinging his sword, were lit up with a pale light, and he was looking at Marina from behind the chains.
+As Howard continued to swing his sword without pause, his eyes glowed with a faint light as he locked onto Marina beyond the chains.
 
 *間断無く剣を振るい続けるハワードの眼は、淡い光を灯し、鎖の向こうからマリーナを見据えていた。*
 
@@ -2483,313 +2482,313 @@ Howard's eyes, which were constantly swinging his sword, were lit up with a pale
 
 &nbsp;
 
-Joel, who had just overwhelmed the two knights, was now struck down by a battle-axe wielded by Conrad.
+Joel had previously overwhelmed the two knights, but now he was struck and sent flying by Conrad's swinging battle axe.
 
 *ジョエルは、先程まで2人の騎士を圧倒していたが、今、コンラッドの振るう戦斧に打ち飛ばされた。*
 
-Elektra pressed her wounds and used her flames to cover Joel, but she was cornered by Gilberto's standoff and went on to inflict even more wounds.
+Electra was pressing her wounds and using fire to support Joel, but she was being cornered by Gilbert's maneuvers, sustaining more injuries.
 
 *エレクトラは傷を押し、炎を使いジョエルの援護に回っていたが、ジルベルトの立ち回りに追い詰められ、更に傷を増やして行った。*
 
 &nbsp;
 
-Marina took one look at the battlefield and bit her lip.
+Marina bit her lip as she glanced around the battlefield.
 
 *戦場を一瞥したマリーナは唇を噛み締めた。*
 
 &nbsp;
 
-The sun will be up in a few minutes. It's no time to be coy or pretentious.
+This was bad; dawn would arrive in just a few minutes. There was no longer a time for hesitating or worrying about appearances.
 
 *不味い、もう数分で陽が昇る。最早出し惜しみも、なりふりも構っている場合では無い。*
 
 &nbsp;
 
-Marina leapt backward, distancing herself from Howard and kneading her magic on the spot.
+Marina jumped back, distancing herself from Howard while gathering her magical power.
 
 *マリーナは後方に跳び、ハワードから距離を取りその場で魔力を練り上げた。*
 
-He raises his hands above his head, rubbing them together, and concentrates the magic into his palms.
+As she rubbed her hands together and raised them above her head, she concentrated her magical power into her palms.
 
 *両手を擦り合わせる様にしながら頭上に掲げ、魔力を掌中に収束させる。*
 
-The chains extending from both arms are condensed and clumped together, as if in response to the converged magical power, further above the hands above the head.
+In response to the accumulated magical power above her head, chains extended from both arms, condensing into a mass.
 
 *頭上に掲げた両手の更に上に、収束された魔力に呼応する様に、両腕から伸びる鎖が凝縮し塊りになって行く。*
 
-Furthermore, the chains that have been shredded and broken into pieces are also gathered together, and the mass becomes larger and larger.
+Furthermore, the severed and fragmented chains gathered, forming an even larger mass.
 
 *更に、千切られ、欠片となった鎖も集まり、塊が依り巨大になる。*
 
-Soon there was a huge sphere of chains more than 20 meters in diameter, spinning with the chains making a gurgling sound.
+Before long, a gigantic sphere of chains, over 20 meters in diameter, began to take shape, clanking and rotating.
 
 *やがてそこには、鎖がゴリゴリと音を立て動き回転する、直径20メートルを超える巨大な鎖の球体が出来上がっていた。*
 
 &nbsp;
 
-The sphere of the chain continues to grow in size.
+The chain sphere continued to grow larger.
 
 *鎖の球体は尚も大きさを増して行く。*
 
-Marina's face, which is a reflection of her having squeezed her magical power to the utmost limit, shows not the slightest sign of complacency.
+Marina's face, squeezed to the limit of her magical power, bore no hint of ease.
 
 *自身の極限まで魔力を絞り込んだマリーナの面持ちに、余裕の色は微塵も無い。*
 
 &nbsp;
 
-Nuh?
+"Huh?!"
 
 *「ぬぅ？！」*
 
 &nbsp;
 
-Howard roars at the hint of magic condensed outside of its bounds.
+At the presence of the concentrated magical power outside of her realm, Howard growled.
 
 *その埒外に凝縮された魔力の気配に、ハワードが唸る。*
 
 &nbsp;
 
-Even if the wall can't be penetrated from the outside or the inside, the damage can still be done from this inside to the inside, right?"
+"Even if the walls cannot be breached from the outside or inside, damage can still be inflicted from within, right?"
 
 *「外からも内からも壁が貫けなくとも、この内から内へならダメージは通るわよね？」*
 
 &nbsp;
 
-The excessive supply of magical power causes the capillaries in Marina's arms to break and drip blood.
+Due to the excessive supply of magical power, Marina's capillaries burst, and blood dripped down.
 
 *過剰な魔力の供給により、マリーナの腕の毛細血管が切れ、血を滴らせる。*
 
 &nbsp;
 
-Joel! Elektra! Avoid them! They will all perforate the land!
+"Joel! Electra! Get back!! I will pierce this land along with them!!!"
 
 *「ジョエル！エレクトラ！避けなさい！！彼等諸共この地を穿ちます！！！」*
 
 &nbsp;
 
-I won't let you!
+"I won’t let you!!"
 
 *「させはせんよ！！」*
 
 &nbsp;
 
-Howard bends his body like an archer, points the tip of his sword held next to his face in front of him, and sits down deeply.
+Howard bent his body as if drawing a bow, pointing the tip of his sword toward the front, lowering his stance deeply.
 
 *ハワードが弓引く様に身体を撓らせ、顔の横に構えた剣の切っ先を正面に向け、深く腰を落とす。*
 
-The magic seal on the equipment shines brightly.
+The magic inscriptions on his equipment shone brightly.
 
 *装備の魔法印が一際光を放つ。*
 
-One or two beams of light run down the flame-shaped shoulder strap, through the arm, and flow into the black great sword.
+Flames took the shape of light, running along his arms, flowing into the black great sword.
 
 *焔を模った肩当に一本、二本と光が走り、腕を通じ、黒い大剣へと流れ込む。*
 
-The magic power in the great sword becomes a blue glow and is converged toward the tip of the sword.
+The magical power contained within the great sword shone blue, converging toward the tip.
 
 *大剣へ込められた魔力が蒼い輝きとなり、切っ先へと向け収束されて行く。*
 
 &nbsp;
 
-Destroy Brit."
+"Destroy Blade!"
 
 *『デストロイブリット』*
 
 &nbsp;
 
-Shaking the atmosphere, the blue flash strikes a blow that destroys the enemy before its face.
+With a roar that shook the atmosphere, the blue flash unleashed a blow meant to annihilate the enemies before it.
 
 *大気を震わせ、蒼き閃光がその面前の敵を滅する一撃を叩き込む。*
 
-The roar that shook the area and echoed through the air told of the severity of the flash.
+The thunderous sound resonated around, illustrating the ferocity of the flash of light.
 
 *辺りを震わせ響くその轟音が、閃光の凄まじさを物語る。*
 
-The huge sphere of chains, which was supposed to pierce the earth, was swallowed by the shock of the blue light, and disappeared in shreds.
+Swallowed by the blue light's impact, the gigantic sphere of chains, which was supposed to pierce the earth, was shredded into tiny pieces and disappeared.
 
 *蒼い光の衝撃に呑まれ、大地を穿つはずだった巨大な鎖の球体が、細々に千切れ消えて行く。*
 
 &nbsp;
 
-"Ah ......, ah ............ gi......ii! Gup?
+"Ah... ah... gu...?! Gulp?!"
 
 *「あ……、ぁ…………ぎ……ぃ！！ぐぷっ？！」*
 
 &nbsp;
 
-The shock of the ao swallows Marina along with the chain.
+Caught in the blue shockwave, Marina was engulfed along with the chains.
 
 *蒼の衝撃に、鎖と共にマリーナも飲まれて行く。*
 
-The black great sword that released the shock further pierced Marina as she was tossed around by a wave of shock that shredded her limbs.
+As the waves of impact threatened to tear her limbs apart, the black great sword that had unleashed the shockwave further pierced Marina.
 
 *四肢が千切れるほどの衝撃の波に翻弄される中、その衝撃を放った黒い大剣が更にマリーナを穿つ。*
 
 &nbsp;
 
-The marina was carried straight up to a large tree that was behind it.
+Marina was propelled backward into a large tree that had been standing nearby.
 
 *マリーナはそのまま、後方にあった大樹にまで突き運ばれる。*
 
-The great tree had been subjected to a devastating impact, its branches and leaves snapped off and snapped in half, resembling a giant stake standing tall against the earth.
+The tree, exposed to the violent shock, lost branches and leaves, bending and breaking in half, becoming like a massive stake driven into the ground.
 
 *大樹は、荒ぶる衝撃に晒され、枝葉は折れ飛び、半ばでへし折られ、大地に突き立つ巨大な杭の様になっていた。*
 
-Marina was poked in the abdomen by a large black sword, which struck her vigorously on the stake.
+Marina was impaled in the abdomen by the black great sword and slammed hard against the stake.
 
 *マリーナは黒い大剣に腹部を突かれ、その杭に勢い良く打ち付けられた。*
 
 &nbsp;
 
-Gee! Geeaaaah! Geeaaaahhhhh!!!!"
+“Gah! Gyaaa!! Giiiaaaahhh!!!”
 
 *「ぎっ！ぎぁああ！！ぎぃあっぁああぁぁぁーーーー！！！」*
 
 &nbsp;
 
-The "Grand Divider," which was thrust deeply into the abdomen and driven into the stake with the entire marina, was radiating holy air with the blade emitting a blue phosphorescence.
+The "Grand Divider," deeply embedded in her abdomen, had driven Marina against the stake, its blade glowing with a blue phosphorescent light, radiating holy energy.
 
 *腹部に深々と突き立てられ、マリーナごと杭に打ち付けた『グランドデバイダ』は、刀身が蒼く燐光を放ち聖気を放っていた。*
 
-The abdomen of the marina, into which the blade bites, continues to sizzle with white smoke and burn with holy qi.
+The part of the blade that penetrated Marina's abdomen hissed and emitted white smoke, continuing to burn with the holy energy.
 
 *刀身の食込むマリーナの腹部は、シュウシュウと白い煙を上げ、聖気に焼き続けられている。*
 
-Marina's arms, which she screams incessantly, are missing from the elbows onward, still smoking white smoke and showing no sign of repair.
+Marina, continuously screaming in agony, had lost her arms below the elbows, and there was no sign of them repairing as they too emitted white smoke.
 
 *絶え間なく絶叫を上げ続けるマリーナの両腕は、肘から先が失われ、やはり白い煙を上げ修復される様子も無い。*
 
-Most of the bondage they were wearing had been ripped off and no longer served as equipment.
+The bondage she wore was mostly torn apart, and it no longer served its purpose as armor.
 
 *身に纏っていたボンデージも、殆どが千切れ飛び、装備としての役割は最早なしていなかった。*
 
 &nbsp;
 
-The silver-white hair, which had been held together, was shredded and unraveled, and the head of Marina, who was swinging wildly, was disheveled in an inverted manner.
+Her once collected silver hair was now shredded and unruly, wildly flailing around as Marina thrashed about.
 
 *纏め上げられていた白銀の髪も千切れ解け、暴れ振り回すマリーナの頭で、逆立つように乱れていた。*
 
-His eyes are bright red and wide open, his mouth is wide open, his fangs are viciously long, and he looks exactly like a vampire.
+Her eyes were wide and dyed bright red, her mouth was split wide open, and her fangs were unnaturally long, embodying the visage of a vampire.
 
 *その眼は真っ赤に染まり見開かれ、口元は大きく裂け、牙は凶悪な長さを持ち、正に吸血鬼に相応しい形相だ。*
 
-He was crying tears of blood, spilling blood like foam from his mouth as well, and blood was dripping all over his pale blue body, creating a pool of blood at his feet in a blotch.
+With tears of blood streaming down her cheeks and blood bubbling from her mouth, it dripped from her pale blue body, forming a pool of blood at her feet.
 
 *血の涙を流し、口からも泡の様に血を零し、薄青い全身に血が垂れ、ボタボタと足元に血溜まりを作っていた。*
 
-He flails his arms and legs in an attempt to break free from the stakes to which he is sewn, but he is never freed from the "grand divider" that has been attached to him.
+As she thrashed about trying to escape from the impaling stake, there was no way for her to free herself from the embedded "Grand Divider."
 
 *縫い付けられた杭から脱しようと、手足をバタつかせ暴れるが、打ち付けた『グランドデバイダ』から解放される事は無い。*
 
 &nbsp;
 
-Howard stabbed his greatsword even deeper.
+Howard further plunged the great sword deeper into her.
 
 *ハワードは更に大剣を深く刺し入れた。*
 
-The vampire screamed a squeezing scream, blood spraying out of his mouth and flying.
+Marina screamed as if squeezing out her very insides, blood spraying from her mouth as she continued to wail.
 
 *ヴァンパイアが絞り上げる様な絶叫を、口から血を吹出し、飛ばしながら叫び上げた。*
 
 &nbsp;
 
-Behind Howard, he could see the distant peaks of the mountains beyond the space where the trees had fallen and become sparse.
+Howard's back was facing a space where trees had fallen, allowing a view of distant mountain peaks.
 
 *ハワードの後方には、木々が倒され疎らになっている空間から先に、遠くの山々の峰が見通せた。*
 
-The sun is now rising over the hollowed valley, illuminating the surrounding clouds and spreading a dawn-colored sky.
+Now, from the sunken valley, the sun was beginning to rise, illuminating the surrounding clouds, painting the dawn sky.
 
 *今、その窪んだ谷間部分より昇ろうとする陽が、周りの雲を照らし出し、暁色の空が広がって行く。*
 
-The sun showed its brilliance just before its appearance, extending a pillar of light from the valley of the mountain range toward the sky.
+The sun showcased its radiance just before appearing, sending beams of light up into the sky from the mountain valley.
 
 *太陽は姿を見せる直前の輝きを、山脈の谷間から空に向かい光の柱を伸ばして見せた。*
 
 &nbsp;
 
-Howard, with his light on his back, grips his great sword and tells the rampaging vampire to flee the sunlight.
+Carrying that light on his back, Howard gripped his great sword and spoke to the vampire, who was thrashing about trying to escape the sunlight.
 
 *ハワードはその光を背負ったまま、大剣を握り、陽の光から逃げようと暴れるヴァンパイアに語る。*
 
 &nbsp;
 
-O you who seek to gain eternity by sacrificing the living! He who refuses the rising of the sun, how can he gain tomorrow? From now on, let the time tick by in your body again!
+“O you who seek eternity at the expense of the living! There is no way for those who refuse the dawn to attain tomorrow! From now on, let your body once again mark the passage of time!!”
 
 *「生者を贄に永劫を得ようとする者よ！陽の出を拒む者が、明日を得られる道理が無い！今より、再びその身に時を刻むが良い！！」*
 
 &nbsp;
 
-Soon, a glowing light circled the mountain valley and descended to the surface. Howard's back shines in the light.
+Eventually, the rays of light descended into the valley, reaching the ground. Howard's back gleamed with the light.
 
 *やがて光芒が、山谷を廻り地表へと降りて来た。ハワードの背が光を受け輝く。*
 
-And the light of the rising sun envelops the vampire.
+Then, the light of dawn enveloped the vampire.
 
 *そして陽の出の光がヴァンパイアを包む。*
 
 &nbsp;
 
-Aaagiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii! Giiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii!"
+“Uuuuughh!! Gyaaaahhhhhh!!!”
 
 *「ぁあぎぃいい！ぎゃぁあぁあぁぁぁぁああああああーーーーーーーーーーーーーーーー！！！」*
 
 &nbsp;
 
-Burned by the purifying light, the vampire squeezes out a cry of despair.
+Burned by the pure light, the vampire screamed in despair.
 
 *清浄なる光に焼かれ、ヴァンパイアが絶望の叫びを絞り出す。*
 
 &nbsp;
 
-Ma, Marina! Marina!
+“Marina! Marina!!”
 
 *「マ、マリーナ！マリーナぁ！！」*
 
-Oh, shit. ......!
+“Ugh, argh...!!”
 
 *「ぅあ、くっ……！！」*
 
 &nbsp;
 
-Joel and Elektra try to reach out to those being burned, but they are forced to back away by the sunlight that is closing in on them.
+Joel and Electra reached out towards the one being burned, but they recoiled from the sunlight that was approaching them as well.
 
 *ジョエルとエレクトラが焼かれる者に手を伸ばそうとするが、自らにも迫る陽の光に後ずさる。*
 
-Even for those two, Conrad and Gilbert raise their weapons when it's time to settle the score.
+Both of them were met with Conrad and Gilbert, who raised their weapons, declaring it was time to settle the score.
 
 *その二人にも、コンラッドとジルベルトが決着の時だと武器を上げる。*
 
 &nbsp;
 
-"It's over. At least I'll get it over with.
+“This is the end. At the very least, I will finish this quickly for you.”
 
 *「仕舞いだ。せめてもだ、直ぐに終わらせてやる」*
 
 &nbsp;
 
-Two vampires looked up at Conrad with their reddened eyes wide open and their hands on the ground.
+The two vampires, their eyes tinged red, looked up at Conrad while on their hands and knees.
 
 *二体のヴァンパイアが、赤く染まった目を見開き、地に手を付いたままコンラッドを見上げた。*
 
 &nbsp;
 
-Burn in the morning sun and perish, vampire!
+“Be burned by the morning sun, and perish, vampire!!!”
 
 *「朝陽に焼かれ、滅せよヴァンパイア！！！」*
 
 &nbsp;
 
-The vampire's skin, bathed in sunlight, bubbles like a boil.
+The skin of the sunlit vampire began to bubble as if boiling.
 
 *陽光を浴びたヴァンパイアの肌が、沸騰する様に泡立つ。*
 
-The vampire, who was burning himself, flailed his arms and legs violently in an attempt to escape, and continued to scream as if he were tearing up the earth, put more strength into his hand holding the great sword to further energize it.
+Despite being scorched, the vampire thrashed desperately, attempting to escape, unleashing a shrill cry that split the earth as it continued to scream. Howard tightened his grip on the great sword to infuse it with even more holy energy to deliver the final blow.
 
 *その身を焼かれながらも、逃げ出そうと手足を激しくバタつかせ、地を裂く様な叫喚を上げ続けるヴァンパイアに止めを刺そうと、更に聖気を籠めるべく、大剣を握る手に力を入れた。*
 
 &nbsp;
 
-At that time -------- --------
+At that moment――――――――――――――――
 
 *その時――――――――――――――――*
 
@@ -2831,83 +2830,81 @@ Shadows covered the world.
 
 &nbsp;
 
-Howard's entire body hair stood on end at that moment, and he instinctively took defensive action.
+In that moment, Howard felt every hair on his body stand on end, instinctively taking a defensive stance.
 
 *ハワードはその瞬間、全身の毛が逆立ち、本能的に防御行動を取っていた。*
 
-A moment later, he caught the impact with the "Grand Divider" he pulled out of the vampire as a shield, but was sent flying backward.
+For an instant, he absorbed the shock with the "Grand Divider," which he had taken from the vampire, but was still blown backwards.
 
 *一刹那、ヴァンパイアから抜き取った『グランドデバイダ』を盾に衝撃を受け止めたが、そのまま後方へと弾き飛ばされた。*
 
 &nbsp;
 
-Ggghh ......, nooooo?
+“Guh... n-no?!”
 
 *「ぐっ……、ぬぅ？！」*
 
 &nbsp;
 
-At the same time, Conrad's chest was slashed sideways and Gilbert also spurted blood from his back.
+At the same time, Conrad's chest was slashed open horizontally, and Gilbert coughed blood from his back.
 
 *それと同時に、コンラッドの胸元が横に切り裂かれ、ジルベルトも背中から血を噴いた。*
 
-Conrad blew out a gopuri of blood from his mouth, shook the earth, and fell to the ground.
+Conrad spat out blood and fell to the ground, shaking the earth as he did so.
 
 *コンラッドは　ゴプリ　と口から血を吹出し、大地を揺らして地に伏した。*
 
 &nbsp;
 
-"Hey, Marina. While I haven't seen you for a while, you've become quite a nice girl, haven't you? Ha-ha-ha!
+“Hey, Marina. It’s been a while, and you’ve become quite the lovely lady! Hahaha!”
 
 *「よう、マリーナ。ちぃと見ねェ間に、随分イイ女になったじゃ無ェか！クハハッ！」*
 
-"...... Ha, Halbert ...... Sir!"
+“...M-Master Halbert...”
 
 *「……ハ、ハルバート……様ぁ」*
 
 &nbsp;
 
-The shadow spoke the words.
+The shadow spoke.
 
 *影が言葉を発した。*
 
-In his arms, the vampire, burned all over, clutches at the shadows.
+In its arms, a vampire, its entire body burned and charred, clung to the shadow.
 
 *その腕の中で、全身焼け爛れたヴァンパイアが影に縋り付く。*
 
 &nbsp;
 
-Shadows linger and sway, blocking the morning sun.
+The shadow swayed, blocking out the morning sun.
 
 *朝日を遮り影がユラリと揺れる。*
 
-It stood on the edge of a crumbling silvery-white wall, looking down on Howard and his friends from above.
+It stood on the edge of a crumbling silver wall, looking down at Howard and the others from above.
 
 *それは崩れかけた白銀の壁の淵に立ち、上からハワード達を見下ろしていた。*
 
 &nbsp;
 
-Kuha! Did you think the dawn is hope? Kuhahahaha!
+“Hah! Did you think dawn was a symbol of hope? Hahaha!!”
 
 *「クハッ！夜明けは希望だとでも思っていたか？クハハハッ！！」*
 
 &nbsp;
 
-A man standing in the shadows denies the dawn.
+The man standing within the shadow denied the dawn.
 
 *影の中に立つ男が、暁を否定する。*
 
-The shadow that the man wears wriggles and spreads wide, covering those present.
+The shadow surrounding him squirmed and expanded, engulfing those present.
 
 *男が纏う影が蠢き大きく広がり、その場に居る者を覆って行く。*
 
 &nbsp;
 
-Now, despair in the name of Hulbert East has descended upon the land.
+Now, despair named Halbert East had descended upon that land.
 
 *今、ハルバート・イーストと云う名の絶望が、その地に降り立った。*
-
-
 
 &nbsp;
 
@@ -2917,19 +2914,18 @@ Thank you for reading!
 
 *お読み頂きありがとうございます！*
 
-I'm really glad to hear your buzz and appreciation!
+I truly appreciate the bookmarks and ratings!!
 
 *ブクマ、ご評価、本当にうれしいです！！*
 
 &nbsp;
 
-Finally, next is the hero's turn...
+Finally, it’s the protagonist’s turn... (≡ω≡;)
 
 *やっと次が主人公のターン・・・(≡ω≡;)*
 
 &nbsp;
 
-Next "Suzy Cloud's Chest Throb"
+Next time: “Suzie Cloud's Unease”
 
 *次回「スージィ・クラウドの胸騒ぎ」*
-
