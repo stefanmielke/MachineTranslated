@@ -15,7 +15,7 @@
 1. [Episode 05: Enjoying the Suzi Highlands Lake](out/chapter_0005.md)
 1. [Episode 06: Suzy and the Gatekeeper](out/chapter_0006.md)
 1. [Episode 07: Suzy and the White Mountain Range](out/chapter_0007.md)
-1. [08話　スージィ氣を使う](out/chapter_0008.md)
+1. [Episode 08: Suzie Uses Ki](out/chapter_0008.md)
 1. [Episode 09: Suzy Searches for Food](out/chapter_0009.md)
 1. [Episode 10: Meeting Suzy the Pig](out/chapter_0010.md)
 1. [Episode 11 Epilogue: Suzy in a Great Fluster](out/chapter_0011.md)
