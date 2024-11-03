@@ -1,4 +1,4 @@
-# 210話　コリドーナの涙
+# Chapter 210: Coridona's Tears
 
 ## 210話　コリドーナの涙
 

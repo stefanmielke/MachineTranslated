@@ -1,4 +1,4 @@
-# 幕間1　海へ行こうよ！
+# Interlude 1: Let’s Go to the Sea
 
 ## 幕間1　海へ行こうよ！
 
@@ -462,7 +462,7 @@ Next time, during summer vacation, a story about when we all went hunting.
 
 *次回も同じく夏休み中、皆と狩りに行った時のお話し。*
 
-“幕間2　狩りへ行こうよ！”
+"Interlude 2: Let’s Go Hunting!"
 
 *『幕間2　狩りへ行こうよ！』*
 
