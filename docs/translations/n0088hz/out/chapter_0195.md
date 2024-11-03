@@ -1,4 +1,4 @@
-# 家賃代わりに作ってもらいますか？
+# Shall I have them make it in exchange for rent?
 
 ## 家賃代わりに作ってもらいますか？
 

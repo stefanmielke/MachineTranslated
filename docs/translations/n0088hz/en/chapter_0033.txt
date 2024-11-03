@@ -1,8 +1,8 @@
-# 港町ヴェーラルドの商人ギルド
+# Merchant Guild of the Port Town Veraldo
 
-（そういえばイトコが子供産んでました。おめでとう！
+(Oh, by the way, my cousin had a baby. Congratulations!
 
-……私より年下なんだわ。あー、私も結婚してぇわぁ……）
+...She’s younger than me. Ah, I want to get married too...)
 
 ----------------
 
@@ -12,193 +12,193 @@
 
 <b>
 
-私カリーナ、裸の付き合いでオバちゃんたちは大体トモダチ。若い子もちらほらいたんだけどなぁ、みんな遠巻きにしてたなぁ。
+I, Karina, have a pretty close relationship with the aunties through nudity. There were a few younger girls too, but they kept their distance.
 
-なんでぇ？　下心バレてた？　ぷるぷる、私悪い女の子じゃないよぅ。
+Why is that? Did they see through my ulterior motives? Shiver, I’m not a bad girl.
 
-お酒の力を借りねば女の子と仲良くはなれぬというのか……
+Is it that I can’t get close to girls without the help of alcohol...?
 
-いや、おばちゃん達が女の子じゃないとは言わないけどさ。うん。
-
-<b>
+Well, I’m not saying the aunties aren’t girls. Yeah.
 
 <b>
 
-と、いうわけで。お風呂ですっかり綺麗になった私がやってきました商人ギルド！
+<b>
+
+So, here I am, all cleaned up from the bath, arriving at the Merchant Guild!
 
 <b>
 
-オバちゃん達にも「ほらココしっかり洗わないと！」「耳の後ろ忘れがちだからねぇ」「なんだ尻尾は無いのかい。てっきりアレな時期の獣人かと」とか言われつつばっちり体中を洗ったので、もう体臭を気にする必要はないってなもんよ。
+The aunties were saying things like, “Hey, make sure to wash this part well!” “Don’t forget behind your ears,” and “What, you don’t have a tail? I thought you were a beastman in that time of the month,” while I thoroughly washed my whole body, so I don’t have to worry about body odor anymore.
 
-少なくとも今日明日くらいは。
-
-<b>
-
-「さーて、お酒買ってくれるとこあるかなー、そしてローション仕入れねば」
+At least for today and tomorrow.
 
 <b>
 
-サティたん曰く、商人ギルドに聞けばお酒を売れるお店とかを教えてくれるらしい。
-
-ヴェーラルドなら少し利益が出る（経費込み）し、ローションも十分買えるだろうとの事だ。どのくらい買えるかなー。
+“Alright, I wonder if there’s a place to buy alcohol, and I need to stock up on lotion.”
 
 <b>
 
-そんなワクワクした気持ちで商人ギルドに足を踏み入れたところ、中に海賊が居ました。
+According to Sati, if I ask at the Merchant Guild, they’ll tell me where I can buy alcohol.
 
-んんー？
-
-<b>
-
-「あれ、ここって商人ギルド……ですか？」
-
-「そうだが」
+In Veraldo, I should be able to make a bit of profit (including expenses), and I should be able to buy enough lotion. I wonder how much I can buy.
 
 <b>
 
-嘘ぉ！？　バンダナを巻いた船員やら、ドクロマーク付きの船長帽を被った厳つい眼帯のオッサンやら、どうみても海賊なんだが！？　どう見ても海賊のアジトなんだが！？
+With that excited feeling, I stepped into the Merchant Guild, only to find pirates inside.
 
-あるいは海賊に制圧された後の酒場なんだが！？
-
-<b>
-
-「あー……お嬢さん、ヴェーラルドは初めてか？」
+Hmm?
 
 <b>
 
-私が呆気に取られていると、職員らしい男の人が話しかけてきた。
+“Is this the Merchant Guild...?”
+
+“Indeed it is.”
 
 <b>
 
-「あ、はい。初めてです」
+No way!? There are crew members with bandanas, and a gruff old man wearing a captain’s hat with a skull mark and an eye patch—clearly pirates! This looks like a pirate hideout!
 
-「なら今お嬢ちゃんは『まるで海賊のアジトだ』と思ったことだろう」
-
-「ええ、まぁ」
-
-「大体合ってる。海賊は海の商人の一種だしな」
+Or maybe it’s a tavern that was taken over by pirates!?
 
 <b>
 
-海賊――私掠船乗務員。交易許可のない船から積み荷を奪うことを生業とする者たち。なんと国の許可を得ている『公務員』であるらしい。
+“Ah... Miss, is this your first time in Veraldo?”
 
 <b>
 
-そうなのか……じゃあ勝手に海賊を襲ってお宝奪うとかしちゃだめなのかぁ。
+As I stood there dumbfounded, a man who seemed to be a staff member approached me.
 
 <b>
 
-「丁度彼らも一仕事終えたところでね。興奮状態だから近づかない方が良いよ。それで何の用かな」
+“Ah, yes. It’s my first time.”
 
-「あ、はい。酒を売れる場所とローションを仕入れられる場所を教えてください」
+“Then you must be thinking, ‘This is just like a pirate hideout.’”
 
-「酒免許は無いってことだね、了解。ローションは粉末のかい？　酒問屋は――」
+“Well, yes.”
 
-<b>
-
-「おう！　酒か！　俺が買ってやろうか！　丁度酒が欲しかったんだ」
+“You’re mostly correct. Pirates are a kind of maritime merchant.”
 
 <b>
 
-私と職員さんの話に割り込んでくる海賊の人。船長っぽい偉そうな帽子に眼帯だ。
-
-この世界の人よく絡んでくるんだけどなんなん？　あ、私が美人だからか？
+Pirates—privateers. Those who make a living by plundering cargo from ships without trade permits. Apparently, they are “public servants” with the country’s permission.
 
 <b>
 
-「職員さん、この人酒免許持ってます？」
-
-「……持ってないね。３本までなら個人取引としていいところだけど」
-
-「じゃあ３本だけかなぁ。代金は――」
-
-「ほらよっ！」
+I see... So I can’t just go around attacking pirates and stealing their treasure.
 
 <b>
 
-そう言って、ちゃりんちゃりん、と銅貨３枚を投げてくる。
+“They just finished a job, so it’s best not to get too close. Now, what do you need?”
 
-床に散らばる３枚の銅貨。
+“Ah, yes. Please tell me where I can buy alcohol and where I can stock up on lotion.”
 
-<b>
-
-あん？
+“So you don’t have an alcohol license, understood. Is the lotion powdered? The alcohol wholesaler is—”
 
 <b>
 
-「さっさと拾えよ。ああ、お前を一晩買ってやってもいいぞ」
-
-「職員さん、あの人お金落としましたよ。それとも喧嘩を売りに来たんですかね」
-
-「ちょ、ゴメスさん！！　ギルド員同士の揉め事は御法度ですよ！」
-
-「いいじゃねぇか。ローションとかも聞こえたぞ？　お前が使うんだろ、相手してやるよ」
+“Hey! Alcohol, huh? I’ll buy it for you! I was just wanting some alcohol!”
 
 <b>
 
-そう言って酒臭い息で肩を抱こうとしてきたので、私はするりと身をかわした。
+A pirate interrupted my conversation with the staff member. He looks like a captain with a fancy hat and an eye patch.
 
-せっかく風呂屋で綺麗にしてきたのに汚い手で触るんじゃねぇよ？
-
-<b>
-
-まったくブレイド先輩とは大違い――いや、よく考えるとブレイド先輩もこんな感じだったっけ？　うーん、このゴメスってのもいい人だったりするんだろうか……
+People in this world often get involved in conversations, but why? Oh, is it because I’m beautiful?
 
 <b>
 
-「フッ、私を買いたければ金貨１００枚持ってくるんだな、酔っぱらい」
+“Staff member, does this guy have an alcohol license?”
 
-「１００枚か？　そうだなぁ、俺の女になるなら考えてやらんでもないぜ」
+“...He doesn’t have one. You can do personal transactions for up to three bottles.”
 
-<b>
+“Then just three bottles, I guess. The payment is—”
 
-ブレイド先輩を撃退した私の決め台詞に海賊ゴメスがそう返す。
-
-マジかよ。海賊そんな稼げんの？
+“Here you go!”
 
 <b>
 
-「いやまぁダメだけどな。めっちゃケチみたいだし」
+Saying that, he tossed three copper coins with a clink.
 
-「は？　俺様のどこがケチだって？」
-
-「頭も悪いの？　そこの銅貨３枚とかドケチの証明じゃん。そんなちっちぇえ男に靡く女なんていねーわ」
+Three copper coins scattered on the floor.
 
 <b>
 
-しかも「やる」じゃなくて「考えてやる」だし。結局くれないやつじゃん。
+Huh?
 
 <b>
 
-「だ、だ、だ、誰がちっちぇぇだと！？」
+“Pick it up quickly. Ah, I could buy you for a night, you know.”
 
-「お？　この程度で怒っちゃう器の小さい男がいるのかなぁー？　どこどこー？　小さすぎて見えないヤツぅー？　小指よりちいさいヤツなんておりゅぅー？」
+“Staff member, that guy dropped money. Or is he here to pick a fight?”
 
-「ーーーーッ！！！！」
+“W-Wait, Gomez! Guild members fighting is forbidden!”
 
-<b>
-
-あらあら、ゴメスさんお顔が真っ赤ですことよ？
-
-そんなに私が小指クイクイ曲げる仕草に興奮しちゃった？
+“Isn’t it fine? I heard something about lotion too, right? You’re going to use it, so I’ll take care of you.”
 
 <b>
 
-「ちょ、あなた何煽ってるんですか！」
+Saying that, he tried to put his alcohol-smelling arm around me, so I swiftly dodged.
 
-「えー？　やだなぁ職員さん。これで怒るのは自分の器が小さいと認めるってことでしょ？　器の大きい人なら全く関係ない話だって。ん？　まさか職員さん、ここにそんな器の小さい人がいるとおっしゃってる？」
-
-「…………いえ、その！？」
-
-「フーッ、フーッ……！」
+I just got cleaned up at the bathhouse, don’t touch me with those dirty hands!
 
 <b>
 
-ごめんねー、職員さん。巻き込んじゃって。
+What a difference from Blade-senpai—wait, thinking back, Blade-senpai was like this too, wasn’t he? Hmm, I wonder if this Gomez is actually a good guy...
 
-精一杯呼吸を整えてるゴメス。
+<b>
 
-ここで怒ったら小物って自分を認めちゃうことになるもんねぇ。フフフ。
+“Ha, if you want to buy me, bring 100 gold coins, drunkard.”
+
+“100 coins, huh? Well, if you become my woman, I might consider it.”
+
+<b>
+
+Gomez the pirate replied to my comeback that sent Blade-senpai packing.
+
+Seriously? Can pirates make that much money?
+
+<b>
+
+“Well, that’s a no. You seem really cheap.”
+
+“What? Where am I cheap?”
+
+“Are you stupid? Those three copper coins are proof of being a cheapskate. No girl would fall for a guy like that.”
+
+<b>
+
+Plus, it’s not “I’ll give it to you,” but “I might consider it.” He’s not going to give it after all.
+
+<b>
+
+“W-Who are you calling cheap!?”
+
+“Oh? Is a man who gets angry over something like this really that small-minded? Where, where? I can’t see someone so small! Is there someone smaller than my pinky?”
+
+“—!!!!”
+
+<b>
+
+Oh dear, Gomez’s face is turning bright red, isn’t it?
+
+Are you that excited by my little pinky gesture?
+
+<b>
+
+“W-Wait, what are you provoking him for?”
+
+“Eh? Oh no, staff member. Getting angry over this means you’re admitting you’re small-minded, right? A big-minded person wouldn’t care at all. Huh? You’re not saying there’s someone small-minded here, are you?”
+
+“...N-No, that’s not—!?”
+
+“Phew, phew...!”
+
+<b>
+
+Sorry, staff member. I dragged you into this.
+
+Gomez is trying his best to calm his breathing.
+
+If he gets angry now, it’ll just confirm he’s a small fry. Hehe.
 
 <b>
 

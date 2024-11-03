@@ -1,4 +1,4 @@
-# ダミーナ・ニセイシャ（仮）
+# Damiena Niseisha (Temporary Name)
 
 ## ダミーナ・ニセイシャ（仮）
 
