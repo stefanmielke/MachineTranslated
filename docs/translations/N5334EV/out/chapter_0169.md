@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0168.md)
 ###### [Next Chapter](./chapter_0170.md)
+###### [Previous Chapter](./chapter_0168.md)&nbsp;/&nbsp;
 
 # Chapter 157: Sweetness and Pumpkin
 

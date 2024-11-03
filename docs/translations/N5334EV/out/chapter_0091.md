@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0090.md)
 ###### [Next Chapter](./chapter_0092.md)
+###### [Previous Chapter](./chapter_0090.md)&nbsp;/&nbsp;
 
 # Chapter 79: Waiting as I Dream
 

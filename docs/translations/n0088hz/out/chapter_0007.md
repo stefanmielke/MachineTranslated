@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0008.md)
+###### [Previous Chapter](./chapter_0006.md)&nbsp;/&nbsp;
+
 #On a Personal Matter (Apologies if you’re eating!)
 
 ## 下の話。（食事中の方はごめんね！）

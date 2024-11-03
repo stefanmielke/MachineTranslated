@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0127.md)
+###### [Previous Chapter](./chapter_0125.md)&nbsp;/&nbsp;
+
 # Empire! So that's a thing.
 
 ## 帝国！　そういうのもあるのか。

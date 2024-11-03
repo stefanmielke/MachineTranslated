@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0055.md)
+###### [Previous Chapter](./chapter_0053.md)&nbsp;/&nbsp;
+
 # I defeated the pirates, so I'm taking a little break.
 
 ## 海賊退治したのでちょっと休憩。

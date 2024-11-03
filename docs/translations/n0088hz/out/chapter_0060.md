@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0061.md)
+###### [Previous Chapter](./chapter_0059.md)&nbsp;/&nbsp;
+
 # A new page has been added to the theory of universal space magic.
 
 ## 空間魔法万能説にまた一つ新たなページが加わったな

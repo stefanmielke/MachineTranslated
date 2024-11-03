@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0012.md)
 ###### [Next Chapter](./chapter_0014.md)
+###### [Previous Chapter](./chapter_0012.md)&nbsp;/&nbsp;
 
 # Episode 13: Howard Cloud Enjoys a Meal
 

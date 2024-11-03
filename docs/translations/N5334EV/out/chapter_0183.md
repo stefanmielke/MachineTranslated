@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0182.md)
 ###### [Next Chapter](./chapter_0184.md)
+###### [Previous Chapter](./chapter_0182.md)&nbsp;/&nbsp;
 
 # Episode 171: Brawl at the Tavern
 

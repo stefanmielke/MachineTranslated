@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0145.md)
+###### [Previous Chapter](./chapter_0143.md)&nbsp;/&nbsp;
+
 # Are the Dwarves Doing This Nationwide?
 
 ## 国ぐるみでやってんのかドワーフ

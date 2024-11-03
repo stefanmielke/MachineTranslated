@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0141.md)
+###### [Previous Chapter](./chapter_0139.md)&nbsp;/&nbsp;
+
 # Did I go a bit too far?
 
 ## 少しやり過ぎたか？

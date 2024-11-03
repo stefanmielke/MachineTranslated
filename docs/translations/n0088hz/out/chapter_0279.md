@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0280.md)
+###### [Previous Chapter](./chapter_0278.md)&nbsp;/&nbsp;
+
 # No way, this is……
 
 ## まさか、これは……

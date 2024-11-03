@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0177.md)
 ###### [Next Chapter](./chapter_0179.md)
+###### [Previous Chapter](./chapter_0177.md)&nbsp;/&nbsp;
 
 # Episode 166: Mr. Roderick's Resolve
 

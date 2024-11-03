@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0164.md)
+###### [Previous Chapter](./chapter_0162.md)&nbsp;/&nbsp;
+
 # Let's show off to Mashiro-san.
 
 ## マシロさんに自慢しておこう。

@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0128.md)
 ###### [Next Chapter](./chapter_0130.md)
+###### [Previous Chapter](./chapter_0128.md)&nbsp;/&nbsp;
 
 # Chapter 117 Morning Practice
 

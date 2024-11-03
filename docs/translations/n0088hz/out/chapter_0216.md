@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0217.md)
+###### [Previous Chapter](./chapter_0215.md)&nbsp;/&nbsp;
+
 # That's even more convenient!!
 
 ## それは尚更好都合ッ！！

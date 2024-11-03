@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0253.md)
+###### [Previous Chapter](./chapter_0251.md)&nbsp;/&nbsp;
+
 # Conversation with a Dragon
 
 ## ドラゴンと会話

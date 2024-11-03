@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0234.md)
+###### [Previous Chapter](./chapter_0232.md)&nbsp;/&nbsp;
+
 # Victory Declaration
 
 ## 勝利宣言

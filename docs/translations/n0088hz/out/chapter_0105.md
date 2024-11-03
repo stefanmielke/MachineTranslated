@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0106.md)
+###### [Previous Chapter](./chapter_0104.md)&nbsp;/&nbsp;
+
 # One Squeeze, One Silver Coin ●Illustration Included
 
 ## １揉み銀貨１枚 ●挿絵アリ

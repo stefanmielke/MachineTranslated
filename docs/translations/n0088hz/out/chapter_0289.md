@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0290.md)
+###### [Previous Chapter](./chapter_0288.md)&nbsp;/&nbsp;
+
 # Is it settled?
 
 ## 一件落着、かな？

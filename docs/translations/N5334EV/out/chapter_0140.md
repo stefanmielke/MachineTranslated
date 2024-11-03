@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0139.md)
 ###### [Next Chapter](./chapter_0141.md)
+###### [Previous Chapter](./chapter_0139.md)&nbsp;/&nbsp;
 
 # Chapter 128: Fluke's Tantrum
 

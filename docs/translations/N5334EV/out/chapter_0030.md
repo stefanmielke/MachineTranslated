@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0029.md)
 ###### [Next Chapter](./chapter_0031.md)
+###### [Previous Chapter](./chapter_0029.md)&nbsp;/&nbsp;
 
 # Episode 30: Sonia Cloud's Tale of Old
 

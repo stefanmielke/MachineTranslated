@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0268.md)
+###### [Previous Chapter](./chapter_0266.md)&nbsp;/&nbsp;
+
 # What kind of sacrificial offering to an evil god could it be?
 
 ## どんな邪神に捧げる贄なんでしょうか

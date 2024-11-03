@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0137.md)
+###### [Previous Chapter](./chapter_0135.md)&nbsp;/&nbsp;
+
 # Who is the most important and powerful?
 
 ## 一番偉くて重要なのはだーれだ？

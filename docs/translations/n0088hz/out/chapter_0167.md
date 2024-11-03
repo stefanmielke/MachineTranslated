@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0168.md)
+###### [Previous Chapter](./chapter_0166.md)&nbsp;/&nbsp;
+
 # This is bad, I'm feeling all flustered.
 
 ## まずい、ムラムラする。

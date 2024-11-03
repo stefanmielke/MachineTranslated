@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0069.md)
+###### [Previous Chapter](./chapter_0067.md)&nbsp;/&nbsp;
+
 # I will make a bath.
 
 ## 私はお風呂を作る。

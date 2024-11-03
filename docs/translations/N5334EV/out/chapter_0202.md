@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0201.md)
 ###### [Next Chapter](./chapter_0203.md)
+###### [Previous Chapter](./chapter_0201.md)&nbsp;/&nbsp;
 
 # Chapter 190: Outdoor Class
 

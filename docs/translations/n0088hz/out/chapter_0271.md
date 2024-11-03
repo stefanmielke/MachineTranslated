@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0272.md)
+###### [Previous Chapter](./chapter_0270.md)&nbsp;/&nbsp;
+
 # Nothing feels as good as justice!
 
 ## 正義ほど気持ちいいもんはねぇもんな！

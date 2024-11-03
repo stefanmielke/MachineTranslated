@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0244.md)
+###### [Previous Chapter](./chapter_0242.md)&nbsp;/&nbsp;
+
 # Demon Tribe
 
 ## 鬼族

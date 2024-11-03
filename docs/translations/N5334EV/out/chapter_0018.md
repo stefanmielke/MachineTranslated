@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0017.md)
 ###### [Next Chapter](./chapter_0019.md)
+###### [Previous Chapter](./chapter_0017.md)&nbsp;/&nbsp;
 
 # Chapter 18: Returning to the Suzy Family
 

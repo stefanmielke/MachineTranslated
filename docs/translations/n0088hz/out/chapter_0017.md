@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0018.md)
+###### [Previous Chapter](./chapter_0016.md)&nbsp;/&nbsp;
+
 # Let's get the reward!
 
 ## 報酬ゲットだぜ！

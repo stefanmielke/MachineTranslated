@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0093.md)
+###### [Previous Chapter](./chapter_0091.md)&nbsp;/&nbsp;
+
 # Elves Don’t Always Get Jokes, You Know?
 
 ## エルフって冗談通じないとこあるじゃん？

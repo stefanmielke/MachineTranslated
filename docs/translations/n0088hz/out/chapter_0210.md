@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0211.md)
+###### [Previous Chapter](./chapter_0209.md)&nbsp;/&nbsp;
+
 # I-I'll do my best today too!
 
 ## きょ、今日も一日頑張るぞい！

@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0084.md)
 ###### [Next Chapter](./chapter_0086.md)
+###### [Previous Chapter](./chapter_0084.md)&nbsp;/&nbsp;
 
 # Interlude 1: The Hero's Message
 

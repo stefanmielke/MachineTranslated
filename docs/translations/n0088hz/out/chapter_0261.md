@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0262.md)
+###### [Previous Chapter](./chapter_0260.md)&nbsp;/&nbsp;
+
 # The disguise was strong.
 
 ## 擬装が強かった。

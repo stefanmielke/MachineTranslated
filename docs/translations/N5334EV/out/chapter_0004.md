@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0003.md)
 ###### [Next Chapter](./chapter_0005.md)
+###### [Previous Chapter](./chapter_0003.md)&nbsp;/&nbsp;
 
 # Episode 04: Suzy Considers Future Plans
 

@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0050.md)
 ###### [Next Chapter](./chapter_0052.md)
+###### [Previous Chapter](./chapter_0050.md)&nbsp;/&nbsp;
 
 # Chapter 46: Suzy Cloud's Night Training
 

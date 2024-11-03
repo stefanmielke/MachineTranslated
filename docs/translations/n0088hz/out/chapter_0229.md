@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0230.md)
+###### [Previous Chapter](./chapter_0228.md)&nbsp;/&nbsp;
+
 # Enchanting Elf Competitor (Audience Perspective)
 
 ## 魅惑のエルフ選手（観客視点）

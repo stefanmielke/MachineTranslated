@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0043.md)
+###### [Previous Chapter](./chapter_0041.md)&nbsp;/&nbsp;
+
 # I knew it.
 
 ## 知ってた。

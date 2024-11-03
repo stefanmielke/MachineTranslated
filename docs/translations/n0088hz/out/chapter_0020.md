@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0021.md)
+###### [Previous Chapter](./chapter_0019.md)&nbsp;/&nbsp;
+
 # (Once Again) Blank Memory ●Illustrations Included
 
 ## （またしても）空白の記憶　●挿絵アリ

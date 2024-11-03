@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0098.md)
+###### [Previous Chapter](./chapter_0096.md)&nbsp;/&nbsp;
+
 # Here Comes the Dungeon
 
 ## やってきましたダンジョン

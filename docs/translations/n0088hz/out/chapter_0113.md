@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0114.md)
+###### [Previous Chapter](./chapter_0112.md)&nbsp;/&nbsp;
+
 # A log house in the forest is quite macabre
 
 ## 森の中のログハウスって猟奇的

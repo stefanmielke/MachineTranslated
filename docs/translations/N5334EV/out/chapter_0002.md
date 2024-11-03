@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0001.md)
 ###### [Next Chapter](./chapter_0003.md)
+###### [Previous Chapter](./chapter_0001.md)&nbsp;/&nbsp;
 
 # Episode 2: Suzy Feels Surprise
 

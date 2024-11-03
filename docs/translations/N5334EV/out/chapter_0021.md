@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0020.md)
 ###### [Next Chapter](./chapter_0022.md)
+###### [Previous Chapter](./chapter_0020.md)&nbsp;/&nbsp;
 
 # Chapter 21: Professor Jameson's Magic Course
 

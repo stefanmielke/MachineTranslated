@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0072.md)
+###### [Previous Chapter](./chapter_0070.md)&nbsp;/&nbsp;
+
 # It's way too bad for education!! ●Illustration included
 
 ## 色々と教育に悪すぎるんだ！！　●挿絵アリ

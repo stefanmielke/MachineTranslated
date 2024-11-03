@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0150.md)
+###### [Previous Chapter](./chapter_0148.md)&nbsp;/&nbsp;
+
 # A Little Crackle
 
 ## ちょっとパチパチする

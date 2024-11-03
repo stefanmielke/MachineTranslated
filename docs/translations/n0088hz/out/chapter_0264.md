@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0265.md)
+###### [Previous Chapter](./chapter_0263.md)&nbsp;/&nbsp;
+
 # A Terrifying Presence
 
 ## 鬼気迫る

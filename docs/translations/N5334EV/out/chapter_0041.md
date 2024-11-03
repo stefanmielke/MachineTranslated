@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0040.md)
 ###### [Next Chapter](./chapter_0042.md)
+###### [Previous Chapter](./chapter_0040.md)&nbsp;/&nbsp;
 
 # Chapter 41 Epilogue Daily Life of Amukamu
 

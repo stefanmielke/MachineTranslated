@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0221.md)
+###### [Previous Chapter](./chapter_0219.md)&nbsp;/&nbsp;
+
 # What was that unnatural surrender!? (General Beastman Perspective)
 
 ## なんだよあの不自然な降参はッ！？（一般獣人視点）

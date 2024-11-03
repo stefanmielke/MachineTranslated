@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0164.md)
 ###### [Next Chapter](./chapter_0166.md)
+###### [Previous Chapter](./chapter_0164.md)&nbsp;/&nbsp;
 
 # Chapter 153: Impatience
 

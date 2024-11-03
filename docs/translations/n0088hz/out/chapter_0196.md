@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0197.md)
+###### [Previous Chapter](./chapter_0195.md)&nbsp;/&nbsp;
+
 # Isn't that the same system as this one!!
 
 ## あれもこれと同じシステムじゃないか！！

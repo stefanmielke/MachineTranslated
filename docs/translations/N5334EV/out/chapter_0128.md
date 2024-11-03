@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0127.md)
 ###### [Next Chapter](./chapter_0129.md)
+###### [Previous Chapter](./chapter_0127.md)&nbsp;/&nbsp;
 
 # Chapter 116: The Indignation of RuuRii Diet
 

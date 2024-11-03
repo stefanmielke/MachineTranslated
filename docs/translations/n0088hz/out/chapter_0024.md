@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0025.md)
+###### [Previous Chapter](./chapter_0023.md)&nbsp;/&nbsp;
+
 # Encouraging the Bad Guys to Reflect☆ (From the Perspective of a Thug) ●Illustration Included
 
 ## 悪人たちに反省を促しちゃうゾ☆（チンピラ視点）●挿絵アリ

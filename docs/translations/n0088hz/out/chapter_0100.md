@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0101.md)
+###### [Previous Chapter](./chapter_0099.md)&nbsp;/&nbsp;
+
 # Dungeon Strategy Again
 
 ## 改めてダンジョン攻略

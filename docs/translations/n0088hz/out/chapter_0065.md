@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0066.md)
+###### [Previous Chapter](./chapter_0064.md)&nbsp;/&nbsp;
+
 # There's no turning back.
 
 ## 身も蓋もねぇ。

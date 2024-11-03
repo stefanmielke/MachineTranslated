@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0003.md)
+###### [Previous Chapter](./chapter_0001.md)&nbsp;/&nbsp;
+
 # God said, "This is a tutorial, right?" (●Illustration included)
 
 ## 神は言った。「これはチュートリアルですよ？」(●挿絵アリ)

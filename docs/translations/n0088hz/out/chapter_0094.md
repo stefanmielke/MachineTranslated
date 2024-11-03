@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0095.md)
+###### [Previous Chapter](./chapter_0093.md)&nbsp;/&nbsp;
+
 # So Fishy
 
 ## 嘘くさっ

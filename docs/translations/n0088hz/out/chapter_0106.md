@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0107.md)
+###### [Previous Chapter](./chapter_0105.md)&nbsp;/&nbsp;
+
 # I like tea cookies and such
 
 ## お茶のクッキーとか好き

@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0038.md)
+###### [Previous Chapter](./chapter_0036.md)&nbsp;/&nbsp;
+
 # Magic Tool Shop
 
 ## 魔道具店

@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0050.md)
+###### [Previous Chapter](./chapter_0048.md)&nbsp;/&nbsp;
+
 # There is no escape.
 
 ## 逃げ場はない。

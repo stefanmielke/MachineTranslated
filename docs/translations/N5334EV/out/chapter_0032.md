@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0031.md)
 ###### [Next Chapter](./chapter_0033.md)
+###### [Previous Chapter](./chapter_0031.md)&nbsp;/&nbsp;
 
 # Episode 32: Suzy Cloud's First Errand
 

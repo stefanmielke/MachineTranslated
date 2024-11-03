@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0159.md)
+###### [Previous Chapter](./chapter_0157.md)&nbsp;/&nbsp;
+
 # Hey, you there, dwarf. Don't look at Dia-kun's thighs under his skirt.
 
 ## おいそこのドワーフ。ディア君のスカートの中の太もも見んなや。

@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0087.md)
 ###### [Next Chapter](./chapter_0089.md)
+###### [Previous Chapter](./chapter_0087.md)&nbsp;/&nbsp;
 
 # Interlude 4: Let's Go to the Hot Springs!
 

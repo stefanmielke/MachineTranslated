@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0205.md)
 ###### [Next Chapter](./chapter_0207.md)
+###### [Previous Chapter](./chapter_0205.md)&nbsp;/&nbsp;
 
 # Chapter 194: The Bouncers
 

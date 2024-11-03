@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0270.md)
+###### [Previous Chapter](./chapter_0268.md)&nbsp;/&nbsp;
+
 # For the time being, don't I have anything to do?
 
 ## 当面、私的にはなんにもやること無くない？

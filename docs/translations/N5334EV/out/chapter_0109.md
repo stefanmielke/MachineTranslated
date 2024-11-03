@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0108.md)
 ###### [Next Chapter](./chapter_0110.md)
+###### [Previous Chapter](./chapter_0108.md)&nbsp;/&nbsp;
 
 # Chapter 97: The Truth of the Adventurer's Guild
 

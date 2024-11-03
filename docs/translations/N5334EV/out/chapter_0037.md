@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0036.md)
 ###### [Next Chapter](./chapter_0038.md)
+###### [Previous Chapter](./chapter_0036.md)&nbsp;/&nbsp;
 
 # Episode 37: Suzy Cloud Charges!
 

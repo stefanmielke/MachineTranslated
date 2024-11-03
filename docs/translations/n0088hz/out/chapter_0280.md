@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0281.md)
+###### [Previous Chapter](./chapter_0279.md)&nbsp;/&nbsp;
+
 # That's something I see occasionally.
 
 ## それはたまに見るにゃあ。

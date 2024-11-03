@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0162.md)
+###### [Previous Chapter](./chapter_0160.md)&nbsp;/&nbsp;
+
 # Oh, brave hero.
 
 ## おお勇者殿。

@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0187.md)
 ###### [Next Chapter](./chapter_0189.md)
+###### [Previous Chapter](./chapter_0187.md)&nbsp;/&nbsp;
 
 # Chapter 176: Chidori
 

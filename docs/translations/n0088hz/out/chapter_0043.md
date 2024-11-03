@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0044.md)
+###### [Previous Chapter](./chapter_0042.md)&nbsp;/&nbsp;
+
 # Acts of Justice (Gomez's Perspective)
 
 ## 正義の行い（ゴメス視点）

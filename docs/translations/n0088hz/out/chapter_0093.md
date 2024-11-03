@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0094.md)
+###### [Previous Chapter](./chapter_0092.md)&nbsp;/&nbsp;
+
 # Chigauyo
 
 ## チガウヨー

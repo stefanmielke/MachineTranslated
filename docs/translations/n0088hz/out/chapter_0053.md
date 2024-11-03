@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0054.md)
+###### [Previous Chapter](./chapter_0052.md)&nbsp;/&nbsp;
+
 # You're amazing in a different way, aren't you?
 
 ## 逆にすげーよお前

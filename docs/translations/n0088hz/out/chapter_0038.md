@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0039.md)
+###### [Previous Chapter](./chapter_0037.md)&nbsp;/&nbsp;
+
 # Fateful Encounter () ●Illustration Included
 
 ## 運命の出会い（）　●挿絵アリ

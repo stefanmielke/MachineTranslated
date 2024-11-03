@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0070.md)
+###### [Previous Chapter](./chapter_0068.md)&nbsp;/&nbsp;
+
 # It's cowardly to hold back information.
 
 ## 情報の後出しは卑怯だぞ。

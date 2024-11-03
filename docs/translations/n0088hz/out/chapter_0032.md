@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0033.md)
+###### [Previous Chapter](./chapter_0031.md)&nbsp;/&nbsp;
+
 # The Classic of Bathing with TS Girls
 
 ## ＴＳ娘のお風呂という定番

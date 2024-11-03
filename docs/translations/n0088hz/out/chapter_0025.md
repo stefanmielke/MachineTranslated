@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0026.md)
+###### [Previous Chapter](./chapter_0024.md)&nbsp;/&nbsp;
+
 # The Perfect Beautiful Girl Karina's Mistake
 
 ## 完璧美少女カリーナちゃんの失敗

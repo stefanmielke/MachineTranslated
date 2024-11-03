@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0044.md)
 ###### [Next Chapter](./chapter_0046.md)
+###### [Previous Chapter](./chapter_0044.md)&nbsp;/&nbsp;
 
 # Interlude 3: Let's Go to the Harvest Festival!
 

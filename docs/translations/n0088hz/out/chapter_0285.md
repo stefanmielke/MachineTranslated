@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0286.md)
+###### [Previous Chapter](./chapter_0284.md)&nbsp;/&nbsp;
+
 # Maid Homunculus (2)
 
 ## メイドホムンクルス（２）

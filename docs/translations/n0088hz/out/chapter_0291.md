@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0292.md)
+###### [Previous Chapter](./chapter_0290.md)&nbsp;/&nbsp;
+
 # What happened!?
 
 ## どうしたんですか！？

@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0069.md)
 ###### [Next Chapter](./chapter_0071.md)
+###### [Previous Chapter](./chapter_0069.md)&nbsp;/&nbsp;
 
 # Chapter 65: Cameron Fourier's Disturbance
 

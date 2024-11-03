@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0255.md)
+###### [Previous Chapter](./chapter_0253.md)&nbsp;/&nbsp;
+
 # He was quite a talker
 
 ## なかなか話せるヤツだったよ

@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0204.md)
 ###### [Next Chapter](./chapter_0206.md)
+###### [Previous Chapter](./chapter_0204.md)&nbsp;/&nbsp;
 
 # Chapter 193: The Hot Spring Town and the Scholars
 

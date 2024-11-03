@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0075.md)
 ###### [Next Chapter](./chapter_0077.md)
+###### [Previous Chapter](./chapter_0075.md)&nbsp;/&nbsp;
 
 # Chapter 71: The Vampire at Dawn Part 1
 

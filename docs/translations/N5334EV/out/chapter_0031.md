@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0030.md)
 ###### [Next Chapter](./chapter_0032.md)
+###### [Previous Chapter](./chapter_0030.md)&nbsp;/&nbsp;
 
 # Chapter 31: The Misfortunes of William Cloud
 

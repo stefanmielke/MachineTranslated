@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0021.md)
 ###### [Next Chapter](./chapter_0023.md)
+###### [Previous Chapter](./chapter_0021.md)&nbsp;/&nbsp;
 
 # Chapter 22: Suzy Cloud's Midnight Investigation
 

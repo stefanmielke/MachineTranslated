@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0015.md)
+###### [Previous Chapter](./chapter_0013.md)&nbsp;/&nbsp;
+
 # Reuniting with God ●Illustrations Included
 
 ## 神様と再会　●挿絵アリ

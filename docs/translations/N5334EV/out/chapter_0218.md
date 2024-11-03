@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0217.md)
 ###### [Next Chapter](./chapter_0219.md)
+###### [Previous Chapter](./chapter_0217.md)&nbsp;/&nbsp;
 
 # Chapter 206: Arvin Haggard's Fierce Assault!
 

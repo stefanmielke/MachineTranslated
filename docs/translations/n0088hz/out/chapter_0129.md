@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0130.md)
+###### [Previous Chapter](./chapter_0128.md)&nbsp;/&nbsp;
+
 # Is it in your backpack? (Mashiro's perspective)
 
 ## お前んちリュックの中にあんの？（マシロ視点）

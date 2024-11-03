@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0022.md)
 ###### [Next Chapter](./chapter_0024.md)
+###### [Previous Chapter](./chapter_0022.md)&nbsp;/&nbsp;
 
 # Chapter 23: Suzy Cloud and the Morning Classroom
 

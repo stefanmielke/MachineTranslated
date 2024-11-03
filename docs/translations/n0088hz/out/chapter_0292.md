@@ -1,3 +1,5 @@
+###### [Previous Chapter](./chapter_0291.md)&nbsp;/&nbsp;
+
 # Even the gem appraisers and surprised sommeliers were there.
 
 ## 宝石鑑定士もビックリなソムリエもいたものだわ。

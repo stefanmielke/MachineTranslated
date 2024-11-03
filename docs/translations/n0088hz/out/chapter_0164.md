@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0165.md)
+###### [Previous Chapter](./chapter_0163.md)&nbsp;/&nbsp;
+
 # Capital Akahagane ● With Illustrations
 
 ## 首都アカハガネ　●挿絵アリ

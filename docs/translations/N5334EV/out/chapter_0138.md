@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0137.md)
 ###### [Next Chapter](./chapter_0139.md)
+###### [Previous Chapter](./chapter_0137.md)&nbsp;/&nbsp;
 
 # Chapter 126 Annie's Sword
 

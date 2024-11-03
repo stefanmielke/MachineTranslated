@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0009.md)
 ###### [Next Chapter](./chapter_0011.md)
+###### [Previous Chapter](./chapter_0009.md)&nbsp;/&nbsp;
 
 # Episode 10: Meeting Suzy the Pig
 

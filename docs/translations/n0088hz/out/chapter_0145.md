@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0146.md)
+###### [Previous Chapter](./chapter_0144.md)&nbsp;/&nbsp;
+
 # Kind-hearted angel, perhaps?
 
 ## 心優しい天使かな？

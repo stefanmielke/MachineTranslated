@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0033.md)
 ###### [Next Chapter](./chapter_0035.md)
+###### [Previous Chapter](./chapter_0033.md)&nbsp;/&nbsp;
 
 # Chapter 34: The Confession of Henry Jameson
 

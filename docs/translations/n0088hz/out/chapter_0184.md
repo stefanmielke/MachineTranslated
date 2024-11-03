@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0185.md)
+###### [Previous Chapter](./chapter_0183.md)&nbsp;/&nbsp;
+
 # Divine Artifact Submission Ceremony
 
 ## 神器返納式

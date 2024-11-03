@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0249.md)
+###### [Previous Chapter](./chapter_0247.md)&nbsp;/&nbsp;
+
 # Oh dear?
 
 ## おやおや？

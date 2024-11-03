@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0013.md)
+###### [Previous Chapter](./chapter_0011.md)&nbsp;/&nbsp;
+
 # Did you bring the logs!? Ah! (Solo) ●Illustration Included
 
 ## 丸太は持ったか！？　ああ！（ソロ）●挿絵アリ

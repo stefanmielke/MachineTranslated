@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0024.md)
 ###### [Next Chapter](./chapter_0026.md)
+###### [Previous Chapter](./chapter_0024.md)&nbsp;/&nbsp;
 
 # Episode 25: The Delight of Orubetto Mash
 

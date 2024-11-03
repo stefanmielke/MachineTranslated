@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0011.md)
 ###### [Next Chapter](./chapter_0013.md)
+###### [Previous Chapter](./chapter_0011.md)&nbsp;/&nbsp;
 
 # Episode 12: Howard Cloud is Greatly Surprised
 

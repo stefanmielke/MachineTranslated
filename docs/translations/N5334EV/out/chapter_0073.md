@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0072.md)
 ###### [Next Chapter](./chapter_0074.md)
+###### [Previous Chapter](./chapter_0072.md)&nbsp;/&nbsp;
 
 # Chapter 68: The Fierce Battle of the Mobile Heavy Knight
 

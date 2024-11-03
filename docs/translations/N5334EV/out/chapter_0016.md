@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0015.md)
 ###### [Next Chapter](./chapter_0017.md)
+###### [Previous Chapter](./chapter_0015.md)&nbsp;/&nbsp;
 
 # Episode 16: Suzy Aims to Be Common!
 

@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0106.md)
 ###### [Next Chapter](./chapter_0108.md)
+###### [Previous Chapter](./chapter_0106.md)&nbsp;/&nbsp;
 
 # Chapter 95: Melancholic Suzy
 

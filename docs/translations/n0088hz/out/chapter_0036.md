@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0037.md)
+###### [Previous Chapter](./chapter_0035.md)&nbsp;/&nbsp;
+
 # Drinking Contest (Pirate's Perspective) 2
 
 ## 飲み比べ（海賊視点）２

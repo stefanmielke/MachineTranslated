@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0028.md)
 ###### [Next Chapter](./chapter_0030.md)
+###### [Previous Chapter](./chapter_0028.md)&nbsp;/&nbsp;
 
 # Episode 29: A Guest of the Cloud Family
 

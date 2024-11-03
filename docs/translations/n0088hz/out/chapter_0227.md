@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0228.md)
+###### [Previous Chapter](./chapter_0226.md)&nbsp;/&nbsp;
+
 # Dear-kun vs. Onee-san (Full Body Type Bear Beastman) (Second Half)
 
 ## ディア君VSお姉さん（全身タイプ熊獣人）（後半戦）

@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0219.md)
+###### [Previous Chapter](./chapter_0217.md)&nbsp;/&nbsp;
+
 # Defeated in the Semi-Finals of the Tournament
 
 ## 大会の準決勝で敗退

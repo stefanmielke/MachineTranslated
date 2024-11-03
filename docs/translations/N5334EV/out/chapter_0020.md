@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0019.md)
 ###### [Next Chapter](./chapter_0021.md)
+###### [Previous Chapter](./chapter_0019.md)&nbsp;/&nbsp;
 
 # Chapter 20: Suzy Cloud and the School Lunch Break
 

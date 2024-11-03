@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0131.md)
+###### [Previous Chapter](./chapter_0129.md)&nbsp;/&nbsp;
+
 # The Stomach of a Powerful Monster (Mashiro's Perspective)
 
 ## 強大な魔物の胃袋（マシロ視点）

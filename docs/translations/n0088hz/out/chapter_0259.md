@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0260.md)
+###### [Previous Chapter](./chapter_0258.md)&nbsp;/&nbsp;
+
 # Foolish question
 
 ## 愚問っすよ

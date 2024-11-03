@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0181.md)
+###### [Previous Chapter](./chapter_0179.md)&nbsp;/&nbsp;
+
 # If I told everything honestly, the king would cry, right?
 
 ## 全部正直に言ったら王様泣いちゃうよね

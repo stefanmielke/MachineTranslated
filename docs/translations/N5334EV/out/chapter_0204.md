@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0203.md)
 ###### [Next Chapter](./chapter_0205.md)
+###### [Previous Chapter](./chapter_0203.md)&nbsp;/&nbsp;
 
 # Chapter 192: To Boltosnan...
 

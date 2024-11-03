@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0062.md)
+###### [Previous Chapter](./chapter_0060.md)&nbsp;/&nbsp;
+
 # After an All-Nighter
 
 ## 徹夜明け

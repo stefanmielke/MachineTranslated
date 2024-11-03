@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0122.md)
+###### [Previous Chapter](./chapter_0120.md)&nbsp;/&nbsp;
+
 # Is that the core?
 
 ## あれがコアかな

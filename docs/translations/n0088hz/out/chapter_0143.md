@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0144.md)
+###### [Previous Chapter](./chapter_0142.md)&nbsp;/&nbsp;
+
 # There’s no way a human can win against a god
 
 ## 人の身で神に勝てるハズもなし

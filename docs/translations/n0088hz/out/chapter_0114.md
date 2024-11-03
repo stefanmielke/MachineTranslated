@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0115.md)
+###### [Previous Chapter](./chapter_0113.md)&nbsp;/&nbsp;
+
 # NTR destroys the brain...!
 
 ## ＮＴＲは脳を破壊する……ッ！

@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0071.md)
 ###### [Next Chapter](./chapter_0073.md)
+###### [Previous Chapter](./chapter_0071.md)&nbsp;/&nbsp;
 
 # Episode 67: Team Aria's Deployment
 

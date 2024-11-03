@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0241.md)
+###### [Previous Chapter](./chapter_0239.md)&nbsp;/&nbsp;
+
 # It was a piece of cake. I mean, it's a dragon, right?
 
 ## 楽勝だったのだ。だってドラゴンだよ？

@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0129.md)
 ###### [Next Chapter](./chapter_0131.md)
+###### [Previous Chapter](./chapter_0129.md)&nbsp;/&nbsp;
 
 # Chapter 118: Elective Classes
 

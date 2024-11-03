@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0073.md)
 ###### [Next Chapter](./chapter_0075.md)
+###### [Previous Chapter](./chapter_0073.md)&nbsp;/&nbsp;
 
 # Chapter 69: The Three Scholars of the North
 

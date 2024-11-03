@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0135.md)
+###### [Previous Chapter](./chapter_0133.md)&nbsp;/&nbsp;
+
 # Papapapapapaan, I have fallen. Nam.
 
 ## パパパパパーン、私は倒れた。なむ。

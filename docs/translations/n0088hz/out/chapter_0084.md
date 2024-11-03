@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0085.md)
+###### [Previous Chapter](./chapter_0083.md)&nbsp;/&nbsp;
+
 # Star-Shaped Engine
 
 ## 星型エンジン

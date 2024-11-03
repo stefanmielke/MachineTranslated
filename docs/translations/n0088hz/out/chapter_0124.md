@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0125.md)
+###### [Previous Chapter](./chapter_0123.md)&nbsp;/&nbsp;
+
 # Maintaining High Flexibility While Responding Adaptively
 
 ## 高度な柔軟性を維持しつつ臨機応変に対応する

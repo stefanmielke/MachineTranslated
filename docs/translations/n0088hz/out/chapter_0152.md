@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0153.md)
+###### [Previous Chapter](./chapter_0151.md)&nbsp;/&nbsp;
+
 # It's just a safety device
 
 ## ただの安全装置だよ

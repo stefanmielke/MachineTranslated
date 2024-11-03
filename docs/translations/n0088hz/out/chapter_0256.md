@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0257.md)
+###### [Previous Chapter](./chapter_0255.md)&nbsp;/&nbsp;
+
 # Got it!
 
 ## 把握した！

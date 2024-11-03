@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0006.md)
+###### [Previous Chapter](./chapter_0004.md)&nbsp;/&nbsp;
+
 # Kamikete - God, please walk quickly without running and help me soon - (●Illustration included)
 
 ## カミケテ　～神様、決して走らず急いで歩いてきて そして早く私を助けて～（●挿絵アリ）

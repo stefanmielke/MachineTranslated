@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0248.md)
+###### [Previous Chapter](./chapter_0246.md)&nbsp;/&nbsp;
+
 # I won't deny that
 
 ## それは否定しない

@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0004.md)
 ###### [Next Chapter](./chapter_0006.md)
+###### [Previous Chapter](./chapter_0004.md)&nbsp;/&nbsp;
 
 # Episode 05: Enjoying the Suzi Highlands Lake
 

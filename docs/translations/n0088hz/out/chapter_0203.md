@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0204.md)
+###### [Previous Chapter](./chapter_0202.md)&nbsp;/&nbsp;
+
 # I apologized to Dia-kun.
 
 ## 私はディア君に謝った。

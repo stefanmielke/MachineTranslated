@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0176.md)
+###### [Previous Chapter](./chapter_0174.md)&nbsp;/&nbsp;
+
 # Dear-kun's Secret Plan
 
 ## ディア君の秘策

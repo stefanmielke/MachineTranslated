@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0052.md)
+###### [Previous Chapter](./chapter_0050.md)&nbsp;/&nbsp;
+
 # Area Cutter, abbreviated as Air Cutter. ●Illustration included
 
 ## エリアカッター、略してエアカッター。●挿絵アリ

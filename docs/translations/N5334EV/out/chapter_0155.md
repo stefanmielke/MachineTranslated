@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0154.md)
 ###### [Next Chapter](./chapter_0156.md)
+###### [Previous Chapter](./chapter_0154.md)&nbsp;/&nbsp;
 
 # Chapter 143: Each Night, Part 3 (In the Case of Dalton Banjo)
 

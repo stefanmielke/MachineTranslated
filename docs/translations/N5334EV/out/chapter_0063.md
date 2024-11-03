@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0062.md)
 ###### [Next Chapter](./chapter_0064.md)
+###### [Previous Chapter](./chapter_0062.md)&nbsp;/&nbsp;
 
 # Chapter 58: The Relief of Magritte Goche
 

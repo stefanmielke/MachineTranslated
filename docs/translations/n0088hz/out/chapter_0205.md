@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0206.md)
+###### [Previous Chapter](./chapter_0204.md)&nbsp;/&nbsp;
+
 # Hurry up and go home. You have a family too, right?
 
 ## さっさと帰るんだな。お前にもかぞくがいるだろう

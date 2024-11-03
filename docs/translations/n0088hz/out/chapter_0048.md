@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0049.md)
+###### [Previous Chapter](./chapter_0047.md)&nbsp;/&nbsp;
+
 # Infiltrating the Pirate Ship!
 
 ## 海賊船へ潜入！

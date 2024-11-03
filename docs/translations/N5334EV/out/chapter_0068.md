@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0067.md)
 ###### [Next Chapter](./chapter_0069.md)
+###### [Previous Chapter](./chapter_0067.md)&nbsp;/&nbsp;
 
 # Chapter 63: The Departure of the Auroral Knights
 

@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0088.md)
+###### [Previous Chapter](./chapter_0086.md)&nbsp;/&nbsp;
+
 # Unknown Store's CM Song
 
 ## 知らん店のＣＭソング

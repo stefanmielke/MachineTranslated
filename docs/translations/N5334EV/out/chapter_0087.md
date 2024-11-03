@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0086.md)
 ###### [Next Chapter](./chapter_0088.md)
+###### [Previous Chapter](./chapter_0086.md)&nbsp;/&nbsp;
 
 # Interlude 3: Magic Extraction
 

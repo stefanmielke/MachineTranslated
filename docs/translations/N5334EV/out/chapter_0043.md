@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0042.md)
 ###### [Next Chapter](./chapter_0044.md)
+###### [Previous Chapter](./chapter_0042.md)&nbsp;/&nbsp;
 
 # Interlude 1: Let’s Go to the Sea
 

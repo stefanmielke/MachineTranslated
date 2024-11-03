@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0250.md)
+###### [Previous Chapter](./chapter_0248.md)&nbsp;/&nbsp;
+
 # Are you taking a break here?
 
 ## こんなところでお休みですか？

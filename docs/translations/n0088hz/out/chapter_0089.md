@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0090.md)
+###### [Previous Chapter](./chapter_0088.md)&nbsp;/&nbsp;
+
 # Arrival at Karkassa!!
 
 ## カルカッサ到着！！

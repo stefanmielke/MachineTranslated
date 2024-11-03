@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0163.md)
+###### [Previous Chapter](./chapter_0161.md)&nbsp;/&nbsp;
+
 # The Type to Scatter Money from My Wallet at a Cabaret and Meet Ruin
 
 ## キャバクラで財布の中身お金ばらまいて破滅するタイプ

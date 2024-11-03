@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0138.md)
+###### [Previous Chapter](./chapter_0136.md)&nbsp;/&nbsp;
+
 # Cold-Blooded Agent (Bibei's Perspective)
 
 ## 冷酷なエージェント（ビーベイ視点）

@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0214.md)
+###### [Previous Chapter](./chapter_0212.md)&nbsp;/&nbsp;
+
 # Tch, what a tough guy
 
 ## チッ、頑丈な奴め

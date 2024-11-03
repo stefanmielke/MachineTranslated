@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0200.md)
 ###### [Next Chapter](./chapter_0202.md)
+###### [Previous Chapter](./chapter_0200.md)&nbsp;/&nbsp;
 
 # Chapter 189: A Summons from the Chairman
 

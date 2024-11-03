@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0056.md)
+###### [Previous Chapter](./chapter_0054.md)&nbsp;/&nbsp;
+
 # It's not persuasive at all!
 
 ## 説得力ないよぉ！

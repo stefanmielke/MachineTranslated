@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0115.md)
 ###### [Next Chapter](./chapter_0117.md)
+###### [Previous Chapter](./chapter_0115.md)&nbsp;/&nbsp;
 
 # Chapter 104: Noisy Dining Table
 

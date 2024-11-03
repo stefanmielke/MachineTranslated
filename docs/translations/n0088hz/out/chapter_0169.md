@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0170.md)
+###### [Previous Chapter](./chapter_0168.md)&nbsp;/&nbsp;
+
 # For now, shall we buy something and hear the story? (From Diar's perspective)
 
 ## とりあえず、何か買って話を伺いますか（ディア君視点）

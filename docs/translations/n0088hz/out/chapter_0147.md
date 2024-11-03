@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0148.md)
+###### [Previous Chapter](./chapter_0146.md)&nbsp;/&nbsp;
+
 # Gyuwa
 
 ## ギュア

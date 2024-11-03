@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0082.md)
 ###### [Next Chapter](./chapter_0084.md)
+###### [Previous Chapter](./chapter_0082.md)&nbsp;/&nbsp;
 
 # Chapter 78 Epilogue: Suzy Cloud's Delivery
 

@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0046.md)
 ###### [Next Chapter](./chapter_0048.md)
+###### [Previous Chapter](./chapter_0046.md)&nbsp;/&nbsp;
 
 # Chapter 42: The Spring of Amukam
 

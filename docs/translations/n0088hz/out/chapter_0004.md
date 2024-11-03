@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0005.md)
+###### [Previous Chapter](./chapter_0003.md)&nbsp;/&nbsp;
+
 # First of all... what should I do?
 
 ## まずは……どうしようかな？

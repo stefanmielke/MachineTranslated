@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0269.md)
+###### [Previous Chapter](./chapter_0267.md)&nbsp;/&nbsp;
+
 # On the other hand, in the imperial capital of the empire.
 
 ## 一方、帝国帝都にて。

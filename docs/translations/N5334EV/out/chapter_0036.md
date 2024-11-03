@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0035.md)
 ###### [Next Chapter](./chapter_0037.md)
+###### [Previous Chapter](./chapter_0035.md)&nbsp;/&nbsp;
 
 # Episode 36: The Children of Amukamu - Part 1
 

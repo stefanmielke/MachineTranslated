@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0258.md)
+###### [Previous Chapter](./chapter_0256.md)&nbsp;/&nbsp;
+
 # At a Certain Trading Company.
 
 ## とある商会にて。

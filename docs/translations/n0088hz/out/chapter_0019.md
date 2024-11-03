@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0020.md)
+###### [Previous Chapter](./chapter_0018.md)&nbsp;/&nbsp;
+
 # I Became a Merchant! ●Illustrations Included
 
 ## 商人になりました！　●挿絵アリ

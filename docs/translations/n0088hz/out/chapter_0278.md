@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0279.md)
+###### [Previous Chapter](./chapter_0277.md)&nbsp;/&nbsp;
+
 # Yes, I'll actively search for it.
 
 ## はい、積極的に探していきまーす。

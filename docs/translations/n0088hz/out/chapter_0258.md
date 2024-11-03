@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0259.md)
+###### [Previous Chapter](./chapter_0257.md)&nbsp;/&nbsp;
+
 # Is it a blue demon?
 
 ## 青鬼かな？

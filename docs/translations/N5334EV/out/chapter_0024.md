@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0023.md)
 ###### [Next Chapter](./chapter_0025.md)
+###### [Previous Chapter](./chapter_0023.md)&nbsp;/&nbsp;
 
 # Episode 24: Suzy Cloud and the Village Children
 

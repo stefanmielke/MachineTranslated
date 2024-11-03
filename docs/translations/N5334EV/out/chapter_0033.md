@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0032.md)
 ###### [Next Chapter](./chapter_0034.md)
+###### [Previous Chapter](./chapter_0032.md)&nbsp;/&nbsp;
 
 # Episode 33: An Afternoon in Amukamu
 

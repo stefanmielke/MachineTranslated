@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0245.md)
+###### [Previous Chapter](./chapter_0243.md)&nbsp;/&nbsp;
+
 # Comfortable Air Travel
 
 ## 快適な空の旅

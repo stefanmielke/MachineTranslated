@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0207.md)
+###### [Previous Chapter](./chapter_0205.md)&nbsp;/&nbsp;
+
 # How's it going!
 
 ## どんなもんよ！

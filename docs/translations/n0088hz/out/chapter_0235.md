@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0236.md)
+###### [Previous Chapter](./chapter_0234.md)&nbsp;/&nbsp;
+
 # Is it double dipping of the sauce?
 
 ## ソースの二度付けかな？

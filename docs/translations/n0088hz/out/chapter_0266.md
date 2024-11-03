@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0267.md)
+###### [Previous Chapter](./chapter_0265.md)&nbsp;/&nbsp;
+
 # Huh? Why?
 
 ## え？　なんで？

@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0048.md)
 ###### [Next Chapter](./chapter_0050.md)
+###### [Previous Chapter](./chapter_0048.md)&nbsp;/&nbsp;
 
 # Chapter 44: The Amukam Growth Ceremony
 

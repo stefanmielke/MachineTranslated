@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0080.md)
+###### [Previous Chapter](./chapter_0078.md)&nbsp;/&nbsp;
+
 # Oh, that is like the ancient sage
 
 ## おおそれは古の賢者の如し

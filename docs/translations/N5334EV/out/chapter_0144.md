@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0143.md)
 ###### [Next Chapter](./chapter_0145.md)
+###### [Previous Chapter](./chapter_0143.md)&nbsp;/&nbsp;
 
 # Chapter 132: The Blonde-Rolled Saint
 

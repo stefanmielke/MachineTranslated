@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0289.md)
+###### [Previous Chapter](./chapter_0287.md)&nbsp;/&nbsp;
+
 # Of Chaos
 
 ## 混沌の

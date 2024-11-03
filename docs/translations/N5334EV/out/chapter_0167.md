@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0166.md)
 ###### [Next Chapter](./chapter_0168.md)
+###### [Previous Chapter](./chapter_0166.md)&nbsp;/&nbsp;
 
 # Chapter 155: The Smile of Rual Na Rubure
 

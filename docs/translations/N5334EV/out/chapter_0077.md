@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0076.md)
 ###### [Next Chapter](./chapter_0078.md)
+###### [Previous Chapter](./chapter_0076.md)&nbsp;/&nbsp;
 
 # Episode 72: The Vampire at Dawn, Part 2
 

@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0263.md)
+###### [Previous Chapter](./chapter_0261.md)&nbsp;/&nbsp;
+
 # Let's stretch more
 
 ## もっと伸ばそ

@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0186.md)
+###### [Previous Chapter](./chapter_0184.md)&nbsp;/&nbsp;
+
 # It's a miracle from the gods!
 
 ## 神の奇跡だー！

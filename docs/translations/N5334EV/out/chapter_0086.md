@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0085.md)
 ###### [Next Chapter](./chapter_0087.md)
+###### [Previous Chapter](./chapter_0085.md)&nbsp;/&nbsp;
 
 # Interlude 2: The Thirst of the Dead
 

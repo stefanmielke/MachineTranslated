@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0112.md)
+###### [Previous Chapter](./chapter_0110.md)&nbsp;/&nbsp;
+
 # There was a big beehive there.
 
 ## そこにはデカいハチの巣があった。

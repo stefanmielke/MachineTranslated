@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0227.md)
+###### [Previous Chapter](./chapter_0225.md)&nbsp;/&nbsp;
+
 # Dear-kun VS Big Sis (Full-body Bear Beastkin) (First Half)
 
 ## ディア君VSお姉さん（全身タイプ熊獣人）（前半戦）

@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0153.md)
 ###### [Next Chapter](./chapter_0155.md)
+###### [Previous Chapter](./chapter_0153.md)&nbsp;/&nbsp;
 
 # Chapter 142: Each Night, Part 2 (In the Case of Colette Bear)
 

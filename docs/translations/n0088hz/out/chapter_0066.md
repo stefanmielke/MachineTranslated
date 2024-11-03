@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0067.md)
+###### [Previous Chapter](./chapter_0065.md)&nbsp;/&nbsp;
+
 # Privacy and the Private are Important ●Illustration Included
 
 ## プライバシーとかプライベートってのは大事　●挿絵アリ

@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0182.md)
+###### [Previous Chapter](./chapter_0180.md)&nbsp;/&nbsp;
+
 # It's a simple job to lightly remind someone.
 
 ## 軽く釘をさす簡単なお仕事です。

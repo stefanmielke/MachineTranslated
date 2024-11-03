@@ -1,5 +1,5 @@
-###### [Previous Chapter](./chapter_0038.md)
 ###### [Next Chapter](./chapter_0040.md)
+###### [Previous Chapter](./chapter_0038.md)&nbsp;/&nbsp;
 
 # Episode 39: Suzy Cloud Makes Her Stand
 

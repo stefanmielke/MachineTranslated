@@ -1,3 +1,6 @@
+###### [Next Chapter](./chapter_0232.md)
+###### [Previous Chapter](./chapter_0230.md)&nbsp;/&nbsp;
+
 # Well, that's right! Let's continue!!
 
 ## まぁそっすね！　続行！！
