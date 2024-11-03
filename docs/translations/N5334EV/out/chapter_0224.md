@@ -572,4 +572,8 @@ The two intensifying magical powers clashed, swirling around each other.
 The atmosphere screamed, and a storm-like wind raged around them.
 
 *大気は悲鳴を上げ、辺りには嵐のような風が吹き荒れた。*
+
+
+---
+
 ###### [Previous Chapter](./chapter_0223.md)&nbsp;/&nbsp;

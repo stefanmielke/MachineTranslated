@@ -1,5 +1,9 @@
 ###### [Next Chapter](./chapter_0002.md)
 
+
+---
+
+
 # Chapter 01: Suzy Awakens in the Forest
 
 ## 01話　スージィ森で目覚める
