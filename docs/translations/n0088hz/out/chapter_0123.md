@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0124.md)
 ###### [Previous Chapter](./chapter_0122.md)&nbsp;/&nbsp;
 
+---
+
+
 # Huh? A Sending Wolf?
 
 ## え？　送り狼？
@@ -240,3 +243,9 @@ The next morning, it goes without saying that I had to apologize to Mashiro-san 
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0124.md)
+###### [Previous Chapter](./chapter_0122.md)&nbsp;/&nbsp;

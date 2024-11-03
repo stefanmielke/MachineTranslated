@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0071.md)
 ###### [Previous Chapter](./chapter_0069.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 65: Cameron Fourier's Disturbance
 
 ## 65話　キャメロン・フーリエの動揺
@@ -1576,3 +1579,9 @@ Next time: "Jules Narl's Escape"
 *次回「ジュール・ナールの逃走」*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0071.md)
+###### [Previous Chapter](./chapter_0069.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0156.md)
 ###### [Previous Chapter](./chapter_0154.md)&nbsp;/&nbsp;
 
+---
+
+
 # Let's leave her be
 
 ## そっとしておいてあげましょう
@@ -264,3 +267,9 @@ In any case, when her brother returned, we were to greet the village chief first
 *ともあれ、お兄さんが戻ってきてまずは里長に挨拶することになった。*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0156.md)
+###### [Previous Chapter](./chapter_0154.md)&nbsp;/&nbsp;

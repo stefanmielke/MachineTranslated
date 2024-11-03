@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0229.md)
 ###### [Previous Chapter](./chapter_0227.md)&nbsp;/&nbsp;
 
+---
+
+
 # Dear-kun VS Misha
 
 ## ディア君VSミーシャ
@@ -404,3 +407,9 @@ I don't have a backlog, but will this make it in time…?
 Please support me here too.)
 
 *こちらも応援よろしくお願いします）*
+
+
+---
+
+###### [Next Chapter](./chapter_0229.md)
+###### [Previous Chapter](./chapter_0227.md)&nbsp;/&nbsp;

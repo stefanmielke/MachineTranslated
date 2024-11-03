@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0291.md)
 ###### [Previous Chapter](./chapter_0289.md)&nbsp;/&nbsp;
 
+---
+
+
 # God—?
 
 ## 神様ー？
@@ -310,3 +313,9 @@ Additionally, I’m working on a ridiculous new project.
 https://kakuyomu.jp/works/16818093083361398334
 
 *https://kakuyomu.jp/works/16818093083361398334*
+
+
+---
+
+###### [Next Chapter](./chapter_0291.md)
+###### [Previous Chapter](./chapter_0289.md)&nbsp;/&nbsp;

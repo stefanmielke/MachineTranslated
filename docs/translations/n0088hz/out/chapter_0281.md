@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0282.md)
 ###### [Previous Chapter](./chapter_0280.md)&nbsp;/&nbsp;
 
+---
+
+
 # Target discovered.
 
 ## ターゲット発見。
@@ -192,3 +195,9 @@ No, it's actually quite important! For my motivation!!
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0282.md)
+###### [Previous Chapter](./chapter_0280.md)&nbsp;/&nbsp;

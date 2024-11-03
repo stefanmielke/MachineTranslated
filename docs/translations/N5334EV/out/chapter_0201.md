@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0202.md)
 ###### [Previous Chapter](./chapter_0200.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 189: A Summons from the Chairman
 
 ## 189話　理事長からのお呼び出し
@@ -734,3 +737,9 @@ Thank you for reading.
 Thank you for your bookmarks and evaluations! They are always a source of encouragement!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0202.md)
+###### [Previous Chapter](./chapter_0200.md)&nbsp;/&nbsp;

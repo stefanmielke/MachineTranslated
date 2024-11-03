@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0205.md)
 ###### [Previous Chapter](./chapter_0203.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 192: To Boltosnan...
 
 ## 192話　ボルトスナンへ…
@@ -572,3 +575,9 @@ Thank you for reading.
 Thank you for your bookmarks and evaluations! They are always a great encouragement!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0205.md)
+###### [Previous Chapter](./chapter_0203.md)&nbsp;/&nbsp;

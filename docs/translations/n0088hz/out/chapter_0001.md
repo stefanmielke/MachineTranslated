@@ -37,3 +37,8 @@ Sorry if it ends up on Nocturne.
 *ノクターン行きになったらゴメンね。*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0002.md)

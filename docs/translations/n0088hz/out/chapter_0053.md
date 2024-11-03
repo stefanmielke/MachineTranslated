@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0054.md)
 ###### [Previous Chapter](./chapter_0052.md)&nbsp;/&nbsp;
 
+---
+
+
 # You're amazing in a different way, aren't you?
 
 ## 逆にすげーよお前
@@ -332,3 +335,9 @@ I remember him saying she was at the lord's place.
 (Pirate extermination, complete!)
 
 *（海賊退治、完！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0054.md)
+###### [Previous Chapter](./chapter_0052.md)&nbsp;/&nbsp;

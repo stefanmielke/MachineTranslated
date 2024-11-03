@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0161.md)
 ###### [Previous Chapter](./chapter_0159.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 148: High Backdoor
 
 ## 148話　ハイ・バックドア
@@ -594,3 +597,9 @@ Thank you for reading.
 Thank you for your bookmarks and evaluations! They are always a source of encouragement!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0161.md)
+###### [Previous Chapter](./chapter_0159.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0036.md)
 ###### [Previous Chapter](./chapter_0034.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 35: The Roar of Howard Cloud
 
 ## 35話　ハワード・クラウドの咆哮
@@ -1696,3 +1699,9 @@ The defense battle for the children.
 Next time: "The Children of Amukam, Part 1"
 
 *次回「アムカムの子供たち　その1」*
+
+
+---
+
+###### [Next Chapter](./chapter_0036.md)
+###### [Previous Chapter](./chapter_0034.md)&nbsp;/&nbsp;

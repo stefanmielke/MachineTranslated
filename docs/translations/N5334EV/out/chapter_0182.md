@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0183.md)
 ###### [Previous Chapter](./chapter_0181.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 170: The Hexagum Tavern
 
 ## 170話　ヘクサゴムの酒場
@@ -446,3 +449,9 @@ Thank you for reading.
 Thank you for your bookmarks and evaluations! They always motivate me!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0183.md)
+###### [Previous Chapter](./chapter_0181.md)&nbsp;/&nbsp;

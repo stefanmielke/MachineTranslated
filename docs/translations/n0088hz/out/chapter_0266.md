@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0267.md)
 ###### [Previous Chapter](./chapter_0265.md)&nbsp;/&nbsp;
 
+---
+
+
 # Huh? Why?
 
 ## え？　なんで？
@@ -298,3 +301,9 @@ The application deadline is until May 19th!
 https://twitter.com/gcnovels/status/1782363725703627074
 
 *https://twitter.com/gcnovels/status/1782363725703627074*
+
+
+---
+
+###### [Next Chapter](./chapter_0267.md)
+###### [Previous Chapter](./chapter_0265.md)&nbsp;/&nbsp;

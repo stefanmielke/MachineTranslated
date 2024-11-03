@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0099.md)
 ###### [Previous Chapter](./chapter_0097.md)&nbsp;/&nbsp;
 
+---
+
+
 # It isn't always good to target weaknesses
 
 ## 弱点を突くのが良いとも限らないわけだ
@@ -228,3 +231,9 @@ Hmm, if I can dive in like this easily, I could probably earn even more if I wen
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0099.md)
+###### [Previous Chapter](./chapter_0097.md)&nbsp;/&nbsp;

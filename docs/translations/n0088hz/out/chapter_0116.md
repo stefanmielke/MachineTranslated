@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0117.md)
 ###### [Previous Chapter](./chapter_0115.md)&nbsp;/&nbsp;
 
+---
+
+
 # I am really looking forward to it...!
 
 ## 心から楽しみにしていますよ……！
@@ -304,3 +307,9 @@ Though I feel like I've messed up a bit myself.
 (Next update is 4/4 at 0:00!)
 
 *（次回更新は 4/4 0時！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0117.md)
+###### [Previous Chapter](./chapter_0115.md)&nbsp;/&nbsp;

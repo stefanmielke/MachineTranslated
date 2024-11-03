@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0083.md)
 ###### [Previous Chapter](./chapter_0081.md)&nbsp;/&nbsp;
 
+---
+
+
 # What's up? Is today bonus day?
 
 ## なんだい今日はボーナスの日かい？
@@ -246,3 +249,9 @@ I can hunt enough orcs to not worry about meat for a few months, so I'll stop he
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0083.md)
+###### [Previous Chapter](./chapter_0081.md)&nbsp;/&nbsp;

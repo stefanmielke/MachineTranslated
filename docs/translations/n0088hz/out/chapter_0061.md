@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0062.md)
 ###### [Previous Chapter](./chapter_0060.md)&nbsp;/&nbsp;
 
+---
+
+
 # After an All-Nighter
 
 ## 徹夜明け
@@ -264,3 +267,9 @@ My plan was to have Dia-kun warm my socks until just before we got here, and the
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0062.md)
+###### [Previous Chapter](./chapter_0060.md)&nbsp;/&nbsp;

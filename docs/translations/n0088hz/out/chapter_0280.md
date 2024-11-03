@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0281.md)
 ###### [Previous Chapter](./chapter_0279.md)&nbsp;/&nbsp;
 
+---
+
+
 # That's something I see occasionally.
 
 ## それはたまに見るにゃあ。
@@ -168,3 +171,9 @@ I wouldn't feel any discomfort calling that god a devil. I have no choice but to
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0281.md)
+###### [Previous Chapter](./chapter_0279.md)&nbsp;/&nbsp;

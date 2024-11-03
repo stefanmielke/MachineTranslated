@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0026.md)
 ###### [Previous Chapter](./chapter_0024.md)&nbsp;/&nbsp;
 
+---
+
+
 # The Perfect Beautiful Girl Karina's Mistake
 
 ## 完璧美少女カリーナちゃんの失敗
@@ -308,3 +311,9 @@ So, after talking with Blade-senpai like that, it seems the plan to storm was of
 https://lightnovel.jp/best/2022_07-12/tw/?q=%E9%AC%BC%E5%BD%B1%E3%82%B9%E3%83%91%E3%83%8A)
 
 *https://lightnovel.jp/best/2022_07-12/tw/?q=%E9%AC%BC%E5%BD%B1%E3%82%B9%E3%83%91%E3%83%8A　）*
+
+
+---
+
+###### [Next Chapter](./chapter_0026.md)
+###### [Previous Chapter](./chapter_0024.md)&nbsp;/&nbsp;

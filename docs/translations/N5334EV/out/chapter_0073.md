@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0074.md)
 ###### [Previous Chapter](./chapter_0072.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 68: The Fierce Battle of the Mobile Heavy Knight
 
 ## 68話　機動重騎士の激闘
@@ -1684,3 +1687,9 @@ Next time: "The Three Doctors of the North"
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0074.md)
+###### [Previous Chapter](./chapter_0072.md)&nbsp;/&nbsp;

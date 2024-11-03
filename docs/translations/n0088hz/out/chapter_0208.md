@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0209.md)
 ###### [Previous Chapter](./chapter_0207.md)&nbsp;/&nbsp;
 
+---
+
+
 # It must be profitable for sure
 
 ## きっと儲かってるに違いない
@@ -312,3 +315,9 @@ Please also check out my new work for Kakuyomu Con 9!
 https://kakuyomu.jp/works/16817330667768391252
 
 *https://kakuyomu.jp/works/16817330667768391252*
+
+
+---
+
+###### [Next Chapter](./chapter_0209.md)
+###### [Previous Chapter](./chapter_0207.md)&nbsp;/&nbsp;

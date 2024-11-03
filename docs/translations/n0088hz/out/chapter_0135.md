@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0136.md)
 ###### [Previous Chapter](./chapter_0134.md)&nbsp;/&nbsp;
 
+---
+
+
 # You can't hold back, can you?
 
 ## 我慢できねぇやつだな
@@ -304,3 +307,9 @@ If I get good points, maybe I'll forgive them! Hehehe!
 *もしいいポイントが付いたら許してやろうかな！　うふふっ！*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0136.md)
+###### [Previous Chapter](./chapter_0134.md)&nbsp;/&nbsp;

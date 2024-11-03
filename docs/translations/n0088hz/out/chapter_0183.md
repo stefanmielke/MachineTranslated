@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0184.md)
 ###### [Previous Chapter](./chapter_0182.md)&nbsp;/&nbsp;
 
+---
+
+
 # I want to...
 
 ## せっ……したいの……
@@ -338,3 +341,9 @@ I'm being toyed with by Mashiro-san, so I might actually be the lowest one here.
 I'm out of stock, so updates will... I'll do my best as much as possible... please support me...!)
 
 *ストック切れてるので更新は……なるべくがんばる……応援して……！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0184.md)
+###### [Previous Chapter](./chapter_0182.md)&nbsp;/&nbsp;

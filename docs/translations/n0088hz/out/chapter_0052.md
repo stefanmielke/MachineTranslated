@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0053.md)
 ###### [Previous Chapter](./chapter_0051.md)&nbsp;/&nbsp;
 
+---
+
+
 # King of the Sea (Gomez's Perspective)
 
 ## 海の王（ゴメス視点）
@@ -324,3 +327,9 @@ One of my subordinates hit me back. How foolish, I'm the captain!? How ridiculou
 Likes, comments, ★ ratings, and bookmarks are encouraging me!)
 
 *いいね、感想、★評価、ブクマ、励みになってます！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0053.md)
+###### [Previous Chapter](./chapter_0051.md)&nbsp;/&nbsp;

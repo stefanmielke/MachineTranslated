@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0265.md)
 ###### [Previous Chapter](./chapter_0263.md)&nbsp;/&nbsp;
 
+---
+
+
 # A Terrifying Presence
 
 ## 鬼気迫る
@@ -210,3 +213,9 @@ If you're supporting Dia-kun... please make sure to buy it!
 Huh? Dia-kun is a boy who looks like a girl, so he's not a male? That's true.
 
 *え？　ディア君は男の娘だから雄ではないって？　それはそう。*
+
+
+---
+
+###### [Next Chapter](./chapter_0265.md)
+###### [Previous Chapter](./chapter_0263.md)&nbsp;/&nbsp;

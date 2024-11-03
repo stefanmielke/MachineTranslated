@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0134.md)
 ###### [Previous Chapter](./chapter_0132.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 121: Rulii Deet's Miscalculation
 
 ## 121話　ルゥリィ・ディートの誤算
@@ -508,3 +511,9 @@ Thank you for reading.
 Thank you for your bookmarks and evaluations! They are always a source of encouragement!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0134.md)
+###### [Previous Chapter](./chapter_0132.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0263.md)
 ###### [Previous Chapter](./chapter_0261.md)&nbsp;/&nbsp;
 
+---
+
+
 # Let's stretch more
 
 ## もっと伸ばそ
@@ -210,3 +213,9 @@ https://gcnovels.jp/news/337
 *https://gcnovels.jp/news/337*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0263.md)
+###### [Previous Chapter](./chapter_0261.md)&nbsp;/&nbsp;

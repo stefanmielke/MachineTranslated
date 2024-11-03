@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0220.md)
 ###### [Previous Chapter](./chapter_0218.md)&nbsp;/&nbsp;
 
+---
+
+
 # Are you ready to deliver the socks?
 
 ## 納品する靴下の準備はＯＫ？
@@ -218,3 +221,9 @@ There's just five hours left, so please check it out!
 The title of the work is, "Feel Free to Do As You Like! — Since the God Defeated the Final Boss in the Tutorial, I'm Going to Live as I Please!"
 
 *作品名は、『あとはご自由にどうぞ！～チュートリアルで神様がラスボス倒しちゃったので、私は好き放題生きていく～』ですよ！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0220.md)
+###### [Previous Chapter](./chapter_0218.md)&nbsp;/&nbsp;

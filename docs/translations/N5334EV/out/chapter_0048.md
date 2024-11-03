@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0049.md)
 ###### [Previous Chapter](./chapter_0047.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 43: Details of Cooptown
 
 ## 43話　コープタウンの細事
@@ -612,3 +615,9 @@ Muscle-bound invincibility!
 Next time: "Amukam Growth Ceremony"
 
 *次回「アムカム成長の儀式」*
+
+
+---
+
+###### [Next Chapter](./chapter_0049.md)
+###### [Previous Chapter](./chapter_0047.md)&nbsp;/&nbsp;

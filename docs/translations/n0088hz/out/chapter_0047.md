@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0048.md)
 ###### [Previous Chapter](./chapter_0046.md)&nbsp;/&nbsp;
 
+---
+
+
 # ……I changed clothes ●Illustration included
 
 ## ……着替えました　●挿絵アリ
@@ -324,3 +327,9 @@ For information about bonuses, there's a link in the activity report.
 ...As you can tell from the sample, the bonus breasts are amazing...!)
 
 *……サンプルからもわかる、特典おっぱいがすごいぞ…！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0048.md)
+###### [Previous Chapter](./chapter_0046.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0020.md)
 ###### [Previous Chapter](./chapter_0018.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 19: Suzy Cloud's First Day at School
 
 ## 19話　スージィ・クラウドの初登校
@@ -1214,3 +1217,9 @@ The entropy in the classroom increased even further.
 Finally... finally! The role of the comic relief has been introduced!! ...It took a long time (+_+)
 
 *やっと…やぁっと！ツッコミ担当を登場させられました！！……長かった(+_+)*
+
+
+---
+
+###### [Next Chapter](./chapter_0020.md)
+###### [Previous Chapter](./chapter_0018.md)&nbsp;/&nbsp;

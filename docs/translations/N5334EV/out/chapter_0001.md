@@ -707,3 +707,8 @@ If you notice any typos or anything that seems off in Japanese, I would apprecia
 I corrected typos on 7/4.
 
 *7/4誤字修正しました。*
+
+
+---
+
+###### [Next Chapter](./chapter_0002.md)

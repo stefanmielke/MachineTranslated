@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0088.md)
 ###### [Previous Chapter](./chapter_0086.md)&nbsp;/&nbsp;
 
+---
+
+
 # Unknown Store's CM Song
 
 ## 知らん店のＣＭソング
@@ -258,3 +261,9 @@ That was close. I almost got swayed by Aisia… Well, I definitely can't let her
 "Oh, we had that in my hometown too. Was it croquettes…? The second verse was about napolitan, right? I only remember the first verse of the lyrics."
 
 *「ああ、それウチの故郷にもあったな。あれはコロッケだったか……２番はナポリタンだったっけ。１番しか歌詞覚えてないけど」*
+
+
+---
+
+###### [Next Chapter](./chapter_0088.md)
+###### [Previous Chapter](./chapter_0086.md)&nbsp;/&nbsp;

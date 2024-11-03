@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0027.md)
 ###### [Previous Chapter](./chapter_0025.md)&nbsp;/&nbsp;
 
+---
+
+
 # Report to the God After the Fact Part 1 ●Illustration Included
 
 ## 神様に事後報告　前編　●挿絵アリ
@@ -306,3 +309,9 @@ You clever God, you're good at business!
 https://lightnovel.jp/best/2022_07-12/tw/?q=%E9%AC%BC%E5%BD%B1%E3%82%B9%E3%83%91%E3%83%8A)
 
 *https://lightnovel.jp/best/2022_07-12/tw/?q=%E9%AC%BC%E5%BD%B1%E3%82%B9%E3%83%91%E3%83%8A　）*
+
+
+---
+
+###### [Next Chapter](./chapter_0027.md)
+###### [Previous Chapter](./chapter_0025.md)&nbsp;/&nbsp;

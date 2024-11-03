@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0238.md)
 ###### [Previous Chapter](./chapter_0236.md)&nbsp;/&nbsp;
 
+---
+
+
 # You're quite something, aren't you?
 
 ## おめぇとんでもねーにゃ
@@ -312,3 +315,9 @@ In fact, it seems there are quite a few who admire the Five Elders among the fak
 *実際わりと五大老に憧れた偽五人組はテッシンにそこそこいるらしい。悪質な詐欺は取り締まるが、『ネオ・五大老』とか『裏五大老』とか『五大老Next』とかそういうパチっぽい名前で、問題を起こさないなら問題ないそうな。*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0238.md)
+###### [Previous Chapter](./chapter_0236.md)&nbsp;/&nbsp;

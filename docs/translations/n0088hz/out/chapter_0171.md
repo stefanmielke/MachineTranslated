@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0172.md)
 ###### [Previous Chapter](./chapter_0170.md)&nbsp;/&nbsp;
 
+---
+
+
 # This is the house of that divine artifact, huh
 
 ## ここがあの神器のハウスね
@@ -276,3 +279,9 @@ Those who have read this far probably know, but she was the first woman to undre
 The link to the official account is from the cover image link below!
 
 *公式アカウントへのリンクは↓の表紙画像リンクから！*
+
+
+---
+
+###### [Next Chapter](./chapter_0172.md)
+###### [Previous Chapter](./chapter_0170.md)&nbsp;/&nbsp;

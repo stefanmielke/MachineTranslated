@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0242.md)
 ###### [Previous Chapter](./chapter_0240.md)&nbsp;/&nbsp;
 
+---
+
+
 # It seems we have to offer a sacrifice
 
 ## 生贄を出さなければいけないらしい
@@ -242,3 +245,9 @@ is in the final stretch for reader selection!!
 It’s until today or tomorrow, so please throw some ★ ratings my way!!)
 
 *今日明日くらいまでなので評価の★ぶんなげてあげてくださいましー！！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0242.md)
+###### [Previous Chapter](./chapter_0240.md)&nbsp;/&nbsp;

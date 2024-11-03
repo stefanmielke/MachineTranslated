@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0034.md)
 ###### [Previous Chapter](./chapter_0032.md)&nbsp;/&nbsp;
 
+---
+
+
 # Merchant Guild of the Port Town Veraldo
 
 ## 港町ヴェーラルドの商人ギルド
@@ -342,3 +345,9 @@ If he gets angry now, it’ll just confirm he’s a small fry. Hehe.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0034.md)
+###### [Previous Chapter](./chapter_0032.md)&nbsp;/&nbsp;

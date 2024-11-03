@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0181.md)
 ###### [Previous Chapter](./chapter_0179.md)&nbsp;/&nbsp;
 
+---
+
+
 # If I told everything honestly, the king would cry, right?
 
 ## 全部正直に言ったら王様泣いちゃうよね
@@ -314,3 +317,9 @@ What, what should you do?
 You can give it a ☆☆☆☆☆ rating or write a review. Or there's that blue bird icon at the top of the page, right? If you click that and post it on Twitter (now X), that would be great!
 
 *☆☆☆☆☆つけても良いし、レビューを書いても良い。あるいはページの上のとこに青い鳥のアイコンとかがあるじゃろ？　それをクリックしてツイッター（現X）に投稿とかすればええんじゃよ。*
+
+
+---
+
+###### [Next Chapter](./chapter_0181.md)
+###### [Previous Chapter](./chapter_0179.md)&nbsp;/&nbsp;

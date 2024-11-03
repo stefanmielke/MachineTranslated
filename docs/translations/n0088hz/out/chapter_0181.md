@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0182.md)
 ###### [Previous Chapter](./chapter_0180.md)&nbsp;/&nbsp;
 
+---
+
+
 # It's a simple job to lightly remind someone.
 
 ## 軽く釘をさす簡単なお仕事です。
@@ -320,3 +323,9 @@ Maria gave me a look that seemed to say, "What on earth did you do!?" Taking adv
 Um, was it bad to heal him? I guess there will be a reflection meeting later... Is it okay to skip out?
 
 *ええと、治しちゃまずかった？　こりゃあとで反省会かなぁー……バックレちゃだめ？*
+
+
+---
+
+###### [Next Chapter](./chapter_0182.md)
+###### [Previous Chapter](./chapter_0180.md)&nbsp;/&nbsp;

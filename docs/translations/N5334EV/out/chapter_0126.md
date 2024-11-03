@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0127.md)
 ###### [Previous Chapter](./chapter_0125.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 114: Leave It to Annie!
 
 ## 114話　アニーにおまかせ！
@@ -608,3 +611,9 @@ I will be posting in quick succession after a long time.
 I plan to release 5 chapters in a row.
 
 *5話を連日投下予定です。*
+
+
+---
+
+###### [Next Chapter](./chapter_0127.md)
+###### [Previous Chapter](./chapter_0125.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0033.md)
 ###### [Previous Chapter](./chapter_0031.md)&nbsp;/&nbsp;
 
+---
+
+
 # The Classic of Bathing with TS Girls
 
 ## ＴＳ娘のお風呂という定番
@@ -318,3 +321,9 @@ It was in a cup instead of a bottle, but apparently, it’s proper etiquette to 
 (Comments, likes, bookmarks, star ratings, and updates are all encouraging!)
 
 *（コメント、いいね、ブクマ、★評価、更新の励みになっております！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0033.md)
+###### [Previous Chapter](./chapter_0031.md)&nbsp;/&nbsp;

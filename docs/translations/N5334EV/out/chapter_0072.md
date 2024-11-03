@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0073.md)
 ###### [Previous Chapter](./chapter_0071.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 67: Team Aria's Deployment
 
 ## 67話　チームアリアの出撃
@@ -1474,3 +1477,9 @@ Well, according to the plot, there are still five more episodes, right?
 But it seems like two or three more episodes will likely be added... uahaha (sweat)
 
 *でも既に、もう2～3話は増えそうだし……うはは（大汗*
+
+
+---
+
+###### [Next Chapter](./chapter_0073.md)
+###### [Previous Chapter](./chapter_0071.md)&nbsp;/&nbsp;

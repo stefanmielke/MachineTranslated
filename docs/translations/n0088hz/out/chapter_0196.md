@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0197.md)
 ###### [Previous Chapter](./chapter_0195.md)&nbsp;/&nbsp;
 
+---
+
+
 # Isn't that the same system as this one!!
 
 ## あれもこれと同じシステムじゃないか！！
@@ -242,3 +245,9 @@ Since it's a great opportunity, maybe Dia-kun should level up too!
 (The release of the first volume of "Ato Goji" is on 11/20 (Monday)! I wonder if it might already be on the shelves if it's an early release...?)
 
 *（あとごじ１巻発売は11/20（月）！　早売りだともう並んでる可能性もあるのかしら…？）*
+
+
+---
+
+###### [Next Chapter](./chapter_0197.md)
+###### [Previous Chapter](./chapter_0195.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0086.md)
 ###### [Previous Chapter](./chapter_0084.md)&nbsp;/&nbsp;
 
+---
+
+
 # Interlude 1: The Hero's Message
 
 ## 幕間1　勇者伝え
@@ -512,3 +515,9 @@ Thank you for reading!
 I wonder if I can manage one more story within the year…
 
 *年内中にもう一話いけるかな・・・。*
+
+
+---
+
+###### [Next Chapter](./chapter_0086.md)
+###### [Previous Chapter](./chapter_0084.md)&nbsp;/&nbsp;

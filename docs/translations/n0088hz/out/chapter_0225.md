@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0226.md)
 ###### [Previous Chapter](./chapter_0224.md)&nbsp;/&nbsp;
 
+---
+
+
 # Hit and Cover, Rock-Paper-Scissors!!
 
 ## 叩いてかぶってジャンケンポン！！
@@ -240,3 +243,9 @@ What? You’re actually lending it to me? You’re really kind.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0226.md)
+###### [Previous Chapter](./chapter_0224.md)&nbsp;/&nbsp;

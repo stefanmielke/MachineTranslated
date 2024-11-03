@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0132.md)
 ###### [Previous Chapter](./chapter_0130.md)&nbsp;/&nbsp;
 
+---
+
+
 # We are best friends forever☆
 
 ## 私達、ズッ友だょ☆
@@ -322,3 +325,9 @@ Ah, wait… Ahhh!!!??!!
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0132.md)
+###### [Previous Chapter](./chapter_0130.md)&nbsp;/&nbsp;

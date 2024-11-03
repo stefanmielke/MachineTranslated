@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0013.md)
 ###### [Previous Chapter](./chapter_0011.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 12: Howard Cloud is Greatly Surprised
 
 ## 12話　ハワード・クラウド大いに驚く
@@ -1788,3 +1791,9 @@ If you notice any typos or errors, please let me know! <(_ _)>
 Also, I would be even happier to receive your feedback!
 
 *ついでに、ご感想でも頂ければ、尚嬉しゅうございます！*
+
+
+---
+
+###### [Next Chapter](./chapter_0013.md)
+###### [Previous Chapter](./chapter_0011.md)&nbsp;/&nbsp;

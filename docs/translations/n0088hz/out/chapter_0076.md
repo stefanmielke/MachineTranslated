@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0077.md)
 ###### [Previous Chapter](./chapter_0075.md)&nbsp;/&nbsp;
 
+---
+
+
 # Evidence over argument. Hmph! ●Illustration included
 
 ## 論より証拠。フンッ！●挿絵アリ
@@ -276,3 +279,9 @@ With that, I returned to my room and collapsed onto my bed.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0077.md)
+###### [Previous Chapter](./chapter_0075.md)&nbsp;/&nbsp;

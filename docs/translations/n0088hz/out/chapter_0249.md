@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0250.md)
 ###### [Previous Chapter](./chapter_0248.md)&nbsp;/&nbsp;
 
+---
+
+
 # Are you taking a break here?
 
 ## こんなところでお休みですか？
@@ -200,3 +203,9 @@ However, if I coat Dia-kun with spatial magic, he should be able to pass through
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0250.md)
+###### [Previous Chapter](./chapter_0248.md)&nbsp;/&nbsp;

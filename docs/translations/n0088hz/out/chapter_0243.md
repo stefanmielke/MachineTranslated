@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0244.md)
 ###### [Previous Chapter](./chapter_0242.md)&nbsp;/&nbsp;
 
+---
+
+
 # Demon Tribe
 
 ## 鬼族
@@ -188,3 +191,9 @@ Well, good luck? I gave a thumbs up and stepped into the container myself.
 (We are in the process of publishing this work...!!)
 
 *（書籍化作業中ですわ……！！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0244.md)
+###### [Previous Chapter](./chapter_0242.md)&nbsp;/&nbsp;

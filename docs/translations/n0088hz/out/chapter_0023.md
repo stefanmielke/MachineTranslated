@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0024.md)
 ###### [Previous Chapter](./chapter_0022.md)&nbsp;/&nbsp;
 
+---
+
+
 # PKK (Meaning "Let's Hunt the Hunters!")
 
 ## ＰＫＫ（人狩り狩ろうぜ！　の意）
@@ -380,3 +383,9 @@ If I go there, even if I go overboard, there won’t be any damage to the surrou
 (Happy New Year!!)
 
 *（良いお年を！！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0024.md)
+###### [Previous Chapter](./chapter_0022.md)&nbsp;/&nbsp;

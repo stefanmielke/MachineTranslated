@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0162.md)
 ###### [Previous Chapter](./chapter_0160.md)&nbsp;/&nbsp;
 
+---
+
+
 # Oh, brave hero.
 
 ## おお勇者殿。
@@ -314,3 +317,9 @@ I'm looking forward to the cover by illustrator Ixy-sensei.
 And it seems there will be various other things happening too... I'm excited!!
 
 *そして他にも色々やってくれる模様です……楽しみ！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0162.md)
+###### [Previous Chapter](./chapter_0160.md)&nbsp;/&nbsp;

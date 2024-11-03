@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0033.md)
 ###### [Previous Chapter](./chapter_0031.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 32: Suzy Cloud's First Errand
 
 ## 32話　スージィ・クラウドはじめてのお使い
@@ -1314,3 +1317,9 @@ The wind blows from the north.
 Next time: "Afternoon in Amkam"
 
 *次回「アムカムの昼下がり」*
+
+
+---
+
+###### [Next Chapter](./chapter_0033.md)
+###### [Previous Chapter](./chapter_0031.md)&nbsp;/&nbsp;

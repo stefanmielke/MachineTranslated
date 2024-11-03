@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0219.md)
 ###### [Previous Chapter](./chapter_0217.md)&nbsp;/&nbsp;
 
+---
+
+
 # Defeated in the Semi-Finals of the Tournament
 
 ## 大会の準決勝で敗退
@@ -212,3 +215,9 @@ Anyway, I offered a prayer to the gods. Now then, it's time for the delivery.
 (I received ★ reviews on Kakuyomu! Thank you very much!)
 
 *（カクヨムの方で★レビューいただきましたわー！　ありがとうございますわー！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0219.md)
+###### [Previous Chapter](./chapter_0217.md)&nbsp;/&nbsp;

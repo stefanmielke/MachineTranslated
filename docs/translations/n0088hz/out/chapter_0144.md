@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0145.md)
 ###### [Previous Chapter](./chapter_0143.md)&nbsp;/&nbsp;
 
+---
+
+
 # Are the Dwarves Doing This Nationwide?
 
 ## 国ぐるみでやってんのかドワーフ
@@ -270,3 +273,9 @@ Also, it seems that there are times when what you think is juice at restaurants 
 Also, for Street Fighter 6, I’m almost at level 20 with a bond of 100 with my master. Sorry.)
 
 *あとスト６のほうはあと少しで一通り師匠との絆１００の２０段になりそうなんだ。すまん）*
+
+
+---
+
+###### [Next Chapter](./chapter_0145.md)
+###### [Previous Chapter](./chapter_0143.md)&nbsp;/&nbsp;

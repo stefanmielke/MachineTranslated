@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0245.md)
 ###### [Previous Chapter](./chapter_0243.md)&nbsp;/&nbsp;
 
+---
+
+
 # Comfortable Air Travel
 
 ## 快適な空の旅
@@ -214,3 +217,9 @@ And Arthur was faster than I expected, arriving at the village that night.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0245.md)
+###### [Previous Chapter](./chapter_0243.md)&nbsp;/&nbsp;

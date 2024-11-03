@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0192.md)
 ###### [Previous Chapter](./chapter_0190.md)&nbsp;/&nbsp;
 
+---
+
+
 # Everyone with the Five Elders and Mashiro-san
 
 ## 五大老のみんなとマシロさん
@@ -214,3 +217,9 @@ I wonder what we did in our drunken state, I have no idea.
 (It seems that empty bottles of aphrodisiac bought by the Five Elders were rolling around in the workshop's bedroom.)
 
 *（工房の寝室には五大老が買い取った媚薬の空き瓶が転がっていた模様）*
+
+
+---
+
+###### [Next Chapter](./chapter_0192.md)
+###### [Previous Chapter](./chapter_0190.md)&nbsp;/&nbsp;

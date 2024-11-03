@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0073.md)
 ###### [Previous Chapter](./chapter_0071.md)&nbsp;/&nbsp;
 
+---
+
+
 # Was just a business meeting, you know?
 
 ## ただの商談でしたよ？
@@ -248,3 +251,9 @@ Kyaa, Dia-kun is so kind!
 Sorry, I hadn't thought of that at all. But I'll make sure to pay you back, so don't worry!
 
 *ごめんそんなこと全く考えてなかったや。まぁちゃんと返すから安心してね！*
+
+
+---
+
+###### [Next Chapter](./chapter_0073.md)
+###### [Previous Chapter](./chapter_0071.md)&nbsp;/&nbsp;

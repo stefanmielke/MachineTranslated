@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0137.md)
 ###### [Previous Chapter](./chapter_0135.md)&nbsp;/&nbsp;
 
+---
+
+
 # Who is the most important and powerful?
 
 ## 一番偉くて重要なのはだーれだ？
@@ -282,3 +285,9 @@ Mashiro-san shrugged her shoulders with a sigh.
 (Next time, stalling for time due to running out of stock!())
 
 *（次回、ストック切れのため時間稼ぎ！（））*
+
+
+---
+
+###### [Next Chapter](./chapter_0137.md)
+###### [Previous Chapter](./chapter_0135.md)&nbsp;/&nbsp;

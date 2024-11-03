@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0166.md)
 ###### [Previous Chapter](./chapter_0164.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 153: Impatience
 
 ## 153話　焦り
@@ -758,3 +761,9 @@ Thank you for pointing out any typos or errors!
 Thank you for bookmarks and evaluations! They are always encouraging!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0166.md)
+###### [Previous Chapter](./chapter_0164.md)&nbsp;/&nbsp;

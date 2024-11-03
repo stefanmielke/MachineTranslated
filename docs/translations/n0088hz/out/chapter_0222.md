@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0223.md)
 ###### [Previous Chapter](./chapter_0221.md)&nbsp;/&nbsp;
 
+---
+
+
 # Well, really, I was at fault
 
 ## いやほんと、私が悪かったよ
@@ -270,3 +273,9 @@ So, Dia-kun and I decided to enter the tournament designated by Misha.
 (It's been quite a challenge since the New Year, but please be careful of aftershocks and such.)
 
 *（新年から色々大変ですが、余震などにお気をつけて）*
+
+
+---
+
+###### [Next Chapter](./chapter_0223.md)
+###### [Previous Chapter](./chapter_0221.md)&nbsp;/&nbsp;

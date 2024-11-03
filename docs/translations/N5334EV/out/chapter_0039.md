@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0040.md)
 ###### [Previous Chapter](./chapter_0038.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 39: Suzy Cloud Makes Her Stand
 
 ## 39話　スージィ・クラウド名乗りを上げる
@@ -2916,3 +2919,9 @@ Tomorrow, I’ll bring flowers.
 Next time: "A Bouquet for Lavinia Cloud"
 
 *次回「ラヴィニア・クラウドに花束を」*
+
+
+---
+
+###### [Next Chapter](./chapter_0040.md)
+###### [Previous Chapter](./chapter_0038.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0117.md)
 ###### [Previous Chapter](./chapter_0115.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 104: Noisy Dining Table
 
 ## 104話　騒がしい食卓
@@ -814,3 +817,9 @@ Arvin received my gaze straight on, then stood right in front of the second son,
 Thank you for always reading!
 
 *いつもお読みいただき、ありがとうございます！*
+
+
+---
+
+###### [Next Chapter](./chapter_0117.md)
+###### [Previous Chapter](./chapter_0115.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0167.md)
 ###### [Previous Chapter](./chapter_0165.md)&nbsp;/&nbsp;
 
+---
+
+
 # Well then, Slabe
 
 ## じゃあスラベェで
@@ -282,3 +285,9 @@ https://twitter.com/atogozi/status/1712757037879472639
 You can also access the official X account by clicking on the cover art below, so if you find copying and pasting the URL troublesome, that’s another way to open it.
 
 *公式Xアカウントへのリンクは下のとこに置いた表紙絵をクリックでもいけるので、URLコピペ面倒というひとはそのルートで開く方法もあるぞ。*
+
+
+---
+
+###### [Next Chapter](./chapter_0167.md)
+###### [Previous Chapter](./chapter_0165.md)&nbsp;/&nbsp;

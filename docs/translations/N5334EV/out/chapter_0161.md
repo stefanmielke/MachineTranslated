@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0162.md)
 ###### [Previous Chapter](./chapter_0160.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 149: The Protection of the Familiar
 
 ## 149話　従魔の加護
@@ -516,3 +519,9 @@ Thank you for reading.
 Thank you for your bookmarks and evaluations! They always motivate me!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0162.md)
+###### [Previous Chapter](./chapter_0160.md)&nbsp;/&nbsp;

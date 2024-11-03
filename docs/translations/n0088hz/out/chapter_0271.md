@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0272.md)
 ###### [Previous Chapter](./chapter_0270.md)&nbsp;/&nbsp;
 
+---
+
+
 # Nothing feels as good as justice!
 
 ## 正義ほど気持ちいいもんはねぇもんな！
@@ -230,3 +233,9 @@ Also, Volume 2 of Gojii is eligible! Sorry for the trouble, but please vote to s
 https://ln-news.com/articles/119561
 
 *https://ln-news.com/articles/119561*
+
+
+---
+
+###### [Next Chapter](./chapter_0272.md)
+###### [Previous Chapter](./chapter_0270.md)&nbsp;/&nbsp;

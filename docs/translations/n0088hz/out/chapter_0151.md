@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0152.md)
 ###### [Previous Chapter](./chapter_0150.md)&nbsp;/&nbsp;
 
+---
+
+
 # Do you understand these words?
 
 ## こちらの言葉は分かるんですよね？
@@ -212,3 +215,9 @@ Ah, welcome, Mashiro-san. And thank you for the reaction I expected in a way.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0152.md)
+###### [Previous Chapter](./chapter_0150.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0247.md)
 ###### [Previous Chapter](./chapter_0245.md)&nbsp;/&nbsp;
 
+---
+
+
 # Greeting the Village Chief
 
 ## 里長に挨拶
@@ -232,3 +235,9 @@ By the way, the village chief said to Youki, "What a strange thing!? The magical
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0247.md)
+###### [Previous Chapter](./chapter_0245.md)&nbsp;/&nbsp;

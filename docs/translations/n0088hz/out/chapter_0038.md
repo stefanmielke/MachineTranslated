@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0039.md)
 ###### [Previous Chapter](./chapter_0037.md)&nbsp;/&nbsp;
 
+---
+
+
 # Fateful Encounter () ●Illustration Included
 
 ## 運命の出会い（）　●挿絵アリ
@@ -258,3 +261,9 @@ If I acquire the alchemy skill, I should be able to create various things combin
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0039.md)
+###### [Previous Chapter](./chapter_0037.md)&nbsp;/&nbsp;

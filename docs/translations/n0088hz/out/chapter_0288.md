@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0289.md)
 ###### [Previous Chapter](./chapter_0287.md)&nbsp;/&nbsp;
 
+---
+
+
 # Of Chaos
 
 ## 混沌の
@@ -308,3 +311,9 @@ Saying that, the Demon Lord of Chaos closed her eyes, and her hair color returne
 It will be published in ComicREX on 8/27! In a paper magazine! It's a comic adaptation!!!)
 
 *8/27発売のComicREXにて！　紙の雑誌で！　コミカライズじゃああ！！！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0289.md)
+###### [Previous Chapter](./chapter_0287.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0217.md)
 ###### [Previous Chapter](./chapter_0215.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 204: Warriors of Amukam
 
 ## 204話　アムカムの戦士たち
@@ -656,3 +659,9 @@ https://gammaplus.takeshobo.co.jp/manga/onna_heiwanasyomin/
 Please take care!
 
 *何卒よしなに！*
+
+
+---
+
+###### [Next Chapter](./chapter_0217.md)
+###### [Previous Chapter](./chapter_0215.md)&nbsp;/&nbsp;

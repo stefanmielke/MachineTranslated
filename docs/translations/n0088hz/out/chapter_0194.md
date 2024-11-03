@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0195.md)
 ###### [Previous Chapter](./chapter_0193.md)&nbsp;/&nbsp;
 
+---
+
+
 # This country might not be good for education
 
 ## この国は教育によくないかもしれない
@@ -258,3 +261,9 @@ Ugh, this country might not be good for education...!!
 I would be happy if you could buy it and support it for the sake of the second volume and beyond!!)
 
 *２巻以降のためにも、買って応援してくれると嬉しいです！！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0195.md)
+###### [Previous Chapter](./chapter_0193.md)&nbsp;/&nbsp;

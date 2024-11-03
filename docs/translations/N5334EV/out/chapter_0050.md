@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0051.md)
 ###### [Previous Chapter](./chapter_0049.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 45: The Cloud Family's Dinner
 
 ## 45話　クラウド家の夕餉
@@ -696,3 +699,9 @@ Nightly promise...
 Next time: "Suzy Cloud's Night Training"
 
 *次回「スージィ・クラウド夜の鍛練」*
+
+
+---
+
+###### [Next Chapter](./chapter_0051.md)
+###### [Previous Chapter](./chapter_0049.md)&nbsp;/&nbsp;

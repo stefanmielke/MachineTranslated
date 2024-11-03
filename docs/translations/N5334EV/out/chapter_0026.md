@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0027.md)
 ###### [Previous Chapter](./chapter_0025.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 26: Suzy Cloud's Match
 
 ## 26話　スージィ・クラウド立ち合いをする
@@ -1756,3 +1759,9 @@ Ryder clutched his chest, his expression twisting as he endured the pain.
 Suzy could only quietly watch Ryder's figure.
 
 *スージィには、そんなライダーの姿を静かに見つめる事しか出来なかった。*
+
+
+---
+
+###### [Next Chapter](./chapter_0027.md)
+###### [Previous Chapter](./chapter_0025.md)&nbsp;/&nbsp;

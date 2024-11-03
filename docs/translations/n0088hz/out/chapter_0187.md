@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0188.md)
 ###### [Previous Chapter](./chapter_0186.md)&nbsp;/&nbsp;
 
+---
+
+
 # Well, of course I'm going to return it!!
 
 ## そりゃ返納してしまうよ！！
@@ -362,3 +365,9 @@ This really seems like it could be used for repentance or punishment.
 Was it bad to hand out wallpapers and sample readings via DM...?)
 
 *壁紙や試し読みをDMで配ったりしたのがまずかったか……）*
+
+
+---
+
+###### [Next Chapter](./chapter_0188.md)
+###### [Previous Chapter](./chapter_0186.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0217.md)
 ###### [Previous Chapter](./chapter_0215.md)&nbsp;/&nbsp;
 
+---
+
+
 # That's even more convenient!!
 
 ## それは尚更好都合ッ！！
@@ -224,3 +227,9 @@ Player Misha, her face bright red and teary-eyed, roars.
 (Since it got a bit long, I'll split it. The continuation will be tomorrow!)
 
 *（ちょっと長くなっちゃったので分割。続きは明日！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0217.md)
+###### [Previous Chapter](./chapter_0215.md)&nbsp;/&nbsp;

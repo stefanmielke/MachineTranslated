@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0142.md)
 ###### [Previous Chapter](./chapter_0140.md)&nbsp;/&nbsp;
 
+---
+
+
 # I have come to deliver
 
 ## 納品に来ましたよっと
@@ -268,3 +271,9 @@ What will be the assessment amount for the last pair, Masiro-san's socks?
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0142.md)
+###### [Previous Chapter](./chapter_0140.md)&nbsp;/&nbsp;

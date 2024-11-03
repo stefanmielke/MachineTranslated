@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0138.md)
 ###### [Previous Chapter](./chapter_0136.md)&nbsp;/&nbsp;
 
+---
+
+
 # Cold-Blooded Agent (Bibei's Perspective)
 
 ## 冷酷なエージェント（ビーベイ視点）
@@ -266,3 +269,9 @@ As a result, we ended up having that nightmarish experience.
 To be honest, I apologize for this being a time filler due to running out of stock!)
 
 *尚、正直に言うと今回はストック切れによる時間稼ぎですすみません！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0138.md)
+###### [Previous Chapter](./chapter_0136.md)&nbsp;/&nbsp;

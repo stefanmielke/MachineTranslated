@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0254.md)
 ###### [Previous Chapter](./chapter_0252.md)&nbsp;/&nbsp;
 
+---
+
+
 # Here is the Dragon's House
 
 ## ここがドラゴンのハウスね
@@ -308,3 +311,9 @@ Hohoho, praise me more. I tend to get carried away when I'm complimented!
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0254.md)
+###### [Previous Chapter](./chapter_0252.md)&nbsp;/&nbsp;

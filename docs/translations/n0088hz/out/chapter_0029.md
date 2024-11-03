@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0030.md)
 ###### [Previous Chapter](./chapter_0028.md)&nbsp;/&nbsp;
 
+---
+
+
 # A Grown-Up Shopping Story - Continuation
 
 ## オトナな買い物の話・つづき
@@ -292,3 +295,9 @@ What? I didn’t hear that! This is just a series of misfortunes, ugh!!
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0030.md)
+###### [Previous Chapter](./chapter_0028.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0139.md)
 ###### [Previous Chapter](./chapter_0137.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 126 Annie's Sword
 
 ## 126話　アニーの剣
@@ -428,3 +431,9 @@ Thank you for reading.
 Thank you for your bookmarks and evaluations! They always motivate me!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0139.md)
+###### [Previous Chapter](./chapter_0137.md)&nbsp;/&nbsp;

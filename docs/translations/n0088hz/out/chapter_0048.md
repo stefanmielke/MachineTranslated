@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0049.md)
 ###### [Previous Chapter](./chapter_0047.md)&nbsp;/&nbsp;
 
+---
+
+
 # Infiltrating the Pirate Ship!
 
 ## 海賊船へ潜入！
@@ -446,3 +449,9 @@ I was hoping to use the fact that I healed their feet to get regular sock produc
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0049.md)
+###### [Previous Chapter](./chapter_0047.md)&nbsp;/&nbsp;

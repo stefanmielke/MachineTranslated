@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0066.md)
 ###### [Previous Chapter](./chapter_0064.md)&nbsp;/&nbsp;
 
+---
+
+
 # There's no turning back.
 
 ## 身も蓋もねぇ。
@@ -338,3 +341,9 @@ With the delivery completed and a year's worth of menstrual skip medicine obtain
 *納品も済んで、１年分の生理スキップ薬をゲットして、笑顔の神様に見送られて私は現世に帰還した。*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0066.md)
+###### [Previous Chapter](./chapter_0064.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0174.md)
 ###### [Previous Chapter](./chapter_0172.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 161: Measurements and Rank Up
 
 ## 161話　採寸とランクアップ
@@ -322,3 +325,9 @@ Thank you for reading.
 Thank you for your bookmarks and evaluations! They are always a great encouragement!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0174.md)
+###### [Previous Chapter](./chapter_0172.md)&nbsp;/&nbsp;

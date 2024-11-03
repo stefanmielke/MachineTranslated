@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0055.md)
 ###### [Previous Chapter](./chapter_0053.md)&nbsp;/&nbsp;
 
+---
+
+
 # I defeated the pirates, so I'm taking a little break.
 
 ## 海賊退治したのでちょっと休憩。
@@ -342,3 +345,9 @@ After a little rest, I need to go to the lord’s place... yawn.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0055.md)
+###### [Previous Chapter](./chapter_0053.md)&nbsp;/&nbsp;

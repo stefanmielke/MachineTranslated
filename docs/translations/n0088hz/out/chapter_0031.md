@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0032.md)
 ###### [Previous Chapter](./chapter_0030.md)&nbsp;/&nbsp;
 
+---
+
+
 # Use your imagination.
 
 ## 空白は察して。
@@ -272,3 +275,9 @@ Guess I’ll go to the bathhouse before the Merchant Guild.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0032.md)
+###### [Previous Chapter](./chapter_0030.md)&nbsp;/&nbsp;

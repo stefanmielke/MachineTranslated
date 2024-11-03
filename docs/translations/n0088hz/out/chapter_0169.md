@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0170.md)
 ###### [Previous Chapter](./chapter_0168.md)&nbsp;/&nbsp;
 
+---
+
+
 # For now, shall we buy something and hear the story? (From Diar's perspective)
 
 ## とりあえず、何か買って話を伺いますか（ディア君視点）
@@ -270,3 +273,9 @@ And it seems they’re using that line which wasn’t in the web version… w, y
 You can find the official account from the link to the cover illustration below!
 
 *公式アカウントは下の表紙絵のリンクから！*
+
+
+---
+
+###### [Next Chapter](./chapter_0170.md)
+###### [Previous Chapter](./chapter_0168.md)&nbsp;/&nbsp;

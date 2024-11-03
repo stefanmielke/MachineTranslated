@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0185.md)
 ###### [Previous Chapter](./chapter_0183.md)&nbsp;/&nbsp;
 
+---
+
+
 # Divine Artifact Submission Ceremony
 
 ## 神器返納式
@@ -266,3 +269,9 @@ As a result of the voting, the electronic bonus short story will be centered aro
 The deadline is approaching, but I will make it in time, so I don't know what the next update will be like!!
 
 *締め切り近いけど間に合わすので、次の更新がどうなるか分からんぜ！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0185.md)
+###### [Previous Chapter](./chapter_0183.md)&nbsp;/&nbsp;

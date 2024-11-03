@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0025.md)
 ###### [Previous Chapter](./chapter_0023.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 24: Suzy Cloud and the Village Children
 
 ## 24話　スージィ・クラウドと村の子供たち
@@ -950,3 +953,9 @@ Yes! I love this village!!
 Next time, the story will slightly diverge from Amukam.
 
 *次回、物語が少しアムカムから離れます。*
+
+
+---
+
+###### [Next Chapter](./chapter_0025.md)
+###### [Previous Chapter](./chapter_0023.md)&nbsp;/&nbsp;

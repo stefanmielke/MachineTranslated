@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0014.md)
 ###### [Previous Chapter](./chapter_0012.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 13: Howard Cloud Enjoys a Meal
 
 ## 13話　ハワード・クラウド食事を楽しむ
@@ -686,3 +689,9 @@ How long has it been since Sonia has laughed so happily?
 If only I could wish for such days to return once more.
 
 *叶うのならば、こんな日々が再び訪れてくれる事を願わずにはいられない。*
+
+
+---
+
+###### [Next Chapter](./chapter_0014.md)
+###### [Previous Chapter](./chapter_0012.md)&nbsp;/&nbsp;

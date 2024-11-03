@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0016.md)
 ###### [Previous Chapter](./chapter_0014.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 15: Suzy Learns the Truth
 
 ## 15話　スージィは真実を知る
@@ -1630,3 +1633,9 @@ Suzy continued to cry, reflecting the golden light in her eyes as she was held i
 The shocking truth is revealed! Suzy is actually 13 years old!!
 
 *衝撃の真実発覚！実はスージィは13歳だったのです！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0016.md)
+###### [Previous Chapter](./chapter_0014.md)&nbsp;/&nbsp;

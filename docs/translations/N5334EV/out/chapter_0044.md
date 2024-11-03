@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0045.md)
 ###### [Previous Chapter](./chapter_0043.md)&nbsp;/&nbsp;
 
+---
+
+
 # Interlude 2 Let's Go Hunting!
 
 ## 幕間2　狩りへ行こうよ！
@@ -1212,3 +1215,9 @@ Next time, it will be a story after the first chapter ends.
 I will post it on the 31st at 8 PM next week.
 
 *来週31日20時に投下します。*
+
+
+---
+
+###### [Next Chapter](./chapter_0045.md)
+###### [Previous Chapter](./chapter_0043.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0052.md)
 ###### [Previous Chapter](./chapter_0050.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 46: Suzy Cloud's Night Training
 
 ## 46話　スージィ・クラウド夜の鍛練
@@ -856,3 +859,9 @@ Now, approaching the hero legend!
 Next time: "Aurora's Fairy Tale"
 
 *次回「アウローラの御伽噺」*
+
+
+---
+
+###### [Next Chapter](./chapter_0052.md)
+###### [Previous Chapter](./chapter_0050.md)&nbsp;/&nbsp;

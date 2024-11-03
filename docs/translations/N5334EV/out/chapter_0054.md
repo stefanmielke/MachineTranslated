@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0055.md)
 ###### [Previous Chapter](./chapter_0053.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 49: Suzy Cloud's Survival Part 1
 
 ## 49話　スージィ・クラウドのサバイバル　その1
@@ -820,3 +823,9 @@ ZZZ...ZZZ
 Next time: "Suzy Cloud's Survival Part 2"
 
 *次回「スージィ・クラウドのサバイバル　その2」*
+
+
+---
+
+###### [Next Chapter](./chapter_0055.md)
+###### [Previous Chapter](./chapter_0053.md)&nbsp;/&nbsp;

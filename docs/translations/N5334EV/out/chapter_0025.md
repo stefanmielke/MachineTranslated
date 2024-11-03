@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0026.md)
 ###### [Previous Chapter](./chapter_0024.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 25: The Delight of Orubetto Mash
 
 ## 25話　オルベット・マッシュの愉悦
@@ -596,3 +599,9 @@ He glared at the shadow where Clarimond had disappeared with disdain.
 Orubetto twisted his mouth into an ugly grin and dissolved into the shadows as if melting into the water.
 
 *オルベットが口元を醜く歪ませ、ユラリと揺れながら水へ溶ける様に影へと同化し消えて行った。*
+
+
+---
+
+###### [Next Chapter](./chapter_0026.md)
+###### [Previous Chapter](./chapter_0024.md)&nbsp;/&nbsp;

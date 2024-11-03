@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0131.md)
 ###### [Previous Chapter](./chapter_0129.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 118: Elective Classes
 
 ## 118話　選択クラス
@@ -468,3 +471,9 @@ This concludes the current series of posts.
 I will post again once I have more stock.
 
 *またストックが出来ましたら投下いたします。*
+
+
+---
+
+###### [Next Chapter](./chapter_0131.md)
+###### [Previous Chapter](./chapter_0129.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0015.md)
 ###### [Previous Chapter](./chapter_0013.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 14: Suzy and the Cloud Family
 
 ## 14話　スージィとクラウド家の人々
@@ -1402,3 +1405,9 @@ I'm looking forward to dinner now, huh? No, I'm looking forward to the venison t
 But I also think... that this kind of thing is nice... yeah.
 
 *只こう云うのもさ……、良いなって思う訳ですよ……うん。*
+
+
+---
+
+###### [Next Chapter](./chapter_0015.md)
+###### [Previous Chapter](./chapter_0013.md)&nbsp;/&nbsp;

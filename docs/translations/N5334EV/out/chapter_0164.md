@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0165.md)
 ###### [Previous Chapter](./chapter_0163.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 152: The Price of Red
 
 ## 152話　赤の代償
@@ -594,3 +597,9 @@ Thank you for reading.
 Thank you for the bookmarks and evaluations! They are always a source of encouragement!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0165.md)
+###### [Previous Chapter](./chapter_0163.md)&nbsp;/&nbsp;

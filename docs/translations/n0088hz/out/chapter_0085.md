@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0086.md)
 ###### [Previous Chapter](./chapter_0084.md)&nbsp;/&nbsp;
 
+---
+
+
 # I really want to take a ride!!!
 
 ## ちょっと乗ってみたいよなぁ！！！
@@ -390,3 +393,9 @@ Since she also became my practice partner for massages, I was satisfied.
 (Please praise me with ★ and comments since I posted every day without a break throughout February!)
 
 *（２月いっぱい休まず毎日投稿したから★やコメントで褒めて下さい（））*
+
+
+---
+
+###### [Next Chapter](./chapter_0086.md)
+###### [Previous Chapter](./chapter_0084.md)&nbsp;/&nbsp;

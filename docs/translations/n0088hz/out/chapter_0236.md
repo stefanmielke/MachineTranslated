@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0237.md)
 ###### [Previous Chapter](./chapter_0235.md)&nbsp;/&nbsp;
 
+---
+
+
 # It's a complicated family environment, isn't it...
 
 ## 複雑な家庭環境にゃんね……
@@ -342,3 +345,9 @@ Misha's eyes went wide at my spoiler.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0237.md)
+###### [Previous Chapter](./chapter_0235.md)&nbsp;/&nbsp;

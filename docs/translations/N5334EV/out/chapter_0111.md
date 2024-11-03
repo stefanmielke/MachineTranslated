@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0112.md)
 ###### [Previous Chapter](./chapter_0110.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 99: Blue Reverie
 
 ## 99話　蒼い微睡
@@ -672,3 +675,9 @@ It was there that the girl met her for the first time.
 Thank you for always reading!
 
 *いつもお読みいただき、ありがとうございます！*
+
+
+---
+
+###### [Next Chapter](./chapter_0112.md)
+###### [Previous Chapter](./chapter_0110.md)&nbsp;/&nbsp;

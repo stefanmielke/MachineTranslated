@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0204.md)
 ###### [Previous Chapter](./chapter_0202.md)&nbsp;/&nbsp;
 
+---
+
+
 # I apologized to Dia-kun.
 
 ## 私はディア君に謝った。
@@ -268,3 +271,9 @@ I received a betting slip worth 82 gold coins.
 (For now, it's volume 2! Dia-kun's! Book publication work is on!!）
 
 *（とりあえず２巻の！　ディア君の！　書籍化作業じゃぁい！！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0204.md)
+###### [Previous Chapter](./chapter_0202.md)&nbsp;/&nbsp;

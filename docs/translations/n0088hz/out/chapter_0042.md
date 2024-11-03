@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0043.md)
 ###### [Previous Chapter](./chapter_0041.md)&nbsp;/&nbsp;
 
+---
+
+
 # I knew it.
 
 ## 知ってた。
@@ -236,3 +239,9 @@ It seems the boss has finally arrived. Yay, God! This adds more excitement!
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0043.md)
+###### [Previous Chapter](./chapter_0041.md)&nbsp;/&nbsp;

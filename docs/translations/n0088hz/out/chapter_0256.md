@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0257.md)
 ###### [Previous Chapter](./chapter_0255.md)&nbsp;/&nbsp;
 
+---
+
+
 # Got it!
 
 ## 把握した！
@@ -240,3 +243,9 @@ Finally, Dia-kun will appear in the book!!
 Ixy-sensei’s illustrations are super cute... I can’t wait to show them to you!!)
 
 *Ｉｘｙ先生のイラストめちゃかわ……早くお見せしたいですわぁ！！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0257.md)
+###### [Previous Chapter](./chapter_0255.md)&nbsp;/&nbsp;

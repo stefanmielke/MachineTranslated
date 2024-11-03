@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0198.md)
 ###### [Previous Chapter](./chapter_0196.md)&nbsp;/&nbsp;
 
+---
+
+
 # Consultation with Dia-kun Right Away
 
 ## 早速ディア君に相談
@@ -262,3 +265,9 @@ So, we decided to dress up and participate in the tournament at the coliseum.
 If you have the means, please check that out too. The store bonuses are at the link to the cover below!)
 
 *余裕がある人はそちらもどうぞ。店舗特典は↓の表紙のリンク先だ！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0198.md)
+###### [Previous Chapter](./chapter_0196.md)&nbsp;/&nbsp;

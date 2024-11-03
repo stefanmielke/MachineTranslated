@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0075.md)
 ###### [Previous Chapter](./chapter_0073.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 69: The Three Scholars of the North
 
 ## 69話　北方の三博士
@@ -1164,3 +1167,9 @@ I hope it will be up around next week... (distant gaze)
 Next time: "Whispers of the Dark Forest"
 
 *次回「闇の森の囁き」*
+
+
+---
+
+###### [Next Chapter](./chapter_0075.md)
+###### [Previous Chapter](./chapter_0073.md)&nbsp;/&nbsp;

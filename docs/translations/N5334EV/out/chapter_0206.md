@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0207.md)
 ###### [Previous Chapter](./chapter_0205.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 194: The Bouncers
 
 ## 194話　バウンサー達
@@ -366,3 +369,9 @@ Thank you for pointing out the typos and errors!
 Thank you for the bookmarks and evaluations! They always motivate me!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0207.md)
+###### [Previous Chapter](./chapter_0205.md)&nbsp;/&nbsp;

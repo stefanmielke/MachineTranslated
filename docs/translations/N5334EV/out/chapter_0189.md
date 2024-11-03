@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0190.md)
 ###### [Previous Chapter](./chapter_0188.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 177: Showtime
 
 ## 177話　ショウタイム
@@ -1230,3 +1233,9 @@ Thank you for reading.
 Thank you for your bookmarks and evaluations! They always motivate me!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0190.md)
+###### [Previous Chapter](./chapter_0188.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0208.md)
 ###### [Previous Chapter](./chapter_0206.md)&nbsp;/&nbsp;
 
+---
+
+
 # I thought it was a just right handicap (Staff Perspective)
 
 ## 丁度いいハンデだと思っていた（スタッフ視点）
@@ -266,3 +269,9 @@ I genuinely praised myself for doing my job seriously.
 *まじめに仕事した自分を、本気で褒めた。*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0208.md)
+###### [Previous Chapter](./chapter_0206.md)&nbsp;/&nbsp;

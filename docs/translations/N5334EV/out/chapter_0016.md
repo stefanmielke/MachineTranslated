@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0017.md)
 ###### [Previous Chapter](./chapter_0015.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 16: Suzy Aims to Be Common!
 
 ## 16話　スージィは庶民を目指す！
@@ -1094,3 +1097,9 @@ I let my hand fall weakly onto my forehead...
 No one is there to answer that question.
 
 *その問いに答える者は何処にもいない。*
+
+
+---
+
+###### [Next Chapter](./chapter_0017.md)
+###### [Previous Chapter](./chapter_0015.md)&nbsp;/&nbsp;

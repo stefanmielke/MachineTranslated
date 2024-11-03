@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0258.md)
 ###### [Previous Chapter](./chapter_0256.md)&nbsp;/&nbsp;
 
+---
+
+
 # At a Certain Trading Company.
 
 ## とある商会にて。
@@ -288,3 +291,9 @@ https://gcnovels.jp/book/1657
 Release date is April 22nd!! I want to release volume 3 too, so please buy it!!)
 
 *発売は４月２２日ッ！！　３巻も出したいから買ってね！！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0258.md)
+###### [Previous Chapter](./chapter_0256.md)&nbsp;/&nbsp;

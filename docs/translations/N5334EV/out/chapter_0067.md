@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0068.md)
 ###### [Previous Chapter](./chapter_0066.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 62: Sonia Cloud's Worries
 
 ## 62話　ソニア・クラウドの憂い事
@@ -1066,3 +1069,9 @@ I apologize for that—<m(__)m>
 It may be added later, but that's not certain!!
 
 *その内、追加されるかもしれないけれど、定かでは無し！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0068.md)
+###### [Previous Chapter](./chapter_0066.md)&nbsp;/&nbsp;

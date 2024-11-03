@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0155.md)
 ###### [Previous Chapter](./chapter_0153.md)&nbsp;/&nbsp;
 
+---
+
+
 # Is there really such a fool?
 
 ## 居るのか、とんでもねぇバカ
@@ -206,3 +209,9 @@ On the way? There were no dragon attacks or anything like that, so there's nothi
 (The ninth volume of the comic adaptation was released while the dungeon master who absolutely doesn't want to work indulged in slumber.)
 
 *（絶対に働きたくないダンジョンマスターが惰眠をむさぼるまで、コミカライズ９巻が発売してました。）*
+
+
+---
+
+###### [Next Chapter](./chapter_0155.md)
+###### [Previous Chapter](./chapter_0153.md)&nbsp;/&nbsp;

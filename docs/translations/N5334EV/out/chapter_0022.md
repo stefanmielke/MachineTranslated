@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0023.md)
 ###### [Previous Chapter](./chapter_0021.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 22: Suzy Cloud's Midnight Investigation
 
 ## 22話　スージィ・クラウド真夜中の検証
@@ -536,3 +539,9 @@ Whether she truly intends to restrain herself is highly questionable.
 Highly questionable indeed!! w
 
 *甚だ疑問である！！ｗ*
+
+
+---
+
+###### [Next Chapter](./chapter_0023.md)
+###### [Previous Chapter](./chapter_0021.md)&nbsp;/&nbsp;

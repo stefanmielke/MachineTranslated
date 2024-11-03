@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0094.md)
 ###### [Previous Chapter](./chapter_0092.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 81: On the Day of Departure
 
 ## 81話　旅立ちの日に
@@ -886,3 +889,9 @@ For now, this is where I’ll stop the consecutive posts.
 I hope to post another chapter during the holiday, so I would appreciate your patience! (>ω<)
 
 *連休中にもう一話くらいは投下したいな～とは思っていますので、のんびりお待ち頂ければ幸いです～(>ω<)*
+
+
+---
+
+###### [Next Chapter](./chapter_0094.md)
+###### [Previous Chapter](./chapter_0092.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0053.md)
 ###### [Previous Chapter](./chapter_0051.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 47: The Tale of Aurorora
 
 ## 47話　アウローラの御伽噺
@@ -658,3 +661,9 @@ Oh? Did the name just suddenly get revealed?
 Next time: "Suzy Cloud, 14 Years Old in the Morning"
 
 *次回「スージィ・クラウド14歳の朝」*
+
+
+---
+
+###### [Next Chapter](./chapter_0053.md)
+###### [Previous Chapter](./chapter_0051.md)&nbsp;/&nbsp;

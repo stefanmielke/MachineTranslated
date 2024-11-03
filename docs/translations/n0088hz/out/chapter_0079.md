@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0080.md)
 ###### [Previous Chapter](./chapter_0078.md)&nbsp;/&nbsp;
 
+---
+
+
 # Oh, that is like the ancient sage
 
 ## おおそれは古の賢者の如し
@@ -298,3 +301,9 @@ If Dia-kun says that, it seems there shouldn't be any problems for now, right?
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0080.md)
+###### [Previous Chapter](./chapter_0078.md)&nbsp;/&nbsp;

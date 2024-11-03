@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0187.md)
 ###### [Previous Chapter](./chapter_0185.md)&nbsp;/&nbsp;
 
+---
+
+
 # Kami-samaーーー！！
 
 ## 神様ぁーーーー！！
@@ -284,3 +287,9 @@ By the way, there's also a limited edition of the first volume of Gojin with an 
 It's a Gamers limited edition, and if you miss it, you won't be able to get it anymore...)
 
 *ゲーマーズ限定版で、買い逃したらもう手に入らないですよ…！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0187.md)
+###### [Previous Chapter](./chapter_0185.md)&nbsp;/&nbsp;

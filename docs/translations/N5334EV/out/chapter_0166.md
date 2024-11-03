@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0167.md)
 ###### [Previous Chapter](./chapter_0165.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 154: Tremor
 
 ## 154話　激震
@@ -1070,3 +1073,9 @@ Thank you very much!
 I hope you will continue to accompany me in the future, and I look forward to your support m(_ _)m
 
 *これからもお付き合い頂けます様、どおぞよろしくお願い申し上げますm(_ _)m*
+
+
+---
+
+###### [Next Chapter](./chapter_0167.md)
+###### [Previous Chapter](./chapter_0165.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0046.md)
 ###### [Previous Chapter](./chapter_0044.md)&nbsp;/&nbsp;
 
+---
+
+
 # Interlude 3: Let's Go to the Harvest Festival!
 
 ## 幕間3　収穫祭へ行こうよ！
@@ -694,3 +697,9 @@ Next time: "Episode Zero"
 I will post it on September 7th at 8 PM.
 
 *来週9月7日20時に投下します。*
+
+
+---
+
+###### [Next Chapter](./chapter_0046.md)
+###### [Previous Chapter](./chapter_0044.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0221.md)
 ###### [Previous Chapter](./chapter_0219.md)&nbsp;/&nbsp;
 
+---
+
+
 # What was that unnatural surrender!? (General Beastman Perspective)
 
 ## なんだよあの不自然な降参はッ！？（一般獣人視点）
@@ -292,3 +295,9 @@ https://ln-news.com/articles/118386
 The title of the book version is "Feel free to do as you like! ~Since the god defeated the final boss in the tutorial, I will live freely~." )
 
 *書籍版の作品名は『あとはご自由にどうぞ！～チュートリアルで神様がラスボス倒しちゃったので、私は好き放題生きていく～』ですにゃあ！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0221.md)
+###### [Previous Chapter](./chapter_0219.md)&nbsp;/&nbsp;

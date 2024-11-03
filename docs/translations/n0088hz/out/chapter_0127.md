@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0128.md)
 ###### [Previous Chapter](./chapter_0126.md)&nbsp;/&nbsp;
 
+---
+
+
 # The circumstantial evidence is all there!!
 
 ## 状況証拠揃ってるぅ！！
@@ -260,3 +263,9 @@ If you look too much, your head might go blank.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0128.md)
+###### [Previous Chapter](./chapter_0126.md)&nbsp;/&nbsp;

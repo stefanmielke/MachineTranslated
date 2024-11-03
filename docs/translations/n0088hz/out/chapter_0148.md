@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0149.md)
 ###### [Previous Chapter](./chapter_0147.md)&nbsp;/&nbsp;
 
+---
+
+
 # Was it a Racial Recommendation?
 
 ## 種族推奨だったのか
@@ -214,3 +217,9 @@ The Thunder Dragon clung to me. How pathetic. Seriously, what a pain.
 (Woohoo, the ratio of new writing is increasing!!!)
 
 *（うおおお、書下ろし割合増加中じゃーーーい！！！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0149.md)
+###### [Previous Chapter](./chapter_0147.md)&nbsp;/&nbsp;

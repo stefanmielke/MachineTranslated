@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0139.md)
 ###### [Previous Chapter](./chapter_0137.md)&nbsp;/&nbsp;
 
+---
+
+
 # This woman is crazy. (Bibei's perspective)
 
 ## 頭おかしいよこの女。（ビーベイ視点）
@@ -308,3 +311,9 @@ I'm going to be a hero, you know!? That cloth in your hand is—it's a "diaper,"
 (Next time, Bibei dies! Duel standby!)
 
 *（次回、ビーベイ死す！　デュエルスタンバイ！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0139.md)
+###### [Previous Chapter](./chapter_0137.md)&nbsp;/&nbsp;

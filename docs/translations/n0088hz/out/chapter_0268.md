@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0269.md)
 ###### [Previous Chapter](./chapter_0267.md)&nbsp;/&nbsp;
 
+---
+
+
 # On the other hand, in the imperial capital of the empire.
 
 ## 一方、帝国帝都にて。
@@ -178,3 +181,9 @@ Look for the cute Dia-kun drawn by Ixy-sensei!!
 Also, the pirate captain has become quite cute (self-regulation for spoiler prevention).
 
 *尚、海賊の船長があんな可愛いことになっていますが（以下ネタバレ防止のため自主規制）*
+
+
+---
+
+###### [Next Chapter](./chapter_0269.md)
+###### [Previous Chapter](./chapter_0267.md)&nbsp;/&nbsp;

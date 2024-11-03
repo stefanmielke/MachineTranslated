@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0146.md)
 ###### [Previous Chapter](./chapter_0144.md)&nbsp;/&nbsp;
 
+---
+
+
 # Kind-hearted angel, perhaps?
 
 ## 心優しい天使かな？
@@ -334,3 +337,9 @@ Even in a fantasy, there are fairy tales. I thought that was just between us.
 There’s been a lot going on… really… orz Sorry to the editor too!!)
 
 *いろいろあって……まじで……orz　編集さんにもごーめーん！！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0146.md)
+###### [Previous Chapter](./chapter_0144.md)&nbsp;/&nbsp;

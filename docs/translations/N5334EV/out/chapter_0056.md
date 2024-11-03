@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0057.md)
 ###### [Previous Chapter](./chapter_0055.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 51: Report of Millie Barrett
 
 ## 51話　ミリー・バレットの報告書
@@ -768,3 +771,9 @@ Thank you for the bookmarks and evaluations!
 They truly motivate me!!
 
 *シッカリ励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0057.md)
+###### [Previous Chapter](./chapter_0055.md)&nbsp;/&nbsp;

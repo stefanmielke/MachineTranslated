@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0110.md)
 ###### [Previous Chapter](./chapter_0108.md)&nbsp;/&nbsp;
 
+---
+
+
 # The higher the expectations, the higher the hurdles
 
 ## 期待される分、ハードルが上がる
@@ -226,3 +229,9 @@ Investing in the growth of a hardworking young person isn't something I mind.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0110.md)
+###### [Previous Chapter](./chapter_0108.md)&nbsp;/&nbsp;

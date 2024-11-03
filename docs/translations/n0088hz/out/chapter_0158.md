@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0159.md)
 ###### [Previous Chapter](./chapter_0157.md)&nbsp;/&nbsp;
 
+---
+
+
 # Hey, you there, dwarf. Don't look at Dia-kun's thighs under his skirt.
 
 ## おいそこのドワーフ。ディア君のスカートの中の太もも見んなや。
@@ -322,3 +325,9 @@ https://gcnovels.jp/book/1588
 The illustrator is Ixy-sensei. It's erotic... The official information hasn't released the cover art yet.)
 
 *絵師様はIxy先生です。えっちだ…まだ公式情報で表紙絵は出てないけど。）*
+
+
+---
+
+###### [Next Chapter](./chapter_0159.md)
+###### [Previous Chapter](./chapter_0157.md)&nbsp;/&nbsp;

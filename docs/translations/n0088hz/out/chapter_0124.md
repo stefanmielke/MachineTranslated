@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0125.md)
 ###### [Previous Chapter](./chapter_0123.md)&nbsp;/&nbsp;
 
+---
+
+
 # Maintaining High Flexibility While Responding Adaptively
 
 ## 高度な柔軟性を維持しつつ臨機応変に対応する
@@ -250,3 +253,9 @@ For now, I'll go to the guild together. Oh, but I'll be in disguise as a healer.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0125.md)
+###### [Previous Chapter](./chapter_0123.md)&nbsp;/&nbsp;

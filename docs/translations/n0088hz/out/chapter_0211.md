@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0212.md)
 ###### [Previous Chapter](./chapter_0210.md)&nbsp;/&nbsp;
 
+---
+
+
 # There's nothing I can do now
 
 ## 今更どうしようもないね
@@ -308,3 +311,9 @@ Thanks to everyone's support, it seems like Volume 2 will be released!!
 I'm going to have Ixy-sensei draw Dia-kun for me...!!
 
 *私、Ｉｘｙ先生にディア君描いてもらうんだ……！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0212.md)
+###### [Previous Chapter](./chapter_0210.md)&nbsp;/&nbsp;

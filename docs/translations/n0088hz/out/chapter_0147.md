@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0148.md)
 ###### [Previous Chapter](./chapter_0146.md)&nbsp;/&nbsp;
 
+---
+
+
 # Gyuwa
 
 ## ギュア
@@ -256,3 +259,9 @@ It feels a bit annoying to go along with the god's intentions, but it's also a h
 But I don't have enough time to write new works...!)
 
 *でも新作も書きたい時間が足りない…！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0148.md)
+###### [Previous Chapter](./chapter_0146.md)&nbsp;/&nbsp;

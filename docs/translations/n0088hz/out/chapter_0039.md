@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0040.md)
 ###### [Previous Chapter](./chapter_0038.md)&nbsp;/&nbsp;
 
+---
+
+
 # A Fragment of Truth ● With Illustrations
 
 ## 真理の一端　●挿絵アリ
@@ -294,3 +297,9 @@ Just because someone is beautiful doesn’t mean they’re wearing socks…!
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0040.md)
+###### [Previous Chapter](./chapter_0038.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0068.md)
 ###### [Previous Chapter](./chapter_0066.md)&nbsp;/&nbsp;
 
+---
+
+
 # I don't feel bad about it.
 
 ## 悪い気はしないぜ。
@@ -238,3 +241,9 @@ Well, it was excessive even for torturing the self-proclaimed chaos god. Yeah.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0068.md)
+###### [Previous Chapter](./chapter_0066.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0144.md)
 ###### [Previous Chapter](./chapter_0142.md)&nbsp;/&nbsp;
 
+---
+
+
 # There’s no way a human can win against a god
 
 ## 人の身で神に勝てるハズもなし
@@ -278,3 +281,9 @@ Well, it’s not like I’m doing anything that would be a problem if seen, so i
 I have a feeling I might end up saying "Ah" since the book publication work isn't on schedule...)
 
 *書籍化作業が間に合ってないので「あっ」てなりそうな予感……）*
+
+
+---
+
+###### [Next Chapter](./chapter_0144.md)
+###### [Previous Chapter](./chapter_0142.md)&nbsp;/&nbsp;

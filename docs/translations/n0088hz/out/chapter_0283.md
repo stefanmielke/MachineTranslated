@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0284.md)
 ###### [Previous Chapter](./chapter_0282.md)&nbsp;/&nbsp;
 
+---
+
+
 # True Chaos God, now Kaoru
 
 ## 真・混沌神改め、カオル
@@ -192,3 +195,9 @@ Don't forget it, seriously. Alright, I'm opening it now, and I tapped the card k
 *忘れないでくれよ全く。じゃ、開けるぞー、と、私はカードキーをパネルにピッと当てた。*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0284.md)
+###### [Previous Chapter](./chapter_0282.md)&nbsp;/&nbsp;

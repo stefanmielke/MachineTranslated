@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0042.md)
 ###### [Previous Chapter](./chapter_0040.md)&nbsp;/&nbsp;
 
+---
+
+
 # Golems are indeed romantic
 
 ## ゴーレムってやっぱロマン
@@ -324,3 +327,9 @@ Was it? Well, whatever. It's close enough.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0042.md)
+###### [Previous Chapter](./chapter_0040.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0014.md)
 ###### [Previous Chapter](./chapter_0012.md)&nbsp;/&nbsp;
 
+---
+
+
 # Base Building
 
 ## 拠点作り
@@ -276,3 +279,9 @@ I also want to offer my tribute (socks).
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0014.md)
+###### [Previous Chapter](./chapter_0012.md)&nbsp;/&nbsp;

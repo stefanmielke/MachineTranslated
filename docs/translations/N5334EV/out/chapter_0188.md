@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0189.md)
 ###### [Previous Chapter](./chapter_0187.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 176: Chidori
 
 ## 176話　チドリ
@@ -414,3 +417,9 @@ Thank you for reading.
 Thank you for bookmarks and evaluations! They are always a source of encouragement for me!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0189.md)
+###### [Previous Chapter](./chapter_0187.md)&nbsp;/&nbsp;

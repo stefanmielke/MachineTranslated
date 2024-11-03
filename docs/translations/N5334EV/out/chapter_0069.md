@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0070.md)
 ###### [Previous Chapter](./chapter_0068.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 64: The Sanctuary of Amukamu
 
 ## 64話　アムカムの聖域
@@ -1432,3 +1435,9 @@ The rider was bloodied and thrown to the ground.
 Next time: “Cameron Fourier’s Disturbance”
 
 *次回「キャメロン・フーリエの動揺」*
+
+
+---
+
+###### [Next Chapter](./chapter_0070.md)
+###### [Previous Chapter](./chapter_0068.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0039.md)
 ###### [Previous Chapter](./chapter_0037.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 38: The Children of Amukam Part 2
 
 ## 38話　アムカムの子供たち　その2
@@ -2910,3 +2913,9 @@ I am... Suzy Cloud!!
 Next time: "Suzy Cloud Makes Her Name Known"
 
 *次回「スージィ・クラウド名乗りを上げる」*
+
+
+---
+
+###### [Next Chapter](./chapter_0039.md)
+###### [Previous Chapter](./chapter_0037.md)&nbsp;/&nbsp;

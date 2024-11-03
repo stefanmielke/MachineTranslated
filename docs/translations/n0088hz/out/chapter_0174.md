@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0175.md)
 ###### [Previous Chapter](./chapter_0173.md)&nbsp;/&nbsp;
 
+---
+
+
 # Hermes received a request (Perspective of the Phantom Thief Hermes)
 
 ## ヘルメスは依頼を受けた（怪盗ヘルメス視点）
@@ -282,3 +285,9 @@ However, there might be something else coming in exchange.
 *しかし、入れ替わりで何かあるかもしれん。*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0175.md)
+###### [Previous Chapter](./chapter_0173.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0135.md)
 ###### [Previous Chapter](./chapter_0133.md)&nbsp;/&nbsp;
 
+---
+
+
 # Papapapapapaan, I have fallen. Nam.
 
 ## パパパパパーン、私は倒れた。なむ。
@@ -290,3 +293,9 @@ Thinking that, I continued to watch the situation.
 (Sorry, I'm out of stock! If there are no further updates, please take it as "Ah.")
 
 *（ごめんストックつきた！　以降更新無かったら「あっ」と察してください）*
+
+
+---
+
+###### [Next Chapter](./chapter_0135.md)
+###### [Previous Chapter](./chapter_0133.md)&nbsp;/&nbsp;

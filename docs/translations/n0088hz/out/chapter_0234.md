@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0235.md)
 ###### [Previous Chapter](./chapter_0233.md)&nbsp;/&nbsp;
 
+---
+
+
 # It’s quite persuasive, isn’t it…!!
 
 ## 説得力ありますねぇ……！！
@@ -230,3 +233,9 @@ It’s quite persuasive, isn’t it…!!
 *説得力ありますねぇ……！！*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0235.md)
+###### [Previous Chapter](./chapter_0233.md)&nbsp;/&nbsp;

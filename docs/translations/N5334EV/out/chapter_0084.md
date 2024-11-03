@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0085.md)
 ###### [Previous Chapter](./chapter_0083.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter Two Characters
 
 ## 二章登場人物
@@ -1272,3 +1275,9 @@ I have also written something like an afterword in the activity report.
 If you like, please take a look at that too<m(__)m>
 
 *よろしければ、そちらも覗いてやってください<m(__)m>*
+
+
+---
+
+###### [Next Chapter](./chapter_0085.md)
+###### [Previous Chapter](./chapter_0083.md)&nbsp;/&nbsp;

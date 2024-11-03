@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0101.md)
 ###### [Previous Chapter](./chapter_0099.md)&nbsp;/&nbsp;
 
+---
+
+
 # Dungeon Strategy Again
 
 ## 改めてダンジョン攻略
@@ -272,3 +275,9 @@ As we casually explore the dungeon, we arrive at a room with a clearly out-of-pl
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0101.md)
+###### [Previous Chapter](./chapter_0099.md)&nbsp;/&nbsp;

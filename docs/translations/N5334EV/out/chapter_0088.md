@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0089.md)
 ###### [Previous Chapter](./chapter_0087.md)&nbsp;/&nbsp;
 
+---
+
+
 # Interlude 4: Let's Go to the Hot Springs!
 
 ## 幕間4　温泉へ行こう！
@@ -460,3 +463,9 @@ I have a bit more planned for the interlude, so I will write and post it little 
 After all, fun and laughter are enjoyableー (laugh)
 
 *やっぱキャッキャウフフ展開は楽しいすー（笑*
+
+
+---
+
+###### [Next Chapter](./chapter_0089.md)
+###### [Previous Chapter](./chapter_0087.md)&nbsp;/&nbsp;

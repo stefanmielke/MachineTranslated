@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0143.md)
 ###### [Previous Chapter](./chapter_0141.md)&nbsp;/&nbsp;
 
+---
+
+
 # Bravo, oh, bravo ● With Illustrations
 
 ## ブラボー、おお、ブラボー ●挿絵アリ
@@ -384,3 +387,9 @@ As the god clapped their hands, a new skill was bestowed upon me.
 After one or two more chapters, I’ll definitely prioritize the book publication over updates...!?)
 
 *あと１，２話したら流石に更新より書籍化作業優先させるわね……！？）*
+
+
+---
+
+###### [Next Chapter](./chapter_0143.md)
+###### [Previous Chapter](./chapter_0141.md)&nbsp;/&nbsp;

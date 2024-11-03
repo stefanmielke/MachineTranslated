@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0051.md)
 ###### [Previous Chapter](./chapter_0049.md)&nbsp;/&nbsp;
 
+---
+
+
 # W-Wait, it's a monster! (Pirate's Perspective)
 
 ## ば、バケモンだぁ！（海賊視点）
@@ -282,3 +285,9 @@ No matter how excellent a magician she is, can she stand against a golem and a c
 (“The Dungeon Master Who Absolutely Doesn’t Want to Work Indulges in Slumber” Comic Volume 8, now on sale!)
 
 *（『絶対に働きたくないダンジョンマスターが惰眠を貪るまで』コミカライズ８巻、発売中！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0051.md)
+###### [Previous Chapter](./chapter_0049.md)&nbsp;/&nbsp;

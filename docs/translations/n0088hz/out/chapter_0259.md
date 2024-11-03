@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0260.md)
 ###### [Previous Chapter](./chapter_0258.md)&nbsp;/&nbsp;
 
+---
+
+
 # Foolish question
 
 ## 愚問っすよ
@@ -240,3 +243,9 @@ Today! Until the dungeon master who absolutely doesn’t want to work indulges i
 It seems early sales are already lined up. I want an anime adaptation! Please buy it!
 
 *早売りはもう並んでたりする模様。アニメ化したいの！　買ってね！*
+
+
+---
+
+###### [Next Chapter](./chapter_0260.md)
+###### [Previous Chapter](./chapter_0258.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0178.md)
 ###### [Previous Chapter](./chapter_0176.md)&nbsp;/&nbsp;
 
+---
+
+
 # Put on the Shelf
 
 ## 棚に上げておく
@@ -330,3 +333,9 @@ Currently, the most popular choice is the god. Strong.
 The official account can be accessed from the cover link below.
 
 *公式アカウントは↓の表紙リンクから。*
+
+
+---
+
+###### [Next Chapter](./chapter_0178.md)
+###### [Previous Chapter](./chapter_0176.md)&nbsp;/&nbsp;

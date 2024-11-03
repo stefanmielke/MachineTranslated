@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0083.md)
 ###### [Previous Chapter](./chapter_0081.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 77: The Return of Cloud
 
 ## 77話　クラウドの帰還
@@ -1414,3 +1417,9 @@ Thank you for reading.
 I will post the "Epilogue" and "Characters of Volume 2" within today.
 
 *この後、本日中に『エピローグ』と『2章登場人物』を投下します。*
+
+
+---
+
+###### [Next Chapter](./chapter_0083.md)
+###### [Previous Chapter](./chapter_0081.md)&nbsp;/&nbsp;

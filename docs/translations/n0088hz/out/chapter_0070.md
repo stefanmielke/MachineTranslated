@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0071.md)
 ###### [Previous Chapter](./chapter_0069.md)&nbsp;/&nbsp;
 
+---
+
+
 # Sorashidore, I have returned!
 
 ## ソラシドーレよ、私は帰ってきた！
@@ -314,3 +317,9 @@ As for whether it’s the fastest record, well, it is the fastest, but it’s a 
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0071.md)
+###### [Previous Chapter](./chapter_0069.md)&nbsp;/&nbsp;

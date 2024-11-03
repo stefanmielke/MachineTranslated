@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0097.md)
 ###### [Previous Chapter](./chapter_0095.md)&nbsp;/&nbsp;
 
+---
+
+
 # Is it really safe...?
 
 ## 果たしてセーフなのだろうか……？
@@ -262,3 +265,9 @@ Dia-kun nodded with a red face. Is it okay? I’m really going to do it... Is it
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0097.md)
+###### [Previous Chapter](./chapter_0095.md)&nbsp;/&nbsp;

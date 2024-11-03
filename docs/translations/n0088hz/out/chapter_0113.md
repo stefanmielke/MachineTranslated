@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0114.md)
 ###### [Previous Chapter](./chapter_0112.md)&nbsp;/&nbsp;
 
+---
+
+
 # A log house in the forest is quite macabre
 
 ## 森の中のログハウスって猟奇的
@@ -192,3 +195,9 @@ I hid my appearance with optical camouflage while floating in the air and search
 (Starting in April, updates may temporarily stop for book publication work. At least daily updates will come to an end...!)
 
 *（４月になったら書籍化作業のため更新一時止まるやも。少なくとも毎日更新は終わる…ッ！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0114.md)
+###### [Previous Chapter](./chapter_0112.md)&nbsp;/&nbsp;

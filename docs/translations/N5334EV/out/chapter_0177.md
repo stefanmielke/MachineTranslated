@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0178.md)
 ###### [Previous Chapter](./chapter_0176.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 165: Report from Annemarie
 
 ## 165話　アンナメリーの報告書
@@ -368,3 +371,9 @@ Thank you for reading.
 Thank you for your bookmarks and evaluations! They are always a source of encouragement for me!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0178.md)
+###### [Previous Chapter](./chapter_0176.md)&nbsp;/&nbsp;

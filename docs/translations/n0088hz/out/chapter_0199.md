@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0200.md)
 ###### [Previous Chapter](./chapter_0198.md)&nbsp;/&nbsp;
 
+---
+
+
 # Tamer Special Tournament "Demon Familiar Cup"
 
 ## テイマー専門大会『従魔杯』
@@ -238,3 +241,9 @@ That smile was both angelic and reminiscent of a grim reaper.
 (I hope it sells well... I want to release Volume 2 of Dia...)
 
 *（いっぱい売れてくれ……ディア君（2巻）出したいんや……ッ！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0200.md)
+###### [Previous Chapter](./chapter_0198.md)&nbsp;/&nbsp;

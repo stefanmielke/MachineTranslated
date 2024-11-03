@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0278.md)
 ###### [Previous Chapter](./chapter_0276.md)&nbsp;/&nbsp;
 
+---
+
+
 # Please, everyone!!
 
 ## 頼むぜ皆！！
@@ -194,3 +197,9 @@ If you find me, I'll catch you with space magic!! Please, everyone!!
 (This is just another episode showcasing Blade's overwhelming charisma along with the previous one!!)
 
 *（前回と合わせてブレイド先輩の人徳無双なだけの回ですわ！！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0278.md)
+###### [Previous Chapter](./chapter_0276.md)&nbsp;/&nbsp;

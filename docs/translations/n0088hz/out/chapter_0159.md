@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0160.md)
 ###### [Previous Chapter](./chapter_0158.md)&nbsp;/&nbsp;
 
+---
+
+
 # Dear-kun is such a sinful woman...
 
 ## ディア君ってば罪な女だわ……
@@ -250,3 +253,9 @@ A dwarf with red hair and brown skin, who, upon closer inspection, has fine wrin
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0160.md)
+###### [Previous Chapter](./chapter_0158.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0270.md)
 ###### [Previous Chapter](./chapter_0268.md)&nbsp;/&nbsp;
 
+---
+
+
 # For the time being, don't I have anything to do?
 
 ## 当面、私的にはなんにもやること無くない？
@@ -298,3 +301,9 @@ The application deadline is until May 19th!
 https://twitter.com/gcnovels/status/1782363725703627074
 
 *https://twitter.com/gcnovels/status/1782363725703627074*
+
+
+---
+
+###### [Next Chapter](./chapter_0270.md)
+###### [Previous Chapter](./chapter_0268.md)&nbsp;/&nbsp;

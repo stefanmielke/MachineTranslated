@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0029.md)
 ###### [Previous Chapter](./chapter_0027.md)&nbsp;/&nbsp;
 
+---
+
+
 # A Story About Adult Shopping
 
 ## オトナな買い物の話
@@ -422,3 +425,9 @@ Oh? The flow of the conversation is changing, isn’t it?
 https://lightnovel.jp/best/2022_07-12/tw/?q=%E9%AC%BC%E5%BD%B1%E3%82%B9%E3%83%91%E3%83%8A)
 
 *https://lightnovel.jp/best/2022_07-12/tw/?q=%E9%AC%BC%E5%BD%B1%E3%82%B9%E3%83%91%E3%83%8A　）*
+
+
+---
+
+###### [Next Chapter](./chapter_0029.md)
+###### [Previous Chapter](./chapter_0027.md)&nbsp;/&nbsp;

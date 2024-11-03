@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0013.md)
 ###### [Previous Chapter](./chapter_0011.md)&nbsp;/&nbsp;
 
+---
+
+
 # Did you bring the logs!? Ah! (Solo) ●Illustration Included
 
 ## 丸太は持ったか！？　ああ！（ソロ）●挿絵アリ
@@ -230,3 +233,9 @@ Thus, I was told about stores where I could shop along with my reward. I’m goi
 *こうして私は報酬と合わせて買い物できるお店を教えてもらった。自分のおうちを作るのよ！*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0013.md)
+###### [Previous Chapter](./chapter_0011.md)&nbsp;/&nbsp;

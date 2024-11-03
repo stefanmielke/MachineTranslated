@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0183.md)
 ###### [Previous Chapter](./chapter_0181.md)&nbsp;/&nbsp;
 
+---
+
+
 # Reflection Meeting with Grandma Maria
 
 ## マリア婆との反省会
@@ -300,3 +303,9 @@ I received candy from Auntie and quickly left the tea party.
 On 11/20, Volume 1 of After Five will be released! It's important, so I'll say it multiple times!
 
 *11/20、あとごじ1巻発売！　大事なことだから何度も言うよ！*
+
+
+---
+
+###### [Next Chapter](./chapter_0183.md)
+###### [Previous Chapter](./chapter_0181.md)&nbsp;/&nbsp;

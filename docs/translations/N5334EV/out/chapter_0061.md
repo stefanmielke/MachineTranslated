@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0062.md)
 ###### [Previous Chapter](./chapter_0060.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 56: A Prelude from Dekember
 
 ## 56話　デケンベルからの先触れ
@@ -1238,3 +1241,9 @@ I'm sorry! I've run out of material!! This is where the posts end for now;
 I'll start posting again once I have 5-6 more chapters, so please look forward to it then <m(__)m>
 
 *また5～6話貯まりましたら投稿始めますので、その時またよろしくお願い致します<m(__)m>*
+
+
+---
+
+###### [Next Chapter](./chapter_0062.md)
+###### [Previous Chapter](./chapter_0060.md)&nbsp;/&nbsp;

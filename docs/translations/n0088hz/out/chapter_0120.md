@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0121.md)
 ###### [Previous Chapter](./chapter_0119.md)&nbsp;/&nbsp;
 
+---
+
+
 # I've never worn something like that
 
 ## 履いたことねぇよンなもん
@@ -260,3 +263,9 @@ Huh, the fur standing up makes it feel weird? …Sorry, I don’t know how to we
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0121.md)
+###### [Previous Chapter](./chapter_0119.md)&nbsp;/&nbsp;

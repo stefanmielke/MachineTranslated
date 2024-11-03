@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0155.md)
 ###### [Previous Chapter](./chapter_0153.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 142: Each Night, Part 2 (In the Case of Colette Bear)
 
 ## 142話　其々の夜　その2（コレット・ベアの場合）
@@ -448,3 +451,9 @@ Thank you for pointing out the typos and errors!
 Thank you for the bookmarks and evaluations! They are always a source of encouragement!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0155.md)
+###### [Previous Chapter](./chapter_0153.md)&nbsp;/&nbsp;

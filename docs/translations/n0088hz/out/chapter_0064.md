@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0065.md)
 ###### [Previous Chapter](./chapter_0063.md)&nbsp;/&nbsp;
 
+---
+
+
 # I think responsibility should be taken
 
 ## 責任は取るべきだと思うがね
@@ -252,3 +255,9 @@ If he feels lonely, he can come visit anytime!
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0065.md)
+###### [Previous Chapter](./chapter_0063.md)&nbsp;/&nbsp;

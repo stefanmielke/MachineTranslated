@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0275.md)
 ###### [Previous Chapter](./chapter_0273.md)&nbsp;/&nbsp;
 
+---
+
+
 # New Alchemy Kingdom
 
 ## 新生錬金王国
@@ -228,3 +231,9 @@ Thus, I helped Blade-senpai with his work. And with the extra time, I decided to
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0275.md)
+###### [Previous Chapter](./chapter_0273.md)&nbsp;/&nbsp;

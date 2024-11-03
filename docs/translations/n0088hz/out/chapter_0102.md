@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0103.md)
 ###### [Previous Chapter](./chapter_0101.md)&nbsp;/&nbsp;
 
+---
+
+
 # The Possibility of Being a Poisonous Human
 
 ## 全身毒人間の可能性
@@ -234,3 +237,9 @@ After that, there will be book publication work and I don't know. I plan to rewr
 Estimated rate of new writing and revisions is probably over 70%...)
 
 *推定書き下ろし＆加筆修正率、７０％↑かなぁ……）*
+
+
+---
+
+###### [Next Chapter](./chapter_0103.md)
+###### [Previous Chapter](./chapter_0101.md)&nbsp;/&nbsp;

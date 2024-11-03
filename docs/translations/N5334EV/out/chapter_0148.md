@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0149.md)
 ###### [Previous Chapter](./chapter_0147.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 136: Jules Nahl's Regret
 
 ## 136話　ジュール・ナールの後悔
@@ -510,3 +513,9 @@ Thank you for reading.
 Thank you for your bookmarks and evaluations! They always motivate me!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0149.md)
+###### [Previous Chapter](./chapter_0147.md)&nbsp;/&nbsp;

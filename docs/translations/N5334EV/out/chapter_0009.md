@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0010.md)
 ###### [Previous Chapter](./chapter_0008.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 09: Suzy Searches for Food
 
 ## 09話　スージィ食料を探す
@@ -952,3 +955,9 @@ Just a little bit of déjà vu.
 This is not a 'tehepero' moment!
 
 *てへぺろぢゃねぇよっ！*
+
+
+---
+
+###### [Next Chapter](./chapter_0010.md)
+###### [Previous Chapter](./chapter_0008.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0059.md)
 ###### [Previous Chapter](./chapter_0057.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 53 The End of Suzy Cloud's Ritual
 
 ## 53話　スージィ・クラウドの儀式の終わり
@@ -690,3 +693,9 @@ Saying that, she sent me a smile that seemed to melt.
 Next time, “The Amukamu Council”
 
 *次回「アムカムの評議会」*
+
+
+---
+
+###### [Next Chapter](./chapter_0059.md)
+###### [Previous Chapter](./chapter_0057.md)&nbsp;/&nbsp;

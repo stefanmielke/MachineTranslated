@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0118.md)
 ###### [Previous Chapter](./chapter_0116.md)&nbsp;/&nbsp;
 
+---
+
+
 # Sorry! ●Illustration Included
 
 ## ごめーんね！●挿絵アリ
@@ -282,3 +285,9 @@ Well, I'm the one who did something wrong and is apologizing. Sorry!
 (The fluffy beastman AI illustration was super difficult.)
 
 *（もふもふ獣人のＡＩイラスト超難航した）*
+
+
+---
+
+###### [Next Chapter](./chapter_0118.md)
+###### [Previous Chapter](./chapter_0116.md)&nbsp;/&nbsp;

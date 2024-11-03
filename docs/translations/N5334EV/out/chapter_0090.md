@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0091.md)
 ###### [Previous Chapter](./chapter_0089.md)&nbsp;/&nbsp;
 
+---
+
+
 # Interlude 6: The Master of the Green Mansion
 
 ## 幕間6　グリーン屋敷の主
@@ -470,3 +473,9 @@ Thank you for reading!
 Please give me a little more time to start Chapter Threeー(>_<)
 
 *三章スタートは、もう少々お時間をくださいー(>_<)*
+
+
+---
+
+###### [Next Chapter](./chapter_0091.md)
+###### [Previous Chapter](./chapter_0089.md)&nbsp;/&nbsp;

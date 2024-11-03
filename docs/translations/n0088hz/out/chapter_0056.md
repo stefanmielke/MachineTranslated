@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0057.md)
 ###### [Previous Chapter](./chapter_0055.md)&nbsp;/&nbsp;
 
+---
+
+
 # Geh!? You're onto me!?
 
 ## げぇー！？　バレてるぅ！？
@@ -248,3 +251,9 @@ Thus, the situation was peacefully resolved.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0057.md)
+###### [Previous Chapter](./chapter_0055.md)&nbsp;/&nbsp;

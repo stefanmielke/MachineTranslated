@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0047.md)
 ###### [Previous Chapter](./chapter_0045.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode Zero
 
 ## episode零
@@ -812,3 +815,9 @@ From the next time, it will be Chapter 2… but! It seems it will still take som
 Please wait a little longer for Chapter 2 "The Undying Legion of Iroshio" <(_ _)>
 
 *第2章『イロシオの不死兵団』もう暫くお待ちください<(_ _)>*
+
+
+---
+
+###### [Next Chapter](./chapter_0047.md)
+###### [Previous Chapter](./chapter_0045.md)&nbsp;/&nbsp;

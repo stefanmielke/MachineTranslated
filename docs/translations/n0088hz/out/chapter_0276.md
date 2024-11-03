@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0277.md)
 ###### [Previous Chapter](./chapter_0275.md)&nbsp;/&nbsp;
 
+---
+
+
 # "Anger"
 
 ## 『怒』
@@ -168,3 +171,9 @@ Well, I know about three dragons, and I've beaten up two of them to make them my
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0277.md)
+###### [Previous Chapter](./chapter_0275.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0022.md)
 ###### [Previous Chapter](./chapter_0020.md)&nbsp;/&nbsp;
 
+---
+
+
 # I apologize for the worry.
 
 ## ご心配おかけしました。
@@ -332,3 +335,9 @@ I won’t tell anyone that my existence is likely to disturb the security the mo
 (The next update will be on the 30th)
 
 *（次回更新は３０日になります）*
+
+
+---
+
+###### [Next Chapter](./chapter_0022.md)
+###### [Previous Chapter](./chapter_0020.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0256.md)
 ###### [Previous Chapter](./chapter_0254.md)&nbsp;/&nbsp;
 
+---
+
+
 # Farce
 
 ## 茶番
@@ -236,3 +239,9 @@ They were very moved. Yay, just as planned.
 (Candy and Whip)
 
 *（飴と鞭）*
+
+
+---
+
+###### [Next Chapter](./chapter_0256.md)
+###### [Previous Chapter](./chapter_0254.md)&nbsp;/&nbsp;

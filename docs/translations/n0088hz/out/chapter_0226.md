@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0227.md)
 ###### [Previous Chapter](./chapter_0225.md)&nbsp;/&nbsp;
 
+---
+
+
 # Dear-kun VS Big Sis (Full-body Bear Beastkin) (First Half)
 
 ## ディア君VSお姉さん（全身タイプ熊獣人）（前半戦）
@@ -240,3 +243,9 @@ She’s a real powerhouse—what’s Dear-kun going to do…?
 (It's getting too long, so I'm splitting it here. The next part will be out tomorrow.)
 
 *（単純に２話分程度に長くなっちゃったので分割。次回は明日）*
+
+
+---
+
+###### [Next Chapter](./chapter_0227.md)
+###### [Previous Chapter](./chapter_0225.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0059.md)
 ###### [Previous Chapter](./chapter_0057.md)&nbsp;/&nbsp;
 
+---
+
+
 # Let me teach you the language of my country
 
 ## 私の国の言葉を教えてあげよう
@@ -380,3 +383,9 @@ So, I decided to take Dear-kun out to eat.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0059.md)
+###### [Previous Chapter](./chapter_0057.md)&nbsp;/&nbsp;

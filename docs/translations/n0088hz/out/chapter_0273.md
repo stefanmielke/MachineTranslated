@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0274.md)
 ###### [Previous Chapter](./chapter_0272.md)&nbsp;/&nbsp;
 
+---
+
+
 # And it seems that the security is very good.
 
 ## そして、治安はとても良いようだ。
@@ -192,3 +195,9 @@ Also, Volume 2 of Gojii is eligible too!
 The deadline is set for "by May 29th (Wednesday) at 20:00," so I apologize for the trouble, but please vote for your support before thenーーーー！！
 
 *締め切りが『～5月29日（水）20：00予定』とのことなので、お手数ですが、その前にどうか応援に投票してくださいましーーーー！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0274.md)
+###### [Previous Chapter](./chapter_0272.md)&nbsp;/&nbsp;

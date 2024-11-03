@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0080.md)
 ###### [Previous Chapter](./chapter_0078.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 74: Howard Cloud's Resolve
 
 ## 74話　ハワード・クラウドの覚悟
@@ -1042,3 +1045,9 @@ Receive my final and greatest strike in this lifetime!
 Next time: "The Undead Legion of Iroshio"
 
 *次回「イロシオの不死兵団」*
+
+
+---
+
+###### [Next Chapter](./chapter_0080.md)
+###### [Previous Chapter](./chapter_0078.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0067.md)
 ###### [Previous Chapter](./chapter_0065.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 61: The Visit of Marsh Cowesbart
 
 ## 61話　マーシュ・カウズバートの訪問
@@ -984,3 +987,9 @@
 ブクマ＆ご評価、ありがとうございます！しっかり励みになっております！！
 
 *ブクマ＆ご評価、ありがとうございます！しっかり励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0067.md)
+###### [Previous Chapter](./chapter_0065.md)&nbsp;/&nbsp;

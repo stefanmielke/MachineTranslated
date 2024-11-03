@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0147.md)
 ###### [Previous Chapter](./chapter_0145.md)&nbsp;/&nbsp;
 
+---
+
+
 # Something seems off...?
 
 ## なんかおかしいような……？
@@ -224,3 +227,9 @@ My right arm, protected by spatial magic, mercilessly smashed into the dragon's 
 (It's already July... (book publication work ongoing))
 
 *（７月になってしまった……（書籍化作業継続中））*
+
+
+---
+
+###### [Next Chapter](./chapter_0147.md)
+###### [Previous Chapter](./chapter_0145.md)&nbsp;/&nbsp;

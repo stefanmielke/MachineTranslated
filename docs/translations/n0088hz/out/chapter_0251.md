@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0252.md)
 ###### [Previous Chapter](./chapter_0250.md)&nbsp;/&nbsp;
 
+---
+
+
 # Reconnaissance
 
 ## 下見
@@ -186,3 +189,9 @@ Voilà, un coup de poing sur le côté et il est calmé. Bon, parlons à nouveau
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0252.md)
+###### [Previous Chapter](./chapter_0250.md)&nbsp;/&nbsp;

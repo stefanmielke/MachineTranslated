@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0056.md)
 ###### [Previous Chapter](./chapter_0054.md)&nbsp;/&nbsp;
 
+---
+
+
 # It's not persuasive at all!
 
 ## 説得力ないよぉ！
@@ -292,3 +295,9 @@ Alright. I'll consult her while secretly hiding my identity!
 *よし。ここはコッソリと正体を隠しつつ相談だな！*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0056.md)
+###### [Previous Chapter](./chapter_0054.md)&nbsp;/&nbsp;

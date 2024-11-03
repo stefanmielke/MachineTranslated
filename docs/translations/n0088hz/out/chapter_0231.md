@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0232.md)
 ###### [Previous Chapter](./chapter_0230.md)&nbsp;/&nbsp;
 
+---
+
+
 # Well, that's right! Let's continue!!
 
 ## まぁそっすね！　続行！！
@@ -252,3 +255,9 @@ Hey, hey, we’re still in the middle of a match. Get it together, will you?
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0232.md)
+###### [Previous Chapter](./chapter_0230.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0176.md)
 ###### [Previous Chapter](./chapter_0174.md)&nbsp;/&nbsp;
 
+---
+
+
 # Dear-kun's Secret Plan
 
 ## ディア君の秘策
@@ -342,3 +345,9 @@ Vote at the official account!
 (Also, it would be great if you could reply with what kind of content you want to see. The deadline for the closing is super fast, so I want some ideas (ry) )
 
 *( 尚、さらにリプライでどういう内容が見たいかの案もあると嬉しいです。閉め切ってからの締め切りがマッハでヤバいので少しでもネタが欲し（ｒｙ） )*
+
+
+---
+
+###### [Next Chapter](./chapter_0176.md)
+###### [Previous Chapter](./chapter_0174.md)&nbsp;/&nbsp;

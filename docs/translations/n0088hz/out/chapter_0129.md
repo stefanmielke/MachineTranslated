@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0130.md)
 ###### [Previous Chapter](./chapter_0128.md)&nbsp;/&nbsp;
 
+---
+
+
 # Is it in your backpack? (Mashiro's perspective)
 
 ## お前んちリュックの中にあんの？（マシロ視点）
@@ -310,3 +313,9 @@ As Karina patted Aisia on the shoulder, Aisia's voice perfectly transformed into
 (Due to certain circumstances, there will be no updates during the Golden Week. Thank you for your understanding. m(_ _)m )
 
 *（ちょっと諸事情によりＧＷ中の更新はなしになります。ご了承ください。m(_ _)m ）*
+
+
+---
+
+###### [Next Chapter](./chapter_0130.md)
+###### [Previous Chapter](./chapter_0128.md)&nbsp;/&nbsp;

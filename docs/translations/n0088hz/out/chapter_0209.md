@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0210.md)
 ###### [Previous Chapter](./chapter_0208.md)&nbsp;/&nbsp;
 
+---
+
+
 # I should have left one more behind
 
 ## もう１枚預けとけばよかったわ
@@ -258,3 +261,9 @@ HP is real money, and you can win prizes by conquering dungeons! This is a story
 Please support me, ohohohoho gehugeho goho!)
 
 *ぜひ応援してくださいまし、おーっほっほっほげふげほごほ！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0210.md)
+###### [Previous Chapter](./chapter_0208.md)&nbsp;/&nbsp;

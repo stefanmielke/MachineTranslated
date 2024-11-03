@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0031.md)
 ###### [Previous Chapter](./chapter_0029.md)&nbsp;/&nbsp;
 
+---
+
+
 # Let's Go to the Port Town of Verald!
 
 ## 港町ヴェーラルドへ行こう！
@@ -380,3 +383,9 @@ Well, I’ll take it as a vacation and relax.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0031.md)
+###### [Previous Chapter](./chapter_0029.md)&nbsp;/&nbsp;

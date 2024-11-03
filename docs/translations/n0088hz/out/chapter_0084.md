@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0085.md)
 ###### [Previous Chapter](./chapter_0083.md)&nbsp;/&nbsp;
 
+---
+
+
 # Star-Shaped Engine
 
 ## 星型エンジン
@@ -248,3 +251,9 @@ By the way, the model of the star-shaped engine was slightly modified and became
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0085.md)
+###### [Previous Chapter](./chapter_0083.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0115.md)
 ###### [Previous Chapter](./chapter_0113.md)&nbsp;/&nbsp;
 
+---
+
+
 # NTR destroys the brain...!
 
 ## ＮＴＲは脳を破壊する……ッ！
@@ -240,3 +243,9 @@ If that's the case, I'll be super lonely, but I have to bless them... ugh...
 (Note: This is not NTR)
 
 *（※ＮＴＲではありません）*
+
+
+---
+
+###### [Next Chapter](./chapter_0115.md)
+###### [Previous Chapter](./chapter_0113.md)&nbsp;/&nbsp;

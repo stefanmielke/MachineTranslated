@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0180.md)
 ###### [Previous Chapter](./chapter_0178.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 167: Terminal City
 
 ## 167話　ターミナルシティ
@@ -340,3 +343,9 @@ Thank you for reading.
 Thank you for your bookmarks and ratings! They are always a great encouragement!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0180.md)
+###### [Previous Chapter](./chapter_0178.md)&nbsp;/&nbsp;

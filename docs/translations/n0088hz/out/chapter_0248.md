@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0249.md)
 ###### [Previous Chapter](./chapter_0247.md)&nbsp;/&nbsp;
 
+---
+
+
 # Oh dear?
 
 ## おやおや？
@@ -198,3 +201,9 @@ Don't touch the weird parts, okay? If it's a girl, you can touch, though.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0249.md)
+###### [Previous Chapter](./chapter_0247.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0063.md)
 ###### [Previous Chapter](./chapter_0061.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 57: The Envoy from Meridies
 
 ## 57話　メリディエスの特使
@@ -1578,3 +1581,9 @@ Thank you for reading.
 Bookmarks and evaluations are a great encouragement! Thank you!!
 
 *ブクマ＆ご評価、しっかり励みになっております！ありがとうございます！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0063.md)
+###### [Previous Chapter](./chapter_0061.md)&nbsp;/&nbsp;

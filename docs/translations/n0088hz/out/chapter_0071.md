@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0072.md)
 ###### [Previous Chapter](./chapter_0070.md)&nbsp;/&nbsp;
 
+---
+
+
 # It's way too bad for education!! ●Illustration included
 
 ## 色々と教育に悪すぎるんだ！！　●挿絵アリ
@@ -292,3 +295,9 @@ After demonstrating, I passionately appealed to Onee-sama, and she ended up purc
 *実演をふまえてお姉様に熱烈アピールしたところ、試作品ワンセットを銀貨５枚でのお買い上げとなった。やったぜ、これでちゃんと仕入れた材料で作って売り物にしよう。*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0072.md)
+###### [Previous Chapter](./chapter_0070.md)&nbsp;/&nbsp;

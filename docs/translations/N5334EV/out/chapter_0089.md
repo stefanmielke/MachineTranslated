@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0090.md)
 ###### [Previous Chapter](./chapter_0088.md)&nbsp;/&nbsp;
 
+---
+
+
 # Interlude 5: "Flow, My Tears," Said Suzy
 
 ## 幕間5　流れよ我が涙とスージィは言った
@@ -1394,3 +1397,9 @@ Thank you for reading!
 I just wanted to write a story about a lucky accident (・`ω´・)
 
 *ただラッキースケベが書きたかっただけのお話(・`ω´・)*
+
+
+---
+
+###### [Next Chapter](./chapter_0090.md)
+###### [Previous Chapter](./chapter_0088.md)&nbsp;/&nbsp;

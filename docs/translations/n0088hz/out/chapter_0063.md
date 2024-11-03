@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0064.md)
 ###### [Previous Chapter](./chapter_0062.md)&nbsp;/&nbsp;
 
+---
+
+
 # It's great that the siblings get along well.
 
 ## 姉弟仲良しでなによりだね
@@ -382,3 +385,9 @@ It's great that the siblings get along well. I put away the socks.
 (There's still more stock, you know!!)
 
 *（まだストックはあるでな！！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0064.md)
+###### [Previous Chapter](./chapter_0062.md)&nbsp;/&nbsp;

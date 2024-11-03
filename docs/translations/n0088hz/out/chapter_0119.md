@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0120.md)
 ###### [Previous Chapter](./chapter_0118.md)&nbsp;/&nbsp;
 
+---
+
+
 # What the!? (A-Rank Adventurer Mashiro's Perspective)
 
 ## なっ！？（Ａランク冒険者マシロ視点）
@@ -362,3 +365,9 @@ She's done so much for me, what the hell does she want from me!?
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0120.md)
+###### [Previous Chapter](./chapter_0118.md)&nbsp;/&nbsp;

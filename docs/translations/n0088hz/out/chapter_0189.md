@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0190.md)
 ###### [Previous Chapter](./chapter_0188.md)&nbsp;/&nbsp;
 
+---
+
+
 # Five Great Elders' Workshop (Perspective of the Five Great Elders)
 
 ## 五大老工房（五大老視点）
@@ -288,3 +291,9 @@ Thus, the finest craftsmen poured their best techniques into creating the best i
 (For now, here's the list of bonus information, but I recommend the special edition with the acrylic figure! (I'm recommending the more expensive version!))
 
 *（とりあえず、特典情報一覧ですが、おすすめはアクリルフィギュア付き特別版ですよ！（値段が高いやつを勧めていくスタイル））*
+
+
+---
+
+###### [Next Chapter](./chapter_0190.md)
+###### [Previous Chapter](./chapter_0188.md)&nbsp;/&nbsp;

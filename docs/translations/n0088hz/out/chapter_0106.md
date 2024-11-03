@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0107.md)
 ###### [Previous Chapter](./chapter_0105.md)&nbsp;/&nbsp;
 
+---
+
+
 # I like tea cookies and such
 
 ## お茶のクッキーとか好き
@@ -212,3 +215,9 @@ Yeah, that sounds reasonable. Sturdy boots that are not breathable would be even
 With all that said, we went shopping at the weapon shop and gathered information about the dwarf blacksmith. Next time, we will charge into the dwarf blacksmith for an interview. Hoo hoo!
 
 *そんなこんなで、武器屋で買い物をしてドワーフの鍛冶屋についての情報を得た私たちであった。次回、ドワーフの鍛冶屋へ突撃取材だぜ。ふぅっふー！*
+
+
+---
+
+###### [Next Chapter](./chapter_0107.md)
+###### [Previous Chapter](./chapter_0105.md)&nbsp;/&nbsp;

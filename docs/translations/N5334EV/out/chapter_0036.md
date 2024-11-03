@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0037.md)
 ###### [Previous Chapter](./chapter_0035.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 36: The Children of Amukamu - Part 1
 
 ## 36話　アムカムの子供たち　その1
@@ -2764,3 +2767,9 @@ Hurry, Algernon!
 Next time: "Suzy Cloud Charges!"
 
 *次回「スージィ・クラウド駆ける！」*
+
+
+---
+
+###### [Next Chapter](./chapter_0037.md)
+###### [Previous Chapter](./chapter_0035.md)&nbsp;/&nbsp;

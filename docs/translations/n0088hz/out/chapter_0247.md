@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0248.md)
 ###### [Previous Chapter](./chapter_0246.md)&nbsp;/&nbsp;
 
+---
+
+
 # I won't deny that
 
 ## それは否定しない
@@ -228,3 +231,9 @@ Ah, it's really nice to pet this butt. Truly a divine butt!
 *いやー、ほんと撫で心地よくてこの尻。さすが神尻だね！*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0248.md)
+###### [Previous Chapter](./chapter_0246.md)&nbsp;/&nbsp;

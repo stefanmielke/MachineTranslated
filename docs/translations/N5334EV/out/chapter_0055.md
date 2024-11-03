@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0056.md)
 ###### [Previous Chapter](./chapter_0054.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 50: Suzy Cloud's Survival Part 2
 
 ## 50話　スージィ・クラウドのサバイバル　その2
@@ -1548,3 +1551,9 @@ Oh right! Tomorrow morning… when I wake up, I should… take a bath in the str
 Next time: "Millie Barrett's Report"
 
 *次回「ミリー・バレットの報告書」*
+
+
+---
+
+###### [Next Chapter](./chapter_0056.md)
+###### [Previous Chapter](./chapter_0054.md)&nbsp;/&nbsp;

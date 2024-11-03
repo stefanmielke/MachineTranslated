@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0131.md)
 ###### [Previous Chapter](./chapter_0129.md)&nbsp;/&nbsp;
 
+---
+
+
 # The Stomach of a Powerful Monster (Mashiro's Perspective)
 
 ## 強大な魔物の胃袋（マシロ視点）
@@ -262,3 +265,9 @@ Thus, Mashiro readily acknowledged her friendship with Karina. In fact, she alre
 (Updates have resumed, but I have almost no stock, and the publication process is still not finished, so updates are in jeopardy.)
 
 *（更新再開しましたがストックはほぼないし書籍化作業はまだ終わってないので更新はピンチ）*
+
+
+---
+
+###### [Next Chapter](./chapter_0131.md)
+###### [Previous Chapter](./chapter_0129.md)&nbsp;/&nbsp;

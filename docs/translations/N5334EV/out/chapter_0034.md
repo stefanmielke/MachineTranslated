@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0035.md)
 ###### [Previous Chapter](./chapter_0033.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 34: The Confession of Henry Jameson
 
 ## 34話　ヘンリー・ジェイムスンの懺悔
@@ -1054,3 +1057,9 @@ Howard's Fury!
 Next time: "Howard Cloud's Roar"
 
 *次回「ハワード・クラウドの咆哮」*
+
+
+---
+
+###### [Next Chapter](./chapter_0035.md)
+###### [Previous Chapter](./chapter_0033.md)&nbsp;/&nbsp;

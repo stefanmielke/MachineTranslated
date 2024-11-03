@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0076.md)
 ###### [Previous Chapter](./chapter_0074.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 70: Whispers of the Dark Forest
 
 ## 70話　闇の森の囁き
@@ -1320,3 +1323,9 @@ I hope to upload the next chapter by July...
 Next time: "Vampire at Dawn"
 
 *次回「夜明けのヴァンパイア」*
+
+
+---
+
+###### [Next Chapter](./chapter_0076.md)
+###### [Previous Chapter](./chapter_0074.md)&nbsp;/&nbsp;

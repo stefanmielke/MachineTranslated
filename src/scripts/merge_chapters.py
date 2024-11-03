@@ -42,7 +42,7 @@ def merge_files(jp_dir, en_dir, output_dir):
                 output_file.write(f"###### [Next Chapter](./{next_chapter}.md)\n")
             if i > 0:
                 prev_chapter = os.path.splitext(filenames[i - 1])[0]
-                output_file.write(f"###### [Previous Chapter](./{prev_chapter}.md)&nbsp;/&nbsp;\n")
+                output_file.write(f"###### [Previous Chapter](./{prev_chapter}.md)&nbsp;/&nbsp;\n\n---\n\n")
 
             output_file.write("\n")  # Add a newline after the links
 
@@ -65,6 +65,13 @@ def merge_files(jp_dir, en_dir, output_dir):
                 else:
                     output_file.write(en_line.strip() + '\n')
                     output_file.write('\n*' + jp_line.strip() + '*\n')
+
+            if i < len(filenames) - 1:
+                next_chapter = os.path.splitext(filenames[i + 1])[0]
+                output_file.write(f"\n\n---\n\n###### [Next Chapter](./{next_chapter}.md)\n")
+            if i > 0:
+                prev_chapter = os.path.splitext(filenames[i - 1])[0]
+                output_file.write(f"###### [Previous Chapter](./{prev_chapter}.md)&nbsp;/&nbsp;\n")
 
 if __name__ == "__main__":
     if len(sys.argv) != 2:

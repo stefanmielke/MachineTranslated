@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0193.md)
 ###### [Previous Chapter](./chapter_0191.md)&nbsp;/&nbsp;
 
+---
+
+
 # Where shall I go next?
 
 ## 次はどこへ行こうかしら？
@@ -220,3 +223,9 @@ Thus, my next destination was decided to be the beastman country, Terrarialby.
 Only one week until Volume 1 is released!! I received the advance copy, and Ixy-sensei’s illustrations are just amazing... amazing!!
 
 *1巻発売まであと一週間！！　献本届いたけど、Ixy先生のイラストやっぱええな……ええなっ！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0193.md)
+###### [Previous Chapter](./chapter_0191.md)&nbsp;/&nbsp;

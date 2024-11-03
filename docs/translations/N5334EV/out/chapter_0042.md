@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0043.md)
 ###### [Previous Chapter](./chapter_0041.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter One Characters
 
 ## 第一章登場人物
@@ -1336,3 +1339,9 @@ It's a story during summer vacation.
 'Interlude 1: Let's Go to the Sea!'
 
 *『幕間1　海へ行こうよ！』*
+
+
+---
+
+###### [Next Chapter](./chapter_0043.md)
+###### [Previous Chapter](./chapter_0041.md)&nbsp;/&nbsp;

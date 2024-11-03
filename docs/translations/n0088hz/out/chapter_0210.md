@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0211.md)
 ###### [Previous Chapter](./chapter_0209.md)&nbsp;/&nbsp;
 
+---
+
+
 # I-I'll do my best today too!
 
 ## きょ、今日も一日頑張るぞい！
@@ -202,3 +205,9 @@ No wonder Aisia was looking away and feeling awkward!!
 Oh, I already snatched the nunchaku from my opponent and threw it away. Victory!!
 
 *あ、対戦相手のヌンチャク使いは逆にヌンチャク奪ってぶん投げときました。勝利ッ！*
+
+
+---
+
+###### [Next Chapter](./chapter_0211.md)
+###### [Previous Chapter](./chapter_0209.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0228.md)
 ###### [Previous Chapter](./chapter_0226.md)&nbsp;/&nbsp;
 
+---
+
+
 # Dear-kun vs. Onee-san (Full Body Type Bear Beastman) (Second Half)
 
 ## ディア君VSお姉さん（全身タイプ熊獣人）（後半戦）
@@ -248,3 +251,9 @@ It seems that beastmen can see things that I can't. Well, it does seem like it w
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0228.md)
+###### [Previous Chapter](./chapter_0226.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0198.md)
 ###### [Previous Chapter](./chapter_0196.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 185: The Rematch with Arvin Haggard!
 
 ## 185話　アーヴィン・ハッガード再戦す！
@@ -440,3 +443,9 @@ Thank you for pointing out any typos or errors!
 Thank you for the bookmarks and evaluations! They are always a source of encouragement!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0198.md)
+###### [Previous Chapter](./chapter_0196.md)&nbsp;/&nbsp;

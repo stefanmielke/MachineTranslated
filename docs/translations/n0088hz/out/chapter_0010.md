@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0011.md)
 ###### [Previous Chapter](./chapter_0009.md)&nbsp;/&nbsp;
 
+---
+
+
 # Safe, Safe
 
 ## セーフ、セーフ
@@ -474,3 +477,9 @@ Thus, we safely obtained five unscathed slime cores each.
 If you think so, please rate with ☆☆☆☆☆ below to show your support!!!)
 
 *と思ったら↓の☆☆☆☆☆で評価点入れて応援してね！！！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0011.md)
+###### [Previous Chapter](./chapter_0009.md)&nbsp;/&nbsp;

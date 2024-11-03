@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0009.md)
 ###### [Previous Chapter](./chapter_0007.md)&nbsp;/&nbsp;
 
+---
+
+
 # Sudden Interview with the Senior Adventurer Next Door
 
 ## 突撃隣の先輩冒険者
@@ -314,3 +317,9 @@ I'm really grateful for the source of information. Once I become a merchant in t
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0009.md)
+###### [Previous Chapter](./chapter_0007.md)&nbsp;/&nbsp;

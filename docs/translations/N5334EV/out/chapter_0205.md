@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0206.md)
 ###### [Previous Chapter](./chapter_0204.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 193: The Hot Spring Town and the Scholars
 
 ## 193話　温泉街と博士たち
@@ -460,3 +463,9 @@ Thank you for reading.
 Thank you for your bookmarks and evaluations! They always motivate me!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0206.md)
+###### [Previous Chapter](./chapter_0204.md)&nbsp;/&nbsp;

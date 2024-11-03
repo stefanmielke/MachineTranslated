@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0031.md)
 ###### [Previous Chapter](./chapter_0029.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 30: Sonia Cloud's Tale of Old
 
 ## 30話　ソニア・クラウドの昔語り
@@ -704,3 +707,9 @@ Is it a romantic comedy? Is it really a romantic comedy?!
 Next time: "William Cloud's Misfortune"
 
 *次回「ウィリアム・クラウドの災難」*
+
+
+---
+
+###### [Next Chapter](./chapter_0031.md)
+###### [Previous Chapter](./chapter_0029.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0050.md)
 ###### [Previous Chapter](./chapter_0048.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 44: The Amukam Growth Ceremony
 
 ## 44話　アムカム成長の儀式
@@ -746,3 +749,9 @@ Additionally... Willie, who was ready for his turn at the end, was also kicked o
 Next time: "The Cloud Family's Dinner"
 
 *次回「クラウド家の夕餉」*
+
+
+---
+
+###### [Next Chapter](./chapter_0050.md)
+###### [Previous Chapter](./chapter_0048.md)&nbsp;/&nbsp;

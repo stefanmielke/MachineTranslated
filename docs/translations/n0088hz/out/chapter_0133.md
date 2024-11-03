@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0134.md)
 ###### [Previous Chapter](./chapter_0132.md)&nbsp;/&nbsp;
 
+---
+
+
 # Isn't it the best to be fluffy?
 
 ## もふもふで最高なんだが？
@@ -300,3 +303,9 @@ I didn't quite understand, but Mashiro and I flirted while keeping watch over th
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0134.md)
+###### [Previous Chapter](./chapter_0132.md)&nbsp;/&nbsp;

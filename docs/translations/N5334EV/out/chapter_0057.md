@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0058.md)
 ###### [Previous Chapter](./chapter_0056.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 52: The Flood in the Amukam Forest
 
 ## 52話　アムカムの森の氾濫
@@ -1120,3 +1123,9 @@ Tears of joy are flowing like a waterfall!
 I’ve posted it in my activity report, so please take a look if you’re interested.
 
 *活動報告にUPしておりますので、宜しければ一度覗いてみてください。*
+
+
+---
+
+###### [Next Chapter](./chapter_0058.md)
+###### [Previous Chapter](./chapter_0056.md)&nbsp;/&nbsp;

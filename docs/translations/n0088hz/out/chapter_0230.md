@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0231.md)
 ###### [Previous Chapter](./chapter_0229.md)&nbsp;/&nbsp;
 
+---
+
+
 # VS Misha
 
 ## VSミーシャ
@@ -376,3 +379,9 @@ With this, I can reach 100,000 words and participate in Kakuyomu Contest 9...!
 There’s also a reader selection, so I’d be happy if you could evaluate it!)
 
 *読者選考もあるので、評価してくれると嬉しいです！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0231.md)
+###### [Previous Chapter](./chapter_0229.md)&nbsp;/&nbsp;

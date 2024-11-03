@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0038.md)
 ###### [Previous Chapter](./chapter_0036.md)&nbsp;/&nbsp;
 
+---
+
+
 # Magic Tool Shop
 
 ## 魔道具店
@@ -366,3 +369,9 @@ Could it be that this magic tool shop isn't doing well?
 Also, "Sushi Sister Hunter" was fun too.)
 
 *あと「スシシスターハンター」も面白かったの）*
+
+
+---
+
+###### [Next Chapter](./chapter_0038.md)
+###### [Previous Chapter](./chapter_0036.md)&nbsp;/&nbsp;

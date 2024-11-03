@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0105.md)
 ###### [Previous Chapter](./chapter_0103.md)&nbsp;/&nbsp;
 
+---
+
+
 # I really didn't know.
 
 ## マジ知らなかったんですけど。
@@ -254,3 +257,9 @@ With that, Sati-tan waved her hand cheerfully and set off.
 See you again, Sati-tan. Until that day, keep those socks warm!
 
 *また会おうサティたん。その日まで靴下を温めておくんだな！*
+
+
+---
+
+###### [Next Chapter](./chapter_0105.md)
+###### [Previous Chapter](./chapter_0103.md)&nbsp;/&nbsp;

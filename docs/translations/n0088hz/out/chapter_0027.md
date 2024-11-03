@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0028.md)
 ###### [Previous Chapter](./chapter_0026.md)&nbsp;/&nbsp;
 
+---
+
+
 # Report to God After the Fact Part 2
 
 ## 神様に事後報告　後編
@@ -428,3 +431,9 @@ Karina: "Wow, this is educational! Except for the one point that it's impossible
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0028.md)
+###### [Previous Chapter](./chapter_0026.md)&nbsp;/&nbsp;

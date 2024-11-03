@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0262.md)
 ###### [Previous Chapter](./chapter_0260.md)&nbsp;/&nbsp;
 
+---
+
+
 # The disguise was strong.
 
 ## 擬装が強かった。
@@ -208,3 +211,9 @@ It's not a limited-time free read; if you buy it now, you can read it properly l
 This is a rare opportunity that won't come again unless it gets an anime adaptation, so I think those who haven't bought it should get it…!
 
 *こんなの次はアニメ化でもしないと無い機会だろうので、買ってない人は入手したらいいと思うよ……！*
+
+
+---
+
+###### [Next Chapter](./chapter_0262.md)
+###### [Previous Chapter](./chapter_0260.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0141.md)
 ###### [Previous Chapter](./chapter_0139.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 128: Fluke's Tantrum
 
 ## 128話　フルークの地団駄
@@ -310,3 +313,9 @@ Thank you for reading.
 Thank you for your bookmarks and evaluations! They are always a great encouragement!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0141.md)
+###### [Previous Chapter](./chapter_0139.md)&nbsp;/&nbsp;

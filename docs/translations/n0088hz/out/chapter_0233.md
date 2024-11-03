@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0234.md)
 ###### [Previous Chapter](./chapter_0232.md)&nbsp;/&nbsp;
 
+---
+
+
 # Victory Declaration
 
 ## 勝利宣言
@@ -210,3 +213,9 @@ It’s okay, it’s okay, I’m the real deal.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0234.md)
+###### [Previous Chapter](./chapter_0232.md)&nbsp;/&nbsp;

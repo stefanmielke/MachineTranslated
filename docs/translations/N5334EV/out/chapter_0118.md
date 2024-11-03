@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0119.md)
 ###### [Previous Chapter](./chapter_0117.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 106: Red Memories
 
 ## 106話　赤い記憶
@@ -844,3 +847,9 @@ During this limited time, I want to cherish every moment with Dan and Nan.
 Thank you for always reading!
 
 *いつもお読みいただき、ありがとうございます！*
+
+
+---
+
+###### [Next Chapter](./chapter_0119.md)
+###### [Previous Chapter](./chapter_0117.md)&nbsp;/&nbsp;

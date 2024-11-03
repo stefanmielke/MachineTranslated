@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0279.md)
 ###### [Previous Chapter](./chapter_0277.md)&nbsp;/&nbsp;
 
+---
+
+
 # Yes, I'll actively search for it.
 
 ## はい、積極的に探していきまーす。
@@ -306,3 +309,9 @@ Upon closer inspection, the walls have a mechanical look, reminiscent of the atm
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0279.md)
+###### [Previous Chapter](./chapter_0277.md)&nbsp;/&nbsp;

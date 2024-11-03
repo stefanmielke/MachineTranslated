@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0038.md)
 ###### [Previous Chapter](./chapter_0036.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 37: Suzy Cloud Charges!
 
 ## 37話　スージィ・クラウド駆ける！
@@ -1160,3 +1163,9 @@ And just like that, my vision went white.
 Next time: "The Children of Amukamu, Part 2"
 
 *次回「アムカムの子供たち　その2」*
+
+
+---
+
+###### [Next Chapter](./chapter_0038.md)
+###### [Previous Chapter](./chapter_0036.md)&nbsp;/&nbsp;

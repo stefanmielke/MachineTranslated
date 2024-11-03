@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0028.md)
 ###### [Previous Chapter](./chapter_0026.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 27: Amukamu's Summer Vacation Part 1
 
 ## 27話　アムカムの夏休み　その１
@@ -1006,3 +1009,9 @@ It seems that when Carla and the others return after summer vacation, they will 
 Not that I'm jealous or anything!
 
 *別にちょと全然悔しかったりしないんだからねっ！*
+
+
+---
+
+###### [Next Chapter](./chapter_0028.md)
+###### [Previous Chapter](./chapter_0026.md)&nbsp;/&nbsp;

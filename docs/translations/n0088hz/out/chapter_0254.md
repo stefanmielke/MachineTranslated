@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0255.md)
 ###### [Previous Chapter](./chapter_0253.md)&nbsp;/&nbsp;
 
+---
+
+
 # He was quite a talker
 
 ## なかなか話せるヤツだったよ
@@ -198,3 +201,9 @@ It’s really a charade, but I plan to have Kirigon show his belly and roll arou
 Listening to the winner is one of the good things about dragons, right?
 
 *勝者の言うことはなんでも聞くのがドラゴンのいいところよねー。*
+
+
+---
+
+###### [Next Chapter](./chapter_0255.md)
+###### [Previous Chapter](./chapter_0253.md)&nbsp;/&nbsp;

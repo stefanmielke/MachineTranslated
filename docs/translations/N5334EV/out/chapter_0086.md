@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0087.md)
 ###### [Previous Chapter](./chapter_0085.md)&nbsp;/&nbsp;
 
+---
+
+
 # Interlude 2: The Thirst of the Dead
 
 ## 幕間2　死者の渇望
@@ -1328,3 +1331,9 @@ I'm a bit delayed due to the chaos of moving... Moving at the end of the year is
 I will post another chapter after the New Year.
 
 *年明けにもう一話投下しますー。*
+
+
+---
+
+###### [Next Chapter](./chapter_0087.md)
+###### [Previous Chapter](./chapter_0085.md)&nbsp;/&nbsp;

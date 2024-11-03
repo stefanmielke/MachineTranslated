@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0175.md)
 ###### [Previous Chapter](./chapter_0173.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 162: Bouncer
 
 ## 162話　バウンサー
@@ -336,3 +339,9 @@ Thank you for reading.
 Thank you for your bookmarks and evaluations! They are always a great encouragement!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0175.md)
+###### [Previous Chapter](./chapter_0173.md)&nbsp;/&nbsp;

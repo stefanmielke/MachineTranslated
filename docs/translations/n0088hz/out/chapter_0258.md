@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0259.md)
 ###### [Previous Chapter](./chapter_0257.md)&nbsp;/&nbsp;
 
+---
+
+
 # Is it a blue demon?
 
 ## 青鬼かな？
@@ -256,3 +259,9 @@ For special information, click here! http://blog.over-lap.co.jp/gardo_20230315_0
 And next month, volume 2 of Atogojii will be released! Dia-kun, Dia-kun!!)
 
 *そして来月はあとごじの2巻でるぞー！　ディア君ディア君！！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0259.md)
+###### [Previous Chapter](./chapter_0257.md)&nbsp;/&nbsp;

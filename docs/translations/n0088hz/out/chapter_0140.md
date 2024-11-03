@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0141.md)
 ###### [Previous Chapter](./chapter_0139.md)&nbsp;/&nbsp;
 
+---
+
+
 # Did I go a bit too far?
 
 ## 少しやり過ぎたか？
@@ -302,3 +305,9 @@ I thought about having AI output the forced baby play,
 but just imagining it was hell, so I decided against it.)
 
 *想像しただけで地獄だったのでやめたんだ。）*
+
+
+---
+
+###### [Next Chapter](./chapter_0141.md)
+###### [Previous Chapter](./chapter_0139.md)&nbsp;/&nbsp;

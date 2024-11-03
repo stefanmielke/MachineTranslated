@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0163.md)
 ###### [Previous Chapter](./chapter_0161.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 150: Annie, Take Up the Sword
 
 ## 150話　アニーよ剣をとれ
@@ -502,3 +505,9 @@ Thank you for pointing out any typos or errors!
 Thank you for your bookmarks and evaluations! They are always a source of encouragement!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0163.md)
+###### [Previous Chapter](./chapter_0161.md)&nbsp;/&nbsp;

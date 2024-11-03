@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0151.md)
 ###### [Previous Chapter](./chapter_0149.md)&nbsp;/&nbsp;
 
+---
+
+
 # What do dragons eat?
 
 ## ドラゴンって何食べるの？
@@ -224,3 +227,9 @@ Yeah, this should be fine to introduce to everyone!
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0151.md)
+###### [Previous Chapter](./chapter_0149.md)&nbsp;/&nbsp;

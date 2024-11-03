@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0113.md)
 ###### [Previous Chapter](./chapter_0111.md)&nbsp;/&nbsp;
 
+---
+
+
 # The Theory That the Dungeon Was a User of Spatial Magic
 
 ## ダンジョンは空間魔法の使い手だった説
@@ -214,3 +217,9 @@ I think I should have noticed with the interior or something. I must have been r
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0113.md)
+###### [Previous Chapter](./chapter_0111.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0007.md)
 ###### [Previous Chapter](./chapter_0005.md)&nbsp;/&nbsp;
 
+---
+
+
 # No matter what
 
 ## なにはなくとも
@@ -318,3 +321,9 @@ The first money I received was a tip from a senior adventurer's meddling.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0007.md)
+###### [Previous Chapter](./chapter_0005.md)&nbsp;/&nbsp;

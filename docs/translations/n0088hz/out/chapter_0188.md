@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0189.md)
 ###### [Previous Chapter](./chapter_0187.md)&nbsp;/&nbsp;
 
+---
+
+
 # Thus, the return festival ended in great success.
 
 ## かくして、返納祭は大盛況に終わった。
@@ -224,3 +227,9 @@ By the way, it seems the official account is still suspended.
 For now, the list of store bonuses has been released, so I’ve changed the link for the cover image to that.)
 
 *とりあえず店舗特典一覧がでたので、表紙画像のリンク先をそちらに替えときました。）*
+
+
+---
+
+###### [Next Chapter](./chapter_0189.md)
+###### [Previous Chapter](./chapter_0187.md)&nbsp;/&nbsp;

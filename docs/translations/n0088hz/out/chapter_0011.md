@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0012.md)
 ###### [Previous Chapter](./chapter_0010.md)&nbsp;/&nbsp;
 
+---
+
+
 # F Rank Promotion!
 
 ## Ｆランク昇格！
@@ -294,3 +297,9 @@ Thank you for your support! If you haven't checked out the ☆☆☆☆☆ below
 Oh, I still have stock for a while, so I'll be updating daily!)
 
 *あ、もうしばらくはストックあるから毎日更新よ！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0012.md)
+###### [Previous Chapter](./chapter_0010.md)&nbsp;/&nbsp;

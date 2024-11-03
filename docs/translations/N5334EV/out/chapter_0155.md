@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0156.md)
 ###### [Previous Chapter](./chapter_0154.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 143: Each Night, Part 3 (In the Case of Dalton Banjo)
 
 ## 143話　其々の夜　その3（ドルトン・バンジョーの場合）
@@ -346,3 +349,9 @@ I humbly ask for your continued support next year <(_ _)>
 Ah, I will post again once the new year begins~ (・∀・)
 
 *あ、年が明けましたらまた投下します～(・∀・)*
+
+
+---
+
+###### [Next Chapter](./chapter_0156.md)
+###### [Previous Chapter](./chapter_0154.md)&nbsp;/&nbsp;

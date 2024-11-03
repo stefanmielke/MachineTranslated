@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0044.md)
 ###### [Previous Chapter](./chapter_0042.md)&nbsp;/&nbsp;
 
+---
+
+
 # Interlude 1: Let’s Go to the Sea
 
 ## 幕間1　海へ行こうよ！
@@ -474,3 +477,9 @@ Next time, during summer vacation, a story about when we all went hunting.
 I will post it on the 24th at 8 PM next week.
 
 *来週24日20時に投下します。*
+
+
+---
+
+###### [Next Chapter](./chapter_0044.md)
+###### [Previous Chapter](./chapter_0042.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0090.md)
 ###### [Previous Chapter](./chapter_0088.md)&nbsp;/&nbsp;
 
+---
+
+
 # Arrival at Karkassa!!
 
 ## カルカッサ到着！！
@@ -204,3 +207,9 @@ I'll deliver it and complete the request while I'm at it.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0090.md)
+###### [Previous Chapter](./chapter_0088.md)&nbsp;/&nbsp;

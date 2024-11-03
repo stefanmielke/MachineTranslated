@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0122.md)
 ###### [Previous Chapter](./chapter_0120.md)&nbsp;/&nbsp;
 
+---
+
+
 # Is that the core?
 
 ## あれがコアかな
@@ -252,3 +255,9 @@ As we moved deeper into the boss room, we found a passage with a green barrier a
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0122.md)
+###### [Previous Chapter](./chapter_0120.md)&nbsp;/&nbsp;

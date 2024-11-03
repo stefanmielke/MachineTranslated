@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0292.md)
 ###### [Previous Chapter](./chapter_0290.md)&nbsp;/&nbsp;
 
+---
+
+
 # What happened!?
 
 ## どうしたんですか！？
@@ -298,3 +301,9 @@ https://kakuyomu.jp/works/16818093083361398334
 *https://kakuyomu.jp/works/16818093083361398334*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0292.md)
+###### [Previous Chapter](./chapter_0290.md)&nbsp;/&nbsp;

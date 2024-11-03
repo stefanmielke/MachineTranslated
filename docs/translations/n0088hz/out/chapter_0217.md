@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0218.md)
 ###### [Previous Chapter](./chapter_0216.md)&nbsp;/&nbsp;
 
+---
+
+
 # It's working, it's working.
 
 ## 効いてる効いてる。
@@ -304,3 +307,9 @@ The divine statue shone brightly, clearly pleased.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0218.md)
+###### [Previous Chapter](./chapter_0216.md)&nbsp;/&nbsp;

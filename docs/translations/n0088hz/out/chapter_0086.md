@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0087.md)
 ###### [Previous Chapter](./chapter_0085.md)&nbsp;/&nbsp;
 
+---
+
+
 # Some Amazing Information
 
 ## なんかすごそうな情報
@@ -280,3 +283,9 @@ Now, I need to get some boy clothes... I wonder if there were any boy clothes in
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0087.md)
+###### [Previous Chapter](./chapter_0085.md)&nbsp;/&nbsp;

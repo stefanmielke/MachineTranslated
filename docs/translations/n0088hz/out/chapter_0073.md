@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0074.md)
 ###### [Previous Chapter](./chapter_0072.md)&nbsp;/&nbsp;
 
+---
+
+
 # I Came to the Slave Trader
 
 ## 私は奴隷商へとやってきた
@@ -204,3 +207,9 @@ I thought so, but isn’t there something like that? There are so many here afte
 (By the way, the updates on Kakuyomu are half a day earlier. There are no embedded illustrations, though.)
 
 *（そういえばカクヨムの方は半日早く更新してます。挿絵の埋め込みはないけど）*
+
+
+---
+
+###### [Next Chapter](./chapter_0074.md)
+###### [Previous Chapter](./chapter_0072.md)&nbsp;/&nbsp;

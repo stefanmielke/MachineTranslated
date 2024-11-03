@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0102.md)
 ###### [Previous Chapter](./chapter_0100.md)&nbsp;/&nbsp;
 
+---
+
+
 # Just a little "movement," huh?
 
 ## ちょっと”動いた”だけだが？
@@ -262,3 +265,9 @@ While showing a smile to Sati-chan, I ripped off the head of the Red Hornet, and
 I plan to rewrite it extensively.)
 
 *超書き直す予定です）*
+
+
+---
+
+###### [Next Chapter](./chapter_0102.md)
+###### [Previous Chapter](./chapter_0100.md)&nbsp;/&nbsp;

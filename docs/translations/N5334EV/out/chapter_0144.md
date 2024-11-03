@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0145.md)
 ###### [Previous Chapter](./chapter_0143.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 132: The Blonde-Rolled Saint
 
 ## 132話　金髪ロールの聖女
@@ -392,3 +395,9 @@ Thank you for pointing out any typos or errors!
 Thank you for bookmarks and evaluations! They always motivate me!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0145.md)
+###### [Previous Chapter](./chapter_0143.md)&nbsp;/&nbsp;

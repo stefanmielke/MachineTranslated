@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0216.md)
 ###### [Previous Chapter](./chapter_0214.md)&nbsp;/&nbsp;
 
+---
+
+
 # Really, really. God doesn't lie.
 
 ## ホントホント。神様嘘ツカナイ
@@ -196,3 +199,9 @@ Now, the stage is set once again. Misha, please dance nicely for me, okay?
 It feels like the rate of additions, corrections, and new writings is going to be almost 100%! This is bad, Gomez!)
 
 *なんか加筆修正＋書下ろし率、ほぼ１００％になりそうな予感！！　やべーよゴメス！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0216.md)
+###### [Previous Chapter](./chapter_0214.md)&nbsp;/&nbsp;

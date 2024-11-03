@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0161.md)
 ###### [Previous Chapter](./chapter_0159.md)&nbsp;/&nbsp;
 
+---
+
+
 # I got caught. I got caught easily.
 
 ## バレた。あっさりバレた。
@@ -274,3 +277,9 @@ I’m a bit scared to ask.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0161.md)
+###### [Previous Chapter](./chapter_0159.md)&nbsp;/&nbsp;

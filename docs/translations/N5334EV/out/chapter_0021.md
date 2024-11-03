@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0022.md)
 ###### [Previous Chapter](./chapter_0020.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 21: Professor Jameson's Magic Course
 
 ## 21話　ジェイムスン教授の魔法講座
@@ -1020,3 +1023,9 @@ I shouted and dashed towards Stefan, who was far away.
 All four of them nodded in agreement.
 
 *4人全員に揃って頷かれた。*
+
+
+---
+
+###### [Next Chapter](./chapter_0022.md)
+###### [Previous Chapter](./chapter_0020.md)&nbsp;/&nbsp;

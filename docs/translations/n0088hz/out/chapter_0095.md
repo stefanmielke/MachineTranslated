@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0096.md)
 ###### [Previous Chapter](./chapter_0094.md)&nbsp;/&nbsp;
 
+---
+
+
 # Wow, rich ●Illustration included
 
 ## わぁ、濃厚 ●挿絵アリ
@@ -372,3 +375,9 @@ Of course, I had him change into girl’s clothes!!
 Thank you very much! Detailed information will follow.)
 
 *本当にありがとうございます！　詳細情報は追々）*
+
+
+---
+
+###### [Next Chapter](./chapter_0096.md)
+###### [Previous Chapter](./chapter_0094.md)&nbsp;/&nbsp;

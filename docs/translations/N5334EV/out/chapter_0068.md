@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0069.md)
 ###### [Previous Chapter](./chapter_0067.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 63: The Departure of the Auroral Knights
 
 ## 63話　アウローラ騎士団の出陣
@@ -1152,3 +1155,9 @@ Mama Sonia and I continued to watch until the last of the troops disappeared int
 Next time: "The Sanctuary of Amukam"
 
 *次回「アムカムの聖域」*
+
+
+---
+
+###### [Next Chapter](./chapter_0069.md)
+###### [Previous Chapter](./chapter_0067.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0110.md)
 ###### [Previous Chapter](./chapter_0108.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 97: The Truth of the Adventurer's Guild
 
 ## 97話　冒険者組合の真実
@@ -674,3 +677,9 @@ It was supposed to be a pleasant start to the week... I really want this atmosph
 Thank you for always reading!
 
 *いつもお読みいただき、ありがとうございます！*
+
+
+---
+
+###### [Next Chapter](./chapter_0110.md)
+###### [Previous Chapter](./chapter_0108.md)&nbsp;/&nbsp;

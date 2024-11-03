@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0285.md)
 ###### [Previous Chapter](./chapter_0283.md)&nbsp;/&nbsp;
 
+---
+
+
 # Maid Homunculus
 
 ## メイドホムンクルス
@@ -192,3 +195,9 @@ The maid's mouth curved into a crescent-shaped smile.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0285.md)
+###### [Previous Chapter](./chapter_0283.md)&nbsp;/&nbsp;

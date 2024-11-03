@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0018.md)
 ###### [Previous Chapter](./chapter_0016.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 17: Suzy and the Cloud Family's Morning
 
 ## 17話　スージィとクラウド家の朝
@@ -846,3 +849,9 @@ August got into his carriage and left the clearing, heading through the forest.
 Howard and Suzy's carriage followed, leaving the clearing as well.
 
 *ハワードとスージィの馬車も、それに続き広場を後にした。*
+
+
+---
+
+###### [Next Chapter](./chapter_0018.md)
+###### [Previous Chapter](./chapter_0016.md)&nbsp;/&nbsp;

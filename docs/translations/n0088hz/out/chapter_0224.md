@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0225.md)
 ###### [Previous Chapter](./chapter_0223.md)&nbsp;/&nbsp;
 
+---
+
+
 # Entry
 
 ## エントリー
@@ -234,3 +237,9 @@ Oh. Misha has officially become the “butt that pleases the gods.” Good for h
 (Due to adult circumstances, the entire tournament may be cut out.)
 
 *（大人の都合で大会が丸ごとカットされるかもしれません）*
+
+
+---
+
+###### [Next Chapter](./chapter_0225.md)
+###### [Previous Chapter](./chapter_0223.md)&nbsp;/&nbsp;

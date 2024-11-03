@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0287.md)
 ###### [Previous Chapter](./chapter_0285.md)&nbsp;/&nbsp;
 
+---
+
+
 # Maid Homunculus (3)
 
 ## メイドホムンクルス（３）
@@ -224,3 +227,9 @@ Well, it's just a toy!)
 *まぁオモチャですわね！）*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0287.md)
+###### [Previous Chapter](./chapter_0285.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0165.md)
 ###### [Previous Chapter](./chapter_0163.md)&nbsp;/&nbsp;
 
+---
+
+
 # Capital Akahagane ● With Illustrations
 
 ## 首都アカハガネ　●挿絵アリ
@@ -258,3 +261,9 @@ Also, it seems that a limited edition with the cover art made into an acrylic fi
 https://twitter.com/atogozi/status/1712407811760726490
 
 *https://twitter.com/atogozi/status/1712407811760726490*
+
+
+---
+
+###### [Next Chapter](./chapter_0165.md)
+###### [Previous Chapter](./chapter_0163.md)&nbsp;/&nbsp;

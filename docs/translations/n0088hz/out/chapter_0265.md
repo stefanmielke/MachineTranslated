@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0266.md)
 ###### [Previous Chapter](./chapter_0264.md)&nbsp;/&nbsp;
 
+---
+
+
 # And a few days later.
 
 ## そして数日後。
@@ -332,3 +335,9 @@ It will be serialized in ComicREX, which also features "Onimai"! Please read it!
 (Note: I'm super busy, so my writing pace has slowed down...!)
 
 *（尚、めっちゃ忙しいことになってて執筆ペースは落ちてますわ……！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0266.md)
+###### [Previous Chapter](./chapter_0264.md)&nbsp;/&nbsp;

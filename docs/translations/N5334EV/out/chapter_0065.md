@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0066.md)
 ###### [Previous Chapter](./chapter_0064.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 60: The Laughter of Halbert East
 
 ## 60話　ハルバート・イーストの哄笑
@@ -490,3 +493,9 @@ I apologize to those who were looking forward to it, but I didn't want to includ
 I will make sure to include it next time, so please look forward to it! <(_ _)>
 
 *次回はちゃんと入れてありますので、よろしくお願い致します！<(_ _)>*
+
+
+---
+
+###### [Next Chapter](./chapter_0066.md)
+###### [Previous Chapter](./chapter_0064.md)&nbsp;/&nbsp;

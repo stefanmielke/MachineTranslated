@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0133.md)
 ###### [Previous Chapter](./chapter_0131.md)&nbsp;/&nbsp;
 
+---
+
+
 # That's right. It can be misused in various ways.
 
 ## そうだね。色々悪用できちゃうね。
@@ -238,3 +241,9 @@ My attacks are being dodged and not hitting!! Ugh!!!
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0133.md)
+###### [Previous Chapter](./chapter_0131.md)&nbsp;/&nbsp;

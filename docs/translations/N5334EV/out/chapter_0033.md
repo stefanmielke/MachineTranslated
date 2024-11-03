@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0034.md)
 ###### [Previous Chapter](./chapter_0032.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 33: An Afternoon in Amukamu
 
 ## 33話　アムカムの昼下がり
@@ -1342,3 +1345,9 @@ The Light of Smiles.
 Next time: "Henry Jameson's Confession"
 
 *次回「ヘンリー・ジェイムスンの懺悔」*
+
+
+---
+
+###### [Next Chapter](./chapter_0034.md)
+###### [Previous Chapter](./chapter_0032.md)&nbsp;/&nbsp;

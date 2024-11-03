@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0169.md)
 ###### [Previous Chapter](./chapter_0167.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 156: Aftermath? Accident Handling?
 
 ## 156話　事後処理？事故処理？
@@ -516,3 +519,9 @@ Thank you for pointing out the typos and errors!
 Thank you for the bookmarks and evaluations! They are always a great encouragement!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0169.md)
+###### [Previous Chapter](./chapter_0167.md)&nbsp;/&nbsp;

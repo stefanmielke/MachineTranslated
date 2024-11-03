@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0177.md)
 ###### [Previous Chapter](./chapter_0175.md)&nbsp;/&nbsp;
 
+---
+
+
 # Damn it, someone like you, a good-natured person, would never abandon me!
 
 ## くっそ、アンタみてぇなお人よし、見捨てられるかよ！
@@ -274,3 +277,9 @@ The large bodyguard responded to Hermes with a cynical smile, fully intent on ta
 *……えー、何。なんか私が悪者みたいじゃん。泥棒したのはそっちなのに。*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0177.md)
+###### [Previous Chapter](./chapter_0175.md)&nbsp;/&nbsp;

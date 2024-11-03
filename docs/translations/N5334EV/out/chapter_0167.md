@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0168.md)
 ###### [Previous Chapter](./chapter_0166.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 155: The Smile of Rual Na Rubure
 
 ## 155話　ルアル・ナ・ルブレの微笑
@@ -292,3 +295,9 @@ Thank you for pointing out any typos or errors!
 Thank you for your bookmarks and evaluations! They are always a source of encouragement!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0168.md)
+###### [Previous Chapter](./chapter_0166.md)&nbsp;/&nbsp;

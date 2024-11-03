@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0029.md)
 ###### [Previous Chapter](./chapter_0027.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 28: Amukamu's Summer Vacation Part 2
 
 ## 28話　アムカムの夏休み　その２
@@ -1942,3 +1945,9 @@ The story begins to move.
 Next time: "The Guest of the Cloud Family"
 
 *次回「クラウド家の客人」*
+
+
+---
+
+###### [Next Chapter](./chapter_0029.md)
+###### [Previous Chapter](./chapter_0027.md)&nbsp;/&nbsp;

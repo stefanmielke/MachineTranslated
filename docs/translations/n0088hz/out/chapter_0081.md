@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0082.md)
 ###### [Previous Chapter](./chapter_0080.md)&nbsp;/&nbsp;
 
+---
+
+
 # I'm starting to crave pancakes...
 
 ## ホットケーキ食べたくなってきた……
@@ -240,3 +243,9 @@ Also, I need to check the catalog's functionality. I have to try ordering withou
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0082.md)
+###### [Previous Chapter](./chapter_0080.md)&nbsp;/&nbsp;

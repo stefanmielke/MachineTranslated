@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0201.md)
 ###### [Previous Chapter](./chapter_0199.md)&nbsp;/&nbsp;
 
+---
+
+
 # Is she the Dragon Priestess...?
 
 ## 龍の巫女……なのですか？
@@ -282,3 +285,9 @@ By the way, it’s just between us that the next tournaments will require the en
 It seems signed copies have sold well!)
 
 *サイン本とかちゃんと売れたらしいよ！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0201.md)
+###### [Previous Chapter](./chapter_0199.md)&nbsp;/&nbsp;

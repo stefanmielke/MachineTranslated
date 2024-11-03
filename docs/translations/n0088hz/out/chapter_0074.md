@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0075.md)
 ###### [Previous Chapter](./chapter_0073.md)&nbsp;/&nbsp;
 
+---
+
+
 # Damiena Niseisha (Temporary Name)
 
 ## ダミーナ・ニセイシャ（仮）
@@ -242,3 +245,9 @@ Got it, I just need to heal her. Leave it to me.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0075.md)
+###### [Previous Chapter](./chapter_0073.md)&nbsp;/&nbsp;

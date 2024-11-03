@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0106.md)
 ###### [Previous Chapter](./chapter_0104.md)&nbsp;/&nbsp;
 
+---
+
+
 # One Squeeze, One Silver Coin ●Illustration Included
 
 ## １揉み銀貨１枚 ●挿絵アリ
@@ -250,3 +253,9 @@ Siesta drew a circle, the symbol of the holy mark, in the air as she prayed.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0106.md)
+###### [Previous Chapter](./chapter_0104.md)&nbsp;/&nbsp;

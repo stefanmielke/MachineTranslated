@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0253.md)
 ###### [Previous Chapter](./chapter_0251.md)&nbsp;/&nbsp;
 
+---
+
+
 # Conversation with a Dragon
 
 ## ドラゴンと会話
@@ -186,3 +189,9 @@ Thus, I rode on the dragon's head as we headed toward the nest.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0253.md)
+###### [Previous Chapter](./chapter_0251.md)&nbsp;/&nbsp;

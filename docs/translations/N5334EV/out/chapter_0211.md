@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0212.md)
 ###### [Previous Chapter](./chapter_0210.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 199: Preparations for Counterattack
 
 ## 199話　迎撃準備
@@ -768,3 +771,9 @@ https://gammaplus.takeshobo.co.jp/
 &nbsp;
 
 ![挿絵(By みてみん)](https://27598.mitemin.net/userpageimage/viewimagebig/icode/i842837/)
+
+
+---
+
+###### [Next Chapter](./chapter_0212.md)
+###### [Previous Chapter](./chapter_0210.md)&nbsp;/&nbsp;

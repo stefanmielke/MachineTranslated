@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0003.md)
 ###### [Previous Chapter](./chapter_0001.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 2: Suzy Feels Surprise
 
 ## 02話　スージィ驚きを覚える
@@ -404,3 +407,9 @@ They licked their upper lip with their tongue.
 With a slightly confident smile, they dashed toward the nearest enemy.
 
 *少し強気な笑みを浮かべ、最も近い敵へと向けて飛び出した。*
+
+
+---
+
+###### [Next Chapter](./chapter_0003.md)
+###### [Previous Chapter](./chapter_0001.md)&nbsp;/&nbsp;

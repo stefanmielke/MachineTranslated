@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0179.md)
 ###### [Previous Chapter](./chapter_0177.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 166: Mr. Roderick's Resolve
 
 ## 166話　ロデリック氏の決意
@@ -354,3 +357,9 @@ Thank you for pointing out any typos or errors!
 Thank you for your bookmarks and evaluations! They always encourage me!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0179.md)
+###### [Previous Chapter](./chapter_0177.md)&nbsp;/&nbsp;

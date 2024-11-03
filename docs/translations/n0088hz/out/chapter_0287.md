@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0288.md)
 ###### [Previous Chapter](./chapter_0286.md)&nbsp;/&nbsp;
 
+---
+
+
 # Waking Up
 
 ## 目が覚めて
@@ -224,3 +227,9 @@ Also, the comic adaptation is about to start soon!
 Starting from 8/27 (Tuesday) in ComicREX! In a paper magazine! It's a comic adaptation!!!)
 
 *8/27(火)よりComicREXにて！　紙の雑誌で！　コミカライズじゃああ！！！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0288.md)
+###### [Previous Chapter](./chapter_0286.md)&nbsp;/&nbsp;

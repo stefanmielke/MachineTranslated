@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0157.md)
 ###### [Previous Chapter](./chapter_0155.md)&nbsp;/&nbsp;
 
+---
+
+
 # How about it, Dad? You're knowledgeable, right?
 
 ## どうだ、父ちゃん物知りだろ？
@@ -234,3 +237,9 @@ Good for you, Dia-kun, your chastity is protected!
 I don't know when I can share the information, but the illustrations are great...)
 
 *いつ情報出せるかわからんのだけど、イラストがいいぞ……）*
+
+
+---
+
+###### [Next Chapter](./chapter_0157.md)
+###### [Previous Chapter](./chapter_0155.md)&nbsp;/&nbsp;

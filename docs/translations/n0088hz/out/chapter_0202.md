@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0203.md)
 ###### [Previous Chapter](./chapter_0201.md)&nbsp;/&nbsp;
 
+---
+
+
 # Dear, take off your socks! ● Illustration included
 
 ## ディア君、靴下脱いで！●挿絵アリ
@@ -336,3 +339,9 @@ Of course, I collected the socks he changed into without question.
 Recently, I've been holding back a bit due to the AI illustration situation, but this is Dear in goth-loli, right? It's a lie to say there are no illustrations...)
 
 *最近AIイラスト関連がアレでちょっと自重してたけど、ディア君のゴスロリだよ？　これで絵がないのは嘘でしょ……）*
+
+
+---
+
+###### [Next Chapter](./chapter_0203.md)
+###### [Previous Chapter](./chapter_0201.md)&nbsp;/&nbsp;

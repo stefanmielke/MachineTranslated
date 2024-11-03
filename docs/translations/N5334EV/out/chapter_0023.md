@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0024.md)
 ###### [Previous Chapter](./chapter_0022.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 23: Suzy Cloud and the Morning Classroom
 
 ## 23話　スージィ・クラウドと朝の教室
@@ -670,3 +673,9 @@ Mia gently stroked Suzy's head.
 The four of them nodded in agreement.
 
 *四人が揃って頷いた。*
+
+
+---
+
+###### [Next Chapter](./chapter_0024.md)
+###### [Previous Chapter](./chapter_0022.md)&nbsp;/&nbsp;

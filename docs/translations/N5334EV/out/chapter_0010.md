@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0011.md)
 ###### [Previous Chapter](./chapter_0009.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 10: Meeting Suzy the Pig
 
 ## 10話　スージィ豚と出会う
@@ -1240,3 +1243,9 @@ She continued to pray as she entrusted the ash to the wind, scoop by scoop, unti
 The prologue will conclude in the next episode. It's the epilogue.
 
 *次回で序章終了。エピローグです。*
+
+
+---
+
+###### [Next Chapter](./chapter_0011.md)
+###### [Previous Chapter](./chapter_0009.md)&nbsp;/&nbsp;

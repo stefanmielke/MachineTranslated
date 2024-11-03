@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0048.md)
 ###### [Previous Chapter](./chapter_0046.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 42: The Spring of Amukam
 
 ## 42話　アムカムの春
@@ -590,3 +593,9 @@ Enticed by the spring sunshine...
 Next time: "The Details of Coop Town"
 
 *次回「コープタウンの細事」*
+
+
+---
+
+###### [Next Chapter](./chapter_0048.md)
+###### [Previous Chapter](./chapter_0046.md)&nbsp;/&nbsp;

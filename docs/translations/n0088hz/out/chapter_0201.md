@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0202.md)
 ###### [Previous Chapter](./chapter_0200.md)&nbsp;/&nbsp;
 
+---
+
+
 # Thus, Dia-kun won the Tamer Tournament.
 
 ## かくして、ディア君はテイマー大会を優勝した。
@@ -316,3 +319,9 @@ Thus, Dia-kun won the Tamer Tournament.
 Please, editors...!)
 
 *たのむぞ編集さん……！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0202.md)
+###### [Previous Chapter](./chapter_0200.md)&nbsp;/&nbsp;

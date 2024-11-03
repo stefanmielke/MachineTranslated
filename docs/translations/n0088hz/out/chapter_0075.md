@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0076.md)
 ###### [Previous Chapter](./chapter_0074.md)&nbsp;/&nbsp;
 
+---
+
+
 # I see, that's terrible
 
 ## なるほど、ひどいねーこりゃ
@@ -242,3 +245,9 @@ Also, it seems there's no particular need to put on a collar. Good, because it w
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0076.md)
+###### [Previous Chapter](./chapter_0074.md)&nbsp;/&nbsp;

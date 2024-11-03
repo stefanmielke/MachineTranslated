@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0166.md)
 ###### [Previous Chapter](./chapter_0164.md)&nbsp;/&nbsp;
 
+---
+
+
 # Five Great Elders Shock
 
 ## 五大老ショック
@@ -304,3 +307,9 @@ There's a campaign going on at the official X (formerly Twitter) account where y
 Click on the cover image I left below to go to the official X (formerly Twitter) account, so check it out!!)
 
 *下のとこにおいといた表紙画像をクリックした先が公式X(旧ツイッター）のアカウントなので要ちぇけら！！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0166.md)
+###### [Previous Chapter](./chapter_0164.md)&nbsp;/&nbsp;

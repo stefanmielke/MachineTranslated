@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0077.md)
 ###### [Previous Chapter](./chapter_0075.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 71: The Vampire at Dawn Part 1
 
 ## 71話　夜明けのヴァンパイア　その1
@@ -1588,3 +1591,9 @@ Next time: "The Vampire at Dawn Part 2"
 The protagonist will finally appear in the following story (≡ω≡;)
 
 *主人公は、その後の話でやっとでますー(≡ω≡;)*
+
+
+---
+
+###### [Next Chapter](./chapter_0077.md)
+###### [Previous Chapter](./chapter_0075.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0116.md)
 ###### [Previous Chapter](./chapter_0114.md)&nbsp;/&nbsp;
 
+---
+
+
 # Yes, it suits you, Dia-sama! (Aisia's perspective)
 
 ## うん、ディア様にお似合いです！（アイシア視点）
@@ -384,3 +387,9 @@ No, no, no. Master, please get better soon...!
 Kakuyomu might be about a day and a half ahead...)
 
 *カクヨムの方が１日半早い感じになるかな…）*
+
+
+---
+
+###### [Next Chapter](./chapter_0116.md)
+###### [Previous Chapter](./chapter_0114.md)&nbsp;/&nbsp;

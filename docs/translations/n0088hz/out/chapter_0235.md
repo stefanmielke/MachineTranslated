@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0236.md)
 ###### [Previous Chapter](./chapter_0234.md)&nbsp;/&nbsp;
 
+---
+
+
 # Is it double dipping of the sauce?
 
 ## ソースの二度付けかな？
@@ -146,3 +149,9 @@ For now, I also slapped Misha's butt once for my own satisfaction. Bam.
 *とりあえず私もミーシャの尻を腹いせに一発叩いておいた。ばちーん。*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0236.md)
+###### [Previous Chapter](./chapter_0234.md)&nbsp;/&nbsp;

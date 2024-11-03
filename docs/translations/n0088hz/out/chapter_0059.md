@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0060.md)
 ###### [Previous Chapter](./chapter_0058.md)&nbsp;/&nbsp;
 
+---
+
+
 # Isn't he a promising guy?
 
 ## 見込みがある男じゃないか
@@ -372,3 +375,9 @@ Meanwhile, from the men’s bath, such cries could be heard or not heard.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0060.md)
+###### [Previous Chapter](./chapter_0058.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0025.md)
 ###### [Previous Chapter](./chapter_0023.md)&nbsp;/&nbsp;
 
+---
+
+
 # Encouraging the Bad Guys to Reflect☆ (From the Perspective of a Thug) ●Illustration Included
 
 ## 悪人たちに反省を促しちゃうゾ☆（チンピラ視点）●挿絵アリ
@@ -562,3 +565,9 @@ Also, on the Kakuyomu version, there are fewer comments, so I'm replying to them
 but since there are no illustrations or prefaces/postfaces, that's the trade-off. Yes.)
 
 *その分イラストとまえがき・あとがきもないのでその分ということで。ええ）*
+
+
+---
+
+###### [Next Chapter](./chapter_0025.md)
+###### [Previous Chapter](./chapter_0023.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0006.md)
 ###### [Previous Chapter](./chapter_0004.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 05: Enjoying the Suzi Highlands Lake
 
 ## 05話　スージィ高原湖を楽しむ
@@ -730,3 +733,9 @@ A small reddish moon peeked out from behind a bluish moon.
 The moons reflected on the lake's mirror-like surface, facing each other, illuminating the small tent placed by the lakeshore.
 
 *月たちは高原湖の鏡の様な水面に映り込み、向かい合い、共に湖畔に置かれた小さなテントを照らし出していた。*
+
+
+---
+
+###### [Next Chapter](./chapter_0006.md)
+###### [Previous Chapter](./chapter_0004.md)&nbsp;/&nbsp;

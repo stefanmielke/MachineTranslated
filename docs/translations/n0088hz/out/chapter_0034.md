@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0035.md)
 ###### [Previous Chapter](./chapter_0033.md)&nbsp;/&nbsp;
 
+---
+
+
 # Tasting Comparison
 
 ## 飲み比べ
@@ -300,3 +303,9 @@ How convenient, merchant guild. Hehe, thanks for the treat!
 (Next time, from the pirate's perspective.)
 
 *（次回、海賊視点です）*
+
+
+---
+
+###### [Next Chapter](./chapter_0035.md)
+###### [Previous Chapter](./chapter_0033.md)&nbsp;/&nbsp;

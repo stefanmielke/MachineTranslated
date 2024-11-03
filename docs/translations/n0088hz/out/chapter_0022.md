@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0023.md)
 ###### [Previous Chapter](./chapter_0021.md)&nbsp;/&nbsp;
 
+---
+
+
 # Attack? Double the return!
 
 ## 襲撃？　倍返しだ！
@@ -380,3 +383,9 @@ Now then, let's hear all sorts of things! First, about the vault!
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0023.md)
+###### [Previous Chapter](./chapter_0021.md)&nbsp;/&nbsp;

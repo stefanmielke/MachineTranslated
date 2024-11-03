@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0047.md)
 ###### [Previous Chapter](./chapter_0045.md)&nbsp;/&nbsp;
 
+---
+
+
 # The Boy's Daughter Training Plan, Activated
 
 ## 男の娘育成計画、始動
@@ -248,3 +251,9 @@ Well, if I ask Gomez, I'll find out. I’ll continue to keep an eye on him!
 Releasing on 1/25! It seems some stores already have it on the shelves.)
 
 *1/25発売！　一部店頭ではもう並んでるそうです）*
+
+
+---
+
+###### [Next Chapter](./chapter_0047.md)
+###### [Previous Chapter](./chapter_0045.md)&nbsp;/&nbsp;

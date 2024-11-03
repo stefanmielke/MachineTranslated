@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0098.md)
 ###### [Previous Chapter](./chapter_0096.md)&nbsp;/&nbsp;
 
+---
+
+
 # Here Comes the Dungeon
 
 ## やってきましたダンジョン
@@ -292,3 +295,9 @@ Alright, I’m counting on you.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0098.md)
+###### [Previous Chapter](./chapter_0096.md)&nbsp;/&nbsp;

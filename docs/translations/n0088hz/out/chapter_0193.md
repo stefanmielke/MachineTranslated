@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0194.md)
 ###### [Previous Chapter](./chapter_0192.md)&nbsp;/&nbsp;
 
+---
+
+
 # Let’s go, Terrarial Ruby
 
 ## いざゆかん、テラリアルビー
@@ -232,3 +235,9 @@ Let’s go, Terrarial Ruby!!
 However, since the stock is running out, updates will be slow again.)
 
 *だけどストックが尽きてるのでまたのんびり更新になりますねぇ）*
+
+
+---
+
+###### [Next Chapter](./chapter_0194.md)
+###### [Previous Chapter](./chapter_0192.md)&nbsp;/&nbsp;

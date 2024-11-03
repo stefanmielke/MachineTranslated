@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0283.md)
 ###### [Previous Chapter](./chapter_0281.md)&nbsp;/&nbsp;
 
+---
+
+
 # True Chaos God
 
 ## 真・混沌神
@@ -222,3 +225,9 @@ I replied with a bright smile. …Ah, but if this room has measures to obstruct 
 I know it's a bit out of place to say this on Narou, but if you're a supporter on Kakuyomu, feel free to take it.)
 
 *なろうの方で言うのもなんだけど、カクヨムでサポーターの人は良かったら持ってってね）*
+
+
+---
+
+###### [Next Chapter](./chapter_0283.md)
+###### [Previous Chapter](./chapter_0281.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0112.md)
 ###### [Previous Chapter](./chapter_0110.md)&nbsp;/&nbsp;
 
+---
+
+
 # There was a big beehive there.
 
 ## そこにはデカいハチの巣があった。
@@ -200,3 +203,9 @@ Before I knew it, I had killed every single bee in the room, leaving not one beh
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0112.md)
+###### [Previous Chapter](./chapter_0110.md)&nbsp;/&nbsp;

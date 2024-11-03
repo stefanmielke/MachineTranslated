@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0137.md)
 ###### [Previous Chapter](./chapter_0135.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 124: Annemarie's Work
 
 ## 124話　アンナメリーのお仕事
@@ -224,3 +227,9 @@ Thank you for reading.
 Thank you for your bookmarks and evaluations! They are always a source of encouragement!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0137.md)
+###### [Previous Chapter](./chapter_0135.md)&nbsp;/&nbsp;

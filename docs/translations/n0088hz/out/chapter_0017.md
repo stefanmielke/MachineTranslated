@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0018.md)
 ###### [Previous Chapter](./chapter_0016.md)&nbsp;/&nbsp;
 
+---
+
+
 # Let's get the reward!
 
 ## 報酬ゲットだぜ！
@@ -240,3 +243,9 @@ I must definitely go meet Harumikazuchi-nee-san!!
 (Since it's Christmas, feel free to rate from the ☆☆☆☆☆ below!?)
 
 *（メリークリスマスなので下の☆☆☆☆☆から評価点入れてってもいいのよ！？）*
+
+
+---
+
+###### [Next Chapter](./chapter_0018.md)
+###### [Previous Chapter](./chapter_0016.md)&nbsp;/&nbsp;

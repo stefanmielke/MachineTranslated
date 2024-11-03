@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0271.md)
 ###### [Previous Chapter](./chapter_0269.md)&nbsp;/&nbsp;
 
+---
+
+
 # To be honest, that idea is scary
 
 ## ぶっちゃけその発想はこえーにゃ
@@ -234,3 +237,9 @@ Also, Volume 2 of Goji is included! Sorry for the trouble, but please vote to su
 https://ln-news.com/articles/119561
 
 *https://ln-news.com/articles/119561*
+
+
+---
+
+###### [Next Chapter](./chapter_0271.md)
+###### [Previous Chapter](./chapter_0269.md)&nbsp;/&nbsp;

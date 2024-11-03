@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0140.md)
 ###### [Previous Chapter](./chapter_0138.md)&nbsp;/&nbsp;
 
+---
+
+
 # Wasshoi! Wasshoi! (Bibei's Perspective)
 
 ## わっしょい！　わっしょい！（ビーベイ視点）
@@ -470,3 +473,9 @@ If only I could truly become an infant who can’t think at all... babuu...
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0140.md)
+###### [Previous Chapter](./chapter_0138.md)&nbsp;/&nbsp;

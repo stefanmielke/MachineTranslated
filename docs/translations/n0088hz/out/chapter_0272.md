@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0273.md)
 ###### [Previous Chapter](./chapter_0271.md)&nbsp;/&nbsp;
 
+---
+
+
 # Alchemy Kingdom, what kind of evil deeds did they commit?
 
 ## 錬金王国、どんな悪行したんにゃ
@@ -252,3 +255,9 @@ Also, Volume 2 of Goji is eligible! I apologize for the trouble, but please do v
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0273.md)
+###### [Previous Chapter](./chapter_0271.md)&nbsp;/&nbsp;

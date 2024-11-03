@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0042.md)
 ###### [Previous Chapter](./chapter_0040.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 41 Epilogue Daily Life of Amukamu
 
 ## 41話　エピローグ　アムカムの日常
@@ -582,3 +585,9 @@ Next week, I will post a few interludes, so please take a look if you like.
 I plan to write and save Chapter Two before posting it continuously. I would be grateful if you could accompany me again. <(_ _)>
 
 *第二章はまた書き溜めた後、連続投稿しようと思っています。又お付き合い頂ければ幸いで御座います<(_ _)>*
+
+
+---
+
+###### [Next Chapter](./chapter_0042.md)
+###### [Previous Chapter](./chapter_0040.md)&nbsp;/&nbsp;

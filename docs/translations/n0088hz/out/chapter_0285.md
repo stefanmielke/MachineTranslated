@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0286.md)
 ###### [Previous Chapter](./chapter_0284.md)&nbsp;/&nbsp;
 
+---
+
+
 # Maid Homunculus (2)
 
 ## メイドホムンクルス（２）
@@ -180,3 +183,9 @@ Could it be that, as the maid says, all of her equipment is indeed a divine tool
 Kaoru draws the maid homunculus's attention. In her hand, she holds a brown potion with the lid open.
 
 *メイドホムンクルスの注意を引きつけるカオル。その手には、蓋の開いた茶色いポーションが握られていた。*
+
+
+---
+
+###### [Next Chapter](./chapter_0286.md)
+###### [Previous Chapter](./chapter_0284.md)&nbsp;/&nbsp;

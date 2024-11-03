@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0224.md)
 ###### [Previous Chapter](./chapter_0222.md)&nbsp;/&nbsp;
 
+---
+
+
 # Underground Tournament
 
 ## 裏の大会
@@ -194,3 +197,9 @@ By the way, it seems the fight money is quite good. I'm not in need of money rig
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0224.md)
+###### [Previous Chapter](./chapter_0222.md)&nbsp;/&nbsp;

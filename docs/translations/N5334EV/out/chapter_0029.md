@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0030.md)
 ###### [Previous Chapter](./chapter_0028.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 29: A Guest of the Cloud Family
 
 ## 29話　クラウド家の客人（まれびと）
@@ -1244,3 +1247,9 @@ This is a story about family.
 Next time, “Sonia Cloud's Tale.”
 
 *次回「ソニア・クラウドの昔語り」*
+
+
+---
+
+###### [Next Chapter](./chapter_0030.md)
+###### [Previous Chapter](./chapter_0028.md)&nbsp;/&nbsp;

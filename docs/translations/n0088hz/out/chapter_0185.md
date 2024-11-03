@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0186.md)
 ###### [Previous Chapter](./chapter_0184.md)&nbsp;/&nbsp;
 
+---
+
+
 # It's a miracle from the gods!
 
 ## 神の奇跡だー！
@@ -236,3 +239,9 @@ If this is a case of stealing, I'll definitely confront the god about it!!
 (I’m thinking of submitting a new work to the Kakuyomu contest, so the update pace might slow down.)
 
 *（カクヨムコンに新作出そうと思ってるので、更新ペースは落ちるやもしらん）*
+
+
+---
+
+###### [Next Chapter](./chapter_0186.md)
+###### [Previous Chapter](./chapter_0184.md)&nbsp;/&nbsp;

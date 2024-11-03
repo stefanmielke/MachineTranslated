@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0041.md)
 ###### [Previous Chapter](./chapter_0039.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 40: A Bouquet for Lavinia Cloud
 
 ## 40話　ラヴィニア・クラウドに花束を
@@ -1840,3 +1843,9 @@ Ending.
 Next time: "Epilogue: The Peace of Amkam."
 
 *次回『エピローグ　アムカムの安穏』*
+
+
+---
+
+###### [Next Chapter](./chapter_0041.md)
+###### [Previous Chapter](./chapter_0039.md)&nbsp;/&nbsp;

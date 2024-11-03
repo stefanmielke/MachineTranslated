@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0123.md)
 ###### [Previous Chapter](./chapter_0121.md)&nbsp;/&nbsp;
 
+---
+
+
 # Well, that was careless of me
 
 ## いやぁうっかりうっかり
@@ -282,3 +285,9 @@ Later, when I returned with Mashiro-san to the entrance of the dungeon, there wa
 (I might simply run out of stock soon)
 
 *（単純にストック切れそう）*
+
+
+---
+
+###### [Next Chapter](./chapter_0123.md)
+###### [Previous Chapter](./chapter_0121.md)&nbsp;/&nbsp;

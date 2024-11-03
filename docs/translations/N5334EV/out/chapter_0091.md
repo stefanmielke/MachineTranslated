@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0092.md)
 ###### [Previous Chapter](./chapter_0090.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 79: Waiting as I Dream
 
 ## 79話　夢見るままに待ちいたり
@@ -386,3 +389,9 @@ The world is in a difficult situation, but I hope you can enjoy this chaotic wri
 *世の中大変な事になっておりますが、こんな乱文ででも、少しは楽しんでいただければ幸いにございます<(_ _)>*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0092.md)
+###### [Previous Chapter](./chapter_0090.md)&nbsp;/&nbsp;

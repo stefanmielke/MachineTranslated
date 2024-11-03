@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0021.md)
 ###### [Previous Chapter](./chapter_0019.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 20: Suzy Cloud and the School Lunch Break
 
 ## 20話　スージィ・クラウドと学校の昼休み
@@ -726,3 +729,9 @@ Watching that, Mia murmured, "I'll hug her a lot later," and Beatrice steeled he
 The peaceful lunch hour passed by.
 
 *長閑にお昼の一時が過ぎて行く。*
+
+
+---
+
+###### [Next Chapter](./chapter_0021.md)
+###### [Previous Chapter](./chapter_0019.md)&nbsp;/&nbsp;

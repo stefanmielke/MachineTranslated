@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0007.md)
 ###### [Previous Chapter](./chapter_0005.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 06: Suzy and the Gatekeeper
 
 ## 06話　スージィと門番
@@ -574,3 +577,9 @@ Like someone trying to escape from a crime scene as quickly and as far as possib
 Truly like a fleeing rabbit, they jumped, dashed, and ran away... and ran off.
 
 *正に脱兎のごとく、跳び、駆け抜け、逃げさ……走り去って行った。*
+
+
+---
+
+###### [Next Chapter](./chapter_0007.md)
+###### [Previous Chapter](./chapter_0005.md)&nbsp;/&nbsp;

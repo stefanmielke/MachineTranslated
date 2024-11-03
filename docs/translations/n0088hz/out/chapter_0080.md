@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0081.md)
 ###### [Previous Chapter](./chapter_0079.md)&nbsp;/&nbsp;
 
+---
+
+
 # New Type of Magical Tool Vehicle, Setting Prototype
 
 ## 新型魔道具車、という設定の素体
@@ -292,3 +295,9 @@ Oh, I also need to buy materials for massage devices, starting with Denmark. Heh
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0081.md)
+###### [Previous Chapter](./chapter_0079.md)&nbsp;/&nbsp;

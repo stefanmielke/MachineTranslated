@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0171.md)
 ###### [Previous Chapter](./chapter_0169.md)&nbsp;/&nbsp;
 
+---
+
+
 # Karina-chan's Revival!
 
 ## カリーナちゃん復活！
@@ -252,3 +255,9 @@ Whoa, that's a bit cool, isn't it... hmm, no, on closer inspection, maybe not so
 You can find the official account from the link in the cover illustration below!
 
 *公式アカウントは下の表紙絵のリンクから！*
+
+
+---
+
+###### [Next Chapter](./chapter_0171.md)
+###### [Previous Chapter](./chapter_0169.md)&nbsp;/&nbsp;

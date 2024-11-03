@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0064.md)
 ###### [Previous Chapter](./chapter_0062.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 58: The Relief of Magritte Goche
 
 ## 58話　マグリット・ゴーチェの安堵
@@ -842,3 +845,9 @@ Next time: "The Decision of Howard Cloud"
 Thank you for reading.
 
 *お読みいただき、ありがとうございます。*
+
+
+---
+
+###### [Next Chapter](./chapter_0064.md)
+###### [Previous Chapter](./chapter_0062.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0213.md)
 ###### [Previous Chapter](./chapter_0211.md)&nbsp;/&nbsp;
 
+---
+
+
 # No, no, that's not good!
 
 ## いかん、いかんぞそれは！
@@ -220,3 +223,9 @@ I'm glad I had a gun; if it were barehanded, I might have accidentally missed my
 (I'm about to start the book publication process, so I'll slow down the update pace!)
 
 *（そろそろ書籍化作業入るので更新ペース落とすわよ！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0213.md)
+###### [Previous Chapter](./chapter_0211.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0243.md)
 ###### [Previous Chapter](./chapter_0241.md)&nbsp;/&nbsp;
 
+---
+
+
 # We Must Go Play
 
 ## 遊びに行かねば
@@ -200,3 +203,9 @@ Hahaha, let's not say unnecessary things, Arthur. Words are tricky, aren't they?
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0243.md)
+###### [Previous Chapter](./chapter_0241.md)&nbsp;/&nbsp;

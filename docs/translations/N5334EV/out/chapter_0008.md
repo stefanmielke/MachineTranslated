@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0009.md)
 ###### [Previous Chapter](./chapter_0007.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 08: Suzie Uses Ki
 
 ## 08話　スージィ氣を使う
@@ -724,3 +727,9 @@ For some reason, Suzie began heading south while bouncing with high energy.
 It seems she has decided on her next course of action... but is there really no wavering in that decision?
 
 *この後の方針が決まったようだが……。ソッチ方面の決定にブレが無いのは流石なのか？*
+
+
+---
+
+###### [Next Chapter](./chapter_0009.md)
+###### [Previous Chapter](./chapter_0007.md)&nbsp;/&nbsp;

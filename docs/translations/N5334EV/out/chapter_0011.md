@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0012.md)
 ###### [Previous Chapter](./chapter_0010.md)&nbsp;/&nbsp;
 
+---
+
+
 # Episode 11 Epilogue: Suzy in a Great Fluster
 
 ## 11話　エピローグ　スージィ大いに慌てる
@@ -292,3 +295,9 @@ This concludes the prologue. From next time, finally! Other 'humans' besides Suz
 If there are any typos or errors, please let me know<(_ _)>
 
 *誤字脱字ございましたら、ご指摘宜しくお願い致します<(_ _)>*
+
+
+---
+
+###### [Next Chapter](./chapter_0012.md)
+###### [Previous Chapter](./chapter_0010.md)&nbsp;/&nbsp;

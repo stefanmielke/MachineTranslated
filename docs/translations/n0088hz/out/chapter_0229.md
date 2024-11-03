@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0230.md)
 ###### [Previous Chapter](./chapter_0228.md)&nbsp;/&nbsp;
 
+---
+
+
 # Enchanting Elf Competitor (Audience Perspective)
 
 ## 魅惑のエルフ選手（観客視点）
@@ -208,3 +211,9 @@ I thought the deadline was the end of February, but it turns out it's February 1
 *てっきり２月いっぱいで締め切りかと思ったら２月１日が締め切りじゃんよぅ！）*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0230.md)
+###### [Previous Chapter](./chapter_0228.md)&nbsp;/&nbsp;

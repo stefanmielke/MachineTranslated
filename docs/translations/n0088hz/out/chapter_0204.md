@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0205.md)
 ###### [Previous Chapter](./chapter_0203.md)&nbsp;/&nbsp;
 
+---
+
+
 # Oh, who did you bet on? (General Beastman Perspective)
 
 ## おう、誰に賭けたよ？（一般獣人視点）
@@ -286,3 +289,9 @@ With that, they head off to purchase their betting tickets.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0205.md)
+###### [Previous Chapter](./chapter_0203.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0241.md)
 ###### [Previous Chapter](./chapter_0239.md)&nbsp;/&nbsp;
 
+---
+
+
 # It was a piece of cake. I mean, it's a dragon, right?
 
 ## 楽勝だったのだ。だってドラゴンだよ？
@@ -288,3 +291,9 @@ Arthur was quite domineering towards someone without Karina's protection.
 I haven't been able to give back much to the supporters, you know!)
 
 *あんまりサポーター還元できてなかったのでな！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0241.md)
+###### [Previous Chapter](./chapter_0239.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0276.md)
 ###### [Previous Chapter](./chapter_0274.md)&nbsp;/&nbsp;
 
+---
+
+
 # "Huh?"
 
 ## 『は？』
@@ -182,3 +185,9 @@ Please take a little inspiration from the open-mindedness of the Five Elders, Go
 *五大老の心の広さをちょっとだけ見習ってください、神様……！*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0276.md)
+###### [Previous Chapter](./chapter_0274.md)&nbsp;/&nbsp;

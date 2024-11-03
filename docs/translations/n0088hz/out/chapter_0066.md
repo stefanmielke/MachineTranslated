@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0067.md)
 ###### [Previous Chapter](./chapter_0065.md)&nbsp;/&nbsp;
 
+---
+
+
 # Privacy and the Private are Important ●Illustration Included
 
 ## プライバシーとかプライベートってのは大事　●挿絵アリ
@@ -310,3 +313,9 @@ Dia-kun rubbed his eyes as he headed to his room. ...Yawn. Ah, I’ll sleep too.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0067.md)
+###### [Previous Chapter](./chapter_0065.md)&nbsp;/&nbsp;

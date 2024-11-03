@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0050.md)
 ###### [Previous Chapter](./chapter_0048.md)&nbsp;/&nbsp;
 
+---
+
+
 # There is no escape.
 
 ## 逃げ場はない。
@@ -246,3 +249,9 @@ That means they’re probably going to seek help from Gomez, just as I intended.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0050.md)
+###### [Previous Chapter](./chapter_0048.md)&nbsp;/&nbsp;

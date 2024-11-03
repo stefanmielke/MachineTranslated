@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0019.md)
 ###### [Previous Chapter](./chapter_0017.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 18: Returning to the Suzy Family
 
 ## 18話　スージィ家へ帰る
@@ -1286,3 +1289,9 @@ Thank you for reading.
 Next time, a new development! It’s sure to be a school story?!
 
 *次回からまたまた新展開！きっと学園モノに違いない？！*
+
+
+---
+
+###### [Next Chapter](./chapter_0019.md)
+###### [Previous Chapter](./chapter_0017.md)&nbsp;/&nbsp;

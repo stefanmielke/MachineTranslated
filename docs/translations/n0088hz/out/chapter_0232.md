@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0233.md)
 ###### [Previous Chapter](./chapter_0231.md)&nbsp;/&nbsp;
 
+---
+
+
 # Please make it forbidden
 
 ## 禁止でお願いします
@@ -206,3 +209,9 @@ In terms of life, it's fifty-fifty... Now, shall we settle this, Mishaーーー�
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0233.md)
+###### [Previous Chapter](./chapter_0231.md)&nbsp;/&nbsp;

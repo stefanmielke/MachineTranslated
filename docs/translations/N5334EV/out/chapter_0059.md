@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0060.md)
 ###### [Previous Chapter](./chapter_0058.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 54: The Amukam Council
 
 ## 54話　アムカムの評議会
@@ -1114,3 +1117,9 @@ Wishing everyone a Happy New Year!
 See you again next year (tomorrow!)!!
 
 *また来年（明日！）お会い致しましょう！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0060.md)
+###### [Previous Chapter](./chapter_0058.md)&nbsp;/&nbsp;

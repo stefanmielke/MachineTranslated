@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0219.md)
 ###### [Previous Chapter](./chapter_0217.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 206: Arvin Haggard's Fierce Assault!
 
 ## 206話　アーヴィン・ハッガード猛撃す！
@@ -526,3 +529,9 @@ https://gammaplus.takeshobo.co.jp/manga/onna_heiwanasyomin/
 Please take care!
 
 *何卒よしなに！*
+
+
+---
+
+###### [Next Chapter](./chapter_0219.md)
+###### [Previous Chapter](./chapter_0217.md)&nbsp;/&nbsp;

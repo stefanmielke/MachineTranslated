@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0199.md)
 ###### [Previous Chapter](./chapter_0197.md)&nbsp;/&nbsp;
 
+---
+
+
 # Let's try participating in the tournament tomorrow.
 
 ## 明日は大会に参加してみるとしよう
@@ -306,3 +309,9 @@ Let's try participating in the tournament tomorrow... I think I'll gamble the mo
 Thank you for the purchase reports!!! I'm so happy!!!!)
 
 *購入報告ありがとうございます！！！　嬉しいです！！！！！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0199.md)
+###### [Previous Chapter](./chapter_0197.md)&nbsp;/&nbsp;

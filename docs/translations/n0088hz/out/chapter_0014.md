@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0015.md)
 ###### [Previous Chapter](./chapter_0013.md)&nbsp;/&nbsp;
 
+---
+
+
 # Reuniting with God ●Illustrations Included
 
 ## 神様と再会　●挿絵アリ
@@ -534,3 +537,9 @@ So it's 'no-shi.' God, this world doesn't seem to be in Japanese, does it? You'r
 (It seems Kakuyomu has become strict about sexual expressions, but we're safe since it's about socks.)
 
 *（カクヨムが性的表現がアレになったとからしいですが、うちは靴下なので完全セーフです）*
+
+
+---
+
+###### [Next Chapter](./chapter_0015.md)
+###### [Previous Chapter](./chapter_0013.md)&nbsp;/&nbsp;

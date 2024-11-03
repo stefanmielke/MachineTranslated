@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0280.md)
 ###### [Previous Chapter](./chapter_0278.md)&nbsp;/&nbsp;
 
+---
+
+
 # No way, this is……
 
 ## まさか、これは……
@@ -192,3 +195,9 @@ I mean, it even cuts potion bottles but doesn't disassemble organic tails; that'
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0280.md)
+###### [Previous Chapter](./chapter_0278.md)&nbsp;/&nbsp;

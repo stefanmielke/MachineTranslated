@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0203.md)
 ###### [Previous Chapter](./chapter_0201.md)&nbsp;/&nbsp;
 
+---
+
+
 # Chapter 190: Outdoor Class
 
 ## 190話　野外授業
@@ -242,3 +245,9 @@ Thank you for reading.
 Thank you for your bookmarks and evaluations! They are always a great encouragement!!
 
 *ブクマ、ご評価もありがとうございます！いつも励みになっております！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0203.md)
+###### [Previous Chapter](./chapter_0201.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0111.md)
 ###### [Previous Chapter](./chapter_0109.md)&nbsp;/&nbsp;
 
+---
+
+
 # Well, it's acidーーーー！！！
 
 ## さ、酸だーーーー！！！
@@ -228,3 +231,9 @@ I used spatial magic to sever the joints of the Armor Ants and stored them. I go
 (I'm running out of stock...! But! I'll somehow update every day until the end of March...!!)
 
 *（ストックがもう尽きる…！　が！　３月いっぱいは何とか毎日更新する…！！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0111.md)
+###### [Previous Chapter](./chapter_0109.md)&nbsp;/&nbsp;

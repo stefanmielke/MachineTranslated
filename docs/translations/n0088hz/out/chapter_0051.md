@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0052.md)
 ###### [Previous Chapter](./chapter_0050.md)&nbsp;/&nbsp;
 
+---
+
+
 # Area Cutter, abbreviated as Air Cutter. ●Illustration included
 
 ## エリアカッター、略してエアカッター。●挿絵アリ
@@ -376,3 +379,9 @@ If I take the whole ship, that means I can also recover the artifact 'Poseidon,'
 *船を丸ごともっとけば神器『ポセイドン』も回収できたってことになるだろ。多分？*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0052.md)
+###### [Previous Chapter](./chapter_0050.md)&nbsp;/&nbsp;

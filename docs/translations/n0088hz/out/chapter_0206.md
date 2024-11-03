@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0207.md)
 ###### [Previous Chapter](./chapter_0205.md)&nbsp;/&nbsp;
 
+---
+
+
 # How's it going!
 
 ## どんなもんよ！
@@ -238,3 +241,9 @@ probably without any invincible moves, and instead of lives, it involves savings
 and it's also a Vtuber story...!)
 
 *あとVtuberモノでもあるってことかな……！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0207.md)
+###### [Previous Chapter](./chapter_0205.md)&nbsp;/&nbsp;

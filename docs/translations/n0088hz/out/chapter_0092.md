@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0093.md)
 ###### [Previous Chapter](./chapter_0091.md)&nbsp;/&nbsp;
 
+---
+
+
 # Elves Don’t Always Get Jokes, You Know?
 
 ## エルフって冗談通じないとこあるじゃん？
@@ -306,3 +309,9 @@ Just as I was talking to Dear-kun, Satie-tan walked into the inn and waved when 
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0093.md)
+###### [Previous Chapter](./chapter_0091.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0088.md)
 ###### [Previous Chapter](./chapter_0086.md)&nbsp;/&nbsp;
 
+---
+
+
 # Interlude 3: Magic Extraction
 
 ## 幕間3　魔抜き
@@ -638,3 +641,9 @@ I want to write stories like this throughout the year.
 That's my hope for the beginning of the year.
 
 *と思う年の初め。*
+
+
+---
+
+###### [Next Chapter](./chapter_0088.md)
+###### [Previous Chapter](./chapter_0086.md)&nbsp;/&nbsp;

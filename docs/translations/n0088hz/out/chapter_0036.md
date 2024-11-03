@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0037.md)
 ###### [Previous Chapter](./chapter_0035.md)&nbsp;/&nbsp;
 
+---
+
+
 # Drinking Contest (Pirate's Perspective) 2
 
 ## 飲み比べ（海賊視点）２
@@ -376,3 +379,9 @@ Damn! Damn! That girl... how dare she humiliate me... I’ll remember this...!
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0037.md)
+###### [Previous Chapter](./chapter_0035.md)&nbsp;/&nbsp;

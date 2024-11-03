@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0174.md)
 ###### [Previous Chapter](./chapter_0172.md)&nbsp;/&nbsp;
 
+---
+
+
 # Perfectly a Piko Piko Hammer.
 
 ## 完璧にピコピコハンマーです。
@@ -232,3 +235,9 @@ However, it seems there is still something on the official account…!!
 The link to the official account is at the cover art link below!
 
 *公式アカウントへのリンクは↓の表紙絵リンク先だぁ！*
+
+
+---
+
+###### [Next Chapter](./chapter_0174.md)
+###### [Previous Chapter](./chapter_0172.md)&nbsp;/&nbsp;

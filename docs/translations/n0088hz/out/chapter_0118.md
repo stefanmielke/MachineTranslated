@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0119.md)
 ###### [Previous Chapter](./chapter_0117.md)&nbsp;/&nbsp;
 
+---
+
+
 # Huh? (A-Rank Adventurer Mashiro's Perspective)
 
 ## は？（Ａランク冒険者マシロ視点）
@@ -224,3 +227,9 @@ A relaxed female voice that was out of place in the situation rang out.
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0119.md)
+###### [Previous Chapter](./chapter_0117.md)&nbsp;/&nbsp;

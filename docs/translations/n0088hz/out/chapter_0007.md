@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0008.md)
 ###### [Previous Chapter](./chapter_0006.md)&nbsp;/&nbsp;
 
+---
+
+
 #On a Personal Matter (Apologies if you’re eating!)
 
 ## 下の話。（食事中の方はごめんね！）
@@ -300,3 +303,9 @@ Basic Knowledge-san didn’t explain why… maybe it’s a preference thing? Hmm
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0008.md)
+###### [Previous Chapter](./chapter_0006.md)&nbsp;/&nbsp;

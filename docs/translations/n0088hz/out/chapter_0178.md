@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0179.md)
 ###### [Previous Chapter](./chapter_0177.md)&nbsp;/&nbsp;
 
+---
+
+
 # I. I'm a beauty that could topple a nation.
 
 ## 私。傾国の美女じゃん。
@@ -264,3 +267,9 @@ We're currently voting on who the character for the digital edition bonus SS wil
 *The subsequent deadline will be fast, so if there's a significant difference, I might be able to write it in advance, so please vote a lot... please!!
 
 *※その後の締め切りはマッハなのである。圧倒的大差がついていればあらかじめ書けるかもですので、いっぱい投票してね……してね！！*
+
+
+---
+
+###### [Next Chapter](./chapter_0179.md)
+###### [Previous Chapter](./chapter_0177.md)&nbsp;/&nbsp;

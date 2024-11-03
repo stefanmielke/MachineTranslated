@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0150.md)
 ###### [Previous Chapter](./chapter_0148.md)&nbsp;/&nbsp;
 
+---
+
+
 # A Little Crackle
 
 ## ちょっとパチパチする
@@ -212,3 +215,9 @@ Phew, I'll ask Aisia about the place names later.
 (That said, I'm starting to want to write a new work, but I can't find the time to write…!)
 
 *（それはそうとして新作が書きたくなってきたりもしているのだけど、執筆時間がとれないんだよなぁ…！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0150.md)
+###### [Previous Chapter](./chapter_0148.md)&nbsp;/&nbsp;

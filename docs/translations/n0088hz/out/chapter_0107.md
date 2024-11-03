@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0108.md)
 ###### [Previous Chapter](./chapter_0106.md)&nbsp;/&nbsp;
 
+---
+
+
 # Hmm, Diversity Party
 
 ## うーん、多様性パーティー
@@ -244,3 +247,9 @@ It is scheduled to be released around autumn by Micro Magazine under the GCN Bun
 ...Eh, I wonder if we can find an illustrator. ((((；゜Д゜)))) Shaking in fear)
 
 *……え、絵師さん見つかるかなぁ。((((；゜Д゜))))ガクガクブルブル　）*
+
+
+---
+
+###### [Next Chapter](./chapter_0108.md)
+###### [Previous Chapter](./chapter_0106.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0168.md)
 ###### [Previous Chapter](./chapter_0166.md)&nbsp;/&nbsp;
 
+---
+
+
 # This is bad, I'm feeling all flustered.
 
 ## まずい、ムラムラする。
@@ -280,3 +283,9 @@ After that, Mashiro-san thoroughly washed my whole body, but I still felt a litt
 I learned why slime isn't used as lotion! Waaah!
 
 *スライムがローションに使われない理由を知ったよ！　うわーん！*
+
+
+---
+
+###### [Next Chapter](./chapter_0168.md)
+###### [Previous Chapter](./chapter_0166.md)&nbsp;/&nbsp;

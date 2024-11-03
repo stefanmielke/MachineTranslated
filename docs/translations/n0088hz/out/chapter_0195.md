@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0196.md)
 ###### [Previous Chapter](./chapter_0194.md)&nbsp;/&nbsp;
 
+---
+
+
 # Shall I have them make it in exchange for rent?
 
 ## 家賃代わりに作ってもらいますか？
@@ -238,3 +241,9 @@ By the way, while I was lost in thought about Dia-kun's "rent," the match had en
 You can also pre-order it on Bookwalker!)
 
 *bookwalkerでも予約できるよ！）*
+
+
+---
+
+###### [Next Chapter](./chapter_0196.md)
+###### [Previous Chapter](./chapter_0194.md)&nbsp;/&nbsp;

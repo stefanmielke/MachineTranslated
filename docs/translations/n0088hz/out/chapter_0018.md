@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0019.md)
 ###### [Previous Chapter](./chapter_0017.md)&nbsp;/&nbsp;
 
+---
+
+
 # Flirting
 
 ## ナンパ
@@ -278,3 +281,9 @@ Oh, I just realized that if I’m in the sky, no one can see me! What a great di
 &nbsp;
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0019.md)
+###### [Previous Chapter](./chapter_0017.md)&nbsp;/&nbsp;

@@ -1,6 +1,9 @@
 ###### [Next Chapter](./chapter_0240.md)
 ###### [Previous Chapter](./chapter_0238.md)&nbsp;/&nbsp;
 
+---
+
+
 # It might be bad for children's education, but!!
 
 ## 子供の教育に悪いだろうがッ！！
@@ -360,3 +363,9 @@ The bath scene is cut!
 *……カットだッ！！*
 
 &nbsp;
+
+
+---
+
+###### [Next Chapter](./chapter_0240.md)
+###### [Previous Chapter](./chapter_0238.md)&nbsp;/&nbsp;
