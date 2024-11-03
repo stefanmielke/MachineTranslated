@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0140.md)
+###### [Next Chapter](./chapter_0142.md)
+
 # Chapter 129: How to Raise a Dull Lady
 
 ## 129話　冴えない淑女の育て方

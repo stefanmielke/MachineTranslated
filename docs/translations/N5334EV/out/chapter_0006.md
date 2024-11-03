@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0005.md)
+###### [Next Chapter](./chapter_0007.md)
+
 # Episode 06: Suzy and the Gatekeeper
 
 ## 06話　スージィと門番

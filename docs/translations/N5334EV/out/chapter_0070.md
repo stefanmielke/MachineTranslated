@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0069.md)
+###### [Next Chapter](./chapter_0071.md)
+
 # Chapter 65: Cameron Fourier's Disturbance
 
 ## 65話　キャメロン・フーリエの動揺

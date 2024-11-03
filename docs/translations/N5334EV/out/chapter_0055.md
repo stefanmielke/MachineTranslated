@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0054.md)
+###### [Next Chapter](./chapter_0056.md)
+
 # Episode 50: Suzy Cloud's Survival Part 2
 
 ## 50話　スージィ・クラウドのサバイバル　その2

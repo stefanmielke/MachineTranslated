@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0075.md)
+###### [Next Chapter](./chapter_0077.md)
+
 # Chapter 71: The Vampire at Dawn Part 1
 
 ## 71話　夜明けのヴァンパイア　その1

@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0060.md)
+###### [Next Chapter](./chapter_0062.md)
+
 # Episode 56: A Prelude from Dekember
 
 ## 56話　デケンベルからの先触れ

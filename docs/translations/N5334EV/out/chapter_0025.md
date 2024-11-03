@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0024.md)
+###### [Next Chapter](./chapter_0026.md)
+
 # Episode 25: The Delight of Orubetto Mash
 
 ## 25話　オルベット・マッシュの愉悦

@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0137.md)
+###### [Next Chapter](./chapter_0139.md)
+
 # Chapter 126 Annie's Sword
 
 ## 126話　アニーの剣

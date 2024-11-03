@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0100.md)
+###### [Next Chapter](./chapter_0102.md)
+
 # Episode 89: A Chat on Exam Day
 
 ## 89話　受験日閑話

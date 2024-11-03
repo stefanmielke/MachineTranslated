@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0058.md)
+###### [Next Chapter](./chapter_0060.md)
+
 # Chapter 54: The Amukam Council
 
 ## 54話　アムカムの評議会

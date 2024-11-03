@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0184.md)
+###### [Next Chapter](./chapter_0186.md)
+
 # Chapter 173: The Mother and Daughter in the Basement
 
 ## 173話　地下室の母娘

@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0165.md)
+###### [Next Chapter](./chapter_0167.md)
+
 # Chapter 154: Tremor
 
 ## 154話　激震

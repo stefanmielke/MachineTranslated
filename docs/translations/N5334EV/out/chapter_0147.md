@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0146.md)
+###### [Next Chapter](./chapter_0148.md)
+
 # Chapter 135: Suzy Cloud is Very Angry
 
 ## 135話　スージィ・クラウド大いに憤る

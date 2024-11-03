@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0182.md)
+###### [Next Chapter](./chapter_0184.md)
+
 # Episode 171: Brawl at the Tavern
 
 ## 171話　乱闘酒場

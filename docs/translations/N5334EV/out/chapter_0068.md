@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0067.md)
+###### [Next Chapter](./chapter_0069.md)
+
 # Chapter 63: The Departure of the Auroral Knights
 
 ## 63話　アウローラ騎士団の出陣

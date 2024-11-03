@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0134.md)
+###### [Next Chapter](./chapter_0136.md)
+
 # Chapter 123: The Wish of Deep Green
 
 ## 123話　深緑の願い

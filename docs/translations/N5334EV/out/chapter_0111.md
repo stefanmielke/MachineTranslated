@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0110.md)
+###### [Next Chapter](./chapter_0112.md)
+
 # Episode 99: Blue Reverie
 
 ## 99話　蒼い微睡

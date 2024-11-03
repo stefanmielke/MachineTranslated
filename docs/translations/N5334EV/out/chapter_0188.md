@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0187.md)
+###### [Next Chapter](./chapter_0189.md)
+
 # Chapter 176: Chidori
 
 ## 176話　チドリ

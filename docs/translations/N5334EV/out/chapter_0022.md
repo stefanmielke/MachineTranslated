@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0021.md)
+###### [Next Chapter](./chapter_0023.md)
+
 # Chapter 22: Suzy Cloud's Midnight Investigation
 
 ## 22話　スージィ・クラウド真夜中の検証

@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0088.md)
+###### [Next Chapter](./chapter_0090.md)
+
 # Interlude 5: "Flow, My Tears," Said Suzy
 
 ## 幕間5　流れよ我が涙とスージィは言った

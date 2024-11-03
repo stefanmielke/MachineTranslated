@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0128.md)
+###### [Next Chapter](./chapter_0130.md)
+
 # Chapter 117 Morning Practice
 
 ## 117話　朝練

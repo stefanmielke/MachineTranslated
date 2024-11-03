@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0077.md)
+###### [Next Chapter](./chapter_0079.md)
+
 # Chapter 73: Suzy Cloud's Unease
 
 ## 73話　スージィ・クラウドの胸騒ぎ

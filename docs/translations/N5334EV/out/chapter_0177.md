@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0176.md)
+###### [Next Chapter](./chapter_0178.md)
+
 # Chapter 165: Report from Annemarie
 
 ## 165話　アンナメリーの報告書

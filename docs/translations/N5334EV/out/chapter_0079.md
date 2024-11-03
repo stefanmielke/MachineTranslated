@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0078.md)
+###### [Next Chapter](./chapter_0080.md)
+
 # Chapter 74: Howard Cloud's Resolve
 
 ## 74話　ハワード・クラウドの覚悟

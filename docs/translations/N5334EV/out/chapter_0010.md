@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0009.md)
+###### [Next Chapter](./chapter_0011.md)
+
 # Episode 10: Meeting Suzy the Pig
 
 ## 10話　スージィ豚と出会う

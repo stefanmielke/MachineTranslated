@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0090.md)
+###### [Next Chapter](./chapter_0092.md)
+
 # Chapter 79: Waiting as I Dream
 
 ## 79話　夢見るままに待ちいたり

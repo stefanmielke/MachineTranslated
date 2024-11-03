@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0048.md)
+###### [Next Chapter](./chapter_0050.md)
+
 # Chapter 44: The Amukam Growth Ceremony
 
 ## 44話　アムカム成長の儀式

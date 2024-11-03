@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0127.md)
+###### [Next Chapter](./chapter_0129.md)
+
 # Chapter 116: The Indignation of RuuRii Diet
 
 ## 116話　ルゥリィ・ディートの憤懣

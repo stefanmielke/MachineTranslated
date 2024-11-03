@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0117.md)
+###### [Next Chapter](./chapter_0119.md)
+
 # Chapter 106: Red Memories
 
 ## 106話　赤い記憶

@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0007.md)
+###### [Next Chapter](./chapter_0009.md)
+
 # Episode 08: Suzie Uses Ki
 
 ## 08話　スージィ氣を使う

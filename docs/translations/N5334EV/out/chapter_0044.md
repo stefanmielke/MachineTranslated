@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0043.md)
+###### [Next Chapter](./chapter_0045.md)
+
 # Interlude 2 Let's Go Hunting!
 
 ## 幕間2　狩りへ行こうよ！

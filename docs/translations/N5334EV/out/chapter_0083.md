@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0082.md)
+###### [Next Chapter](./chapter_0084.md)
+
 # Chapter 78 Epilogue: Suzy Cloud's Delivery
 
 ## 78話　エピローグ　スージィ・クラウドの届け物

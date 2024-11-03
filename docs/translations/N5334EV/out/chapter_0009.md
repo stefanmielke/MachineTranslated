@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0008.md)
+###### [Next Chapter](./chapter_0010.md)
+
 # Episode 09: Suzy Searches for Food
 
 ## 09話　スージィ食料を探す

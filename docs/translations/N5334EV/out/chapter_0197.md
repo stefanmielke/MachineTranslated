@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0196.md)
+###### [Next Chapter](./chapter_0198.md)
+
 # Chapter 185: The Rematch with Arvin Haggard!
 
 ## 185話　アーヴィン・ハッガード再戦す！

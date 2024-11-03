@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0047.md)
+###### [Next Chapter](./chapter_0049.md)
+
 # Episode 43: Details of Cooptown
 
 ## 43話　コープタウンの細事

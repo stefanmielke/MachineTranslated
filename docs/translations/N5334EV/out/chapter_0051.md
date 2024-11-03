@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0050.md)
+###### [Next Chapter](./chapter_0052.md)
+
 # Chapter 46: Suzy Cloud's Night Training
 
 ## 46話　スージィ・クラウド夜の鍛練

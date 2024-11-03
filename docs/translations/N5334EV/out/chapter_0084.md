@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0083.md)
+###### [Next Chapter](./chapter_0085.md)
+
 # Chapter Two Characters
 
 ## 二章登場人物

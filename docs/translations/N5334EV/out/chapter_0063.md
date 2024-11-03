@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0062.md)
+###### [Next Chapter](./chapter_0064.md)
+
 # Chapter 58: The Relief of Magritte Goche
 
 ## 58話　マグリット・ゴーチェの安堵

@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0017.md)
+###### [Next Chapter](./chapter_0019.md)
+
 # Chapter 18: Returning to the Suzy Family
 
 ## 18話　スージィ家へ帰る

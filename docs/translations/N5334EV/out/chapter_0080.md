@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0079.md)
+###### [Next Chapter](./chapter_0081.md)
+
 # Episode 75: The Immortal Army of Iroshio
 
 ## 75話　イロシオの不死兵団

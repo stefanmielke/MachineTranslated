@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0172.md)
+###### [Next Chapter](./chapter_0174.md)
+
 # Chapter 161: Measurements and Rank Up
 
 ## 161話　採寸とランクアップ

@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0080.md)
+###### [Next Chapter](./chapter_0082.md)
+
 # Episode 76: The Crimson Annihilator
 
 ## 76話　紅の殲滅者

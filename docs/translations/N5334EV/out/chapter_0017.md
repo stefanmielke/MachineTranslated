@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0016.md)
+###### [Next Chapter](./chapter_0018.md)
+
 # Chapter 17: Suzy and the Cloud Family's Morning
 
 ## 17話　スージィとクラウド家の朝

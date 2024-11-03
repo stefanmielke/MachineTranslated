@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0045.md)
+###### [Next Chapter](./chapter_0047.md)
+
 # Episode Zero
 
 ## episode零

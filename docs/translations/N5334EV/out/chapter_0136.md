@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0135.md)
+###### [Next Chapter](./chapter_0137.md)
+
 # Chapter 124: Annemarie's Work
 
 ## 124話　アンナメリーのお仕事

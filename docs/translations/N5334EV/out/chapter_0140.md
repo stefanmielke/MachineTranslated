@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0139.md)
+###### [Next Chapter](./chapter_0141.md)
+
 # Chapter 128: Fluke's Tantrum
 
 ## 128話　フルークの地団駄

@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0030.md)
+###### [Next Chapter](./chapter_0032.md)
+
 # Chapter 31: The Misfortunes of William Cloud
 
 ## 31話　ウィリアム・クラウドの災難

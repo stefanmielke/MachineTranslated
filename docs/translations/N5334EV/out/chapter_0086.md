@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0085.md)
+###### [Next Chapter](./chapter_0087.md)
+
 # Interlude 2: The Thirst of the Dead
 
 ## 幕間2　死者の渇望

@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0031.md)
+###### [Next Chapter](./chapter_0033.md)
+
 # Episode 32: Suzy Cloud's First Errand
 
 ## 32話　スージィ・クラウドはじめてのお使い

@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0193.md)
+###### [Next Chapter](./chapter_0195.md)
+
 # Chapter 182: The Niven Family Father and Son
 
 ## 182話　ニヴン家の父子

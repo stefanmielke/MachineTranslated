@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0065.md)
+###### [Next Chapter](./chapter_0067.md)
+
 # Episode 61: The Visit of Marsh Cowesbart
 
 ## 61話　マーシュ・カウズバートの訪問

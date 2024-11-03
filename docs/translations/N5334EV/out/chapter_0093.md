@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0092.md)
+###### [Next Chapter](./chapter_0094.md)
+
 # Chapter 81: On the Day of Departure
 
 ## 81話　旅立ちの日に

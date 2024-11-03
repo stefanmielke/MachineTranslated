@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0076.md)
+###### [Next Chapter](./chapter_0078.md)
+
 # Episode 72: The Vampire at Dawn, Part 2
 
 ## 72話　夜明けのヴァンパイア　その2

@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0046.md)
+###### [Next Chapter](./chapter_0048.md)
+
 # Chapter 42: The Spring of Amukam
 
 ## 42話　アムカムの春

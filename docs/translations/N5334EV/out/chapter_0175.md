@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0174.md)
+###### [Next Chapter](./chapter_0176.md)
+
 # Chapter 163: Lady Crimson
 
 ## 163話　レディクリムゾン

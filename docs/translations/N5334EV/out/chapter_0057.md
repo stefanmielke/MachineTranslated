@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0056.md)
+###### [Next Chapter](./chapter_0058.md)
+
 # Episode 52: The Flood in the Amukam Forest
 
 ## 52話　アムカムの森の氾濫

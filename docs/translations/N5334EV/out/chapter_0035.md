@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0034.md)
+###### [Next Chapter](./chapter_0036.md)
+
 # Episode 35: The Roar of Howard Cloud
 
 ## 35話　ハワード・クラウドの咆哮

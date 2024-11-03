@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0167.md)
+###### [Next Chapter](./chapter_0169.md)
+
 # Episode 156: Aftermath? Accident Handling?
 
 ## 156話　事後処理？事故処理？

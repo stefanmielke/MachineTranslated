@@ -7,8 +7,11 @@ def merge_files(jp_dir, en_dir, output_dir):
     if not os.path.exists(output_dir):
         os.makedirs(output_dir)
 
+    # Sort filenames to ensure they are processed in order
+    filenames = sorted(os.listdir(jp_dir))
+
     # Loop through all files in the Japanese directory
-    for filename in os.listdir(jp_dir):
+    for i, filename in enumerate(filenames):
         jp_path = os.path.join(jp_dir, filename)
         en_path = os.path.join(en_dir, filename)
 
@@ -31,6 +34,19 @@ def merge_files(jp_dir, en_dir, output_dir):
         output_filename = os.path.splitext(filename)[0] + ".md"
         output_path = os.path.join(output_dir, output_filename)
         with open(output_path, 'w', encoding='utf-8') as output_file:
+            # Add previous and next chapter links
+            chapter_number = int(re.search(r'\d+', filename).group())
+
+            if i > 0:
+                prev_chapter = os.path.splitext(filenames[i - 1])[0]
+                output_file.write(f"###### [Previous Chapter](./{prev_chapter}.md)\n")
+            if i < len(filenames) - 1:
+                next_chapter = os.path.splitext(filenames[i + 1])[0]
+                output_file.write(f"###### [Next Chapter](./{next_chapter}.md)\n")
+
+            output_file.write("\n")  # Add a newline after the links
+
+            # Write content from both Japanese and English files
             for en_line, jp_line in zip(en_lines, jp_lines):
                 # If either line contains '<blank>', write it only once
                 if jp_line.strip() == "<blank>" or jp_line.strip() == "<b>":

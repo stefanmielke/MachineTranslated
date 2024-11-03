@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0037.md)
+###### [Next Chapter](./chapter_0039.md)
+
 # Episode 38: The Children of Amukam Part 2
 
 ## 38話　アムカムの子供たち　その2

@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0003.md)
+###### [Next Chapter](./chapter_0005.md)
+
 # Episode 04: Suzy Considers Future Plans
 
 ## 04話　スージィ今後の方針を考える

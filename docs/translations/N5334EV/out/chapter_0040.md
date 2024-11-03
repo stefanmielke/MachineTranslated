@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0039.md)
+###### [Next Chapter](./chapter_0041.md)
+
 # Episode 40: A Bouquet for Lavinia Cloud
 
 ## 40話　ラヴィニア・クラウドに花束を

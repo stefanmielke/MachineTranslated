@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0063.md)
+###### [Next Chapter](./chapter_0065.md)
+
 # Chapter 59: Howard Cloud's Decision
 
 ## 59話　ハワード・クラウドの決断

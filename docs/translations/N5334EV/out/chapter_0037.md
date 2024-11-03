@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0036.md)
+###### [Next Chapter](./chapter_0038.md)
+
 # Episode 37: Suzy Cloud Charges!
 
 ## 37話　スージィ・クラウド駆ける！

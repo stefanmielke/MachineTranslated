@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0084.md)
+###### [Next Chapter](./chapter_0086.md)
+
 # Interlude 1: The Hero's Message
 
 ## 幕間1　勇者伝え

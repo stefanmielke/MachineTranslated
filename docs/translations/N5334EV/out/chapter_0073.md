@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0072.md)
+###### [Next Chapter](./chapter_0074.md)
+
 # Chapter 68: The Fierce Battle of the Mobile Heavy Knight
 
 ## 68話　機動重騎士の激闘

@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0012.md)
+###### [Next Chapter](./chapter_0014.md)
+
 # Episode 13: Howard Cloud Enjoys a Meal
 
 ## 13話　ハワード・クラウド食事を楽しむ

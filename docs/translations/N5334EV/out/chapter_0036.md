@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0035.md)
+###### [Next Chapter](./chapter_0037.md)
+
 # Episode 36: The Children of Amukamu - Part 1
 
 ## 36話　アムカムの子供たち　その1

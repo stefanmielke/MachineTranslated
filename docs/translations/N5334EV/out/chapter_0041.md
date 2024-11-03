@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0040.md)
+###### [Next Chapter](./chapter_0042.md)
+
 # Chapter 41 Epilogue Daily Life of Amukamu
 
 ## 41話　エピローグ　アムカムの日常

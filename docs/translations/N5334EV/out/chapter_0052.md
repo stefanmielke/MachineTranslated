@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0051.md)
+###### [Next Chapter](./chapter_0053.md)
+
 # Episode 47: The Tale of Aurorora
 
 ## 47話　アウローラの御伽噺

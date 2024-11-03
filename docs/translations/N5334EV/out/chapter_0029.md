@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0028.md)
+###### [Next Chapter](./chapter_0030.md)
+
 # Episode 29: A Guest of the Cloud Family
 
 ## 29話　クラウド家の客人（まれびと）

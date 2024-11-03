@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0032.md)
+###### [Next Chapter](./chapter_0034.md)
+
 # Episode 33: An Afternoon in Amukamu
 
 ## 33話　アムカムの昼下がり

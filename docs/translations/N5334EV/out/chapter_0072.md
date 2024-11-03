@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0071.md)
+###### [Next Chapter](./chapter_0073.md)
+
 # Episode 67: Team Aria's Deployment
 
 ## 67話　チームアリアの出撃

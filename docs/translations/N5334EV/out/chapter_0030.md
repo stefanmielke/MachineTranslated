@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0029.md)
+###### [Next Chapter](./chapter_0031.md)
+
 # Episode 30: Sonia Cloud's Tale of Old
 
 ## 30話　ソニア・クラウドの昔語り

@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0027.md)
+###### [Next Chapter](./chapter_0029.md)
+
 # Episode 28: Amukamu's Summer Vacation Part 2
 
 ## 28話　アムカムの夏休み　その２

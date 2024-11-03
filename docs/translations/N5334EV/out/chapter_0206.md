@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0205.md)
+###### [Next Chapter](./chapter_0207.md)
+
 # Chapter 194: The Bouncers
 
 ## 194話　バウンサー達

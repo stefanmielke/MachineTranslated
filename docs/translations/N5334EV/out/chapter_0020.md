@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0019.md)
+###### [Next Chapter](./chapter_0021.md)
+
 # Chapter 20: Suzy Cloud and the School Lunch Break
 
 ## 20話　スージィ・クラウドと学校の昼休み

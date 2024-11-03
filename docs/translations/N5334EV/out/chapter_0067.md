@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0066.md)
+###### [Next Chapter](./chapter_0068.md)
+
 # Episode 62: Sonia Cloud's Worries
 
 ## 62話　ソニア・クラウドの憂い事

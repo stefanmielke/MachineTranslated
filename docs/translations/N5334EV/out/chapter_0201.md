@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0200.md)
+###### [Next Chapter](./chapter_0202.md)
+
 # Chapter 189: A Summons from the Chairman
 
 ## 189話　理事長からのお呼び出し

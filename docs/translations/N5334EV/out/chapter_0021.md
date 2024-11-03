@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0020.md)
+###### [Next Chapter](./chapter_0022.md)
+
 # Chapter 21: Professor Jameson's Magic Course
 
 ## 21話　ジェイムスン教授の魔法講座

@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0014.md)
+###### [Next Chapter](./chapter_0016.md)
+
 # Chapter 15: Suzy Learns the Truth
 
 ## 15話　スージィは真実を知る

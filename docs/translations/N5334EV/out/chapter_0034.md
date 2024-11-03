@@ -1,3 +1,6 @@
+###### [Previous Chapter](./chapter_0033.md)
+###### [Next Chapter](./chapter_0035.md)
+
 # Chapter 34: The Confession of Henry Jameson
 
 ## 34話　ヘンリー・ジェイムスンの懺悔
