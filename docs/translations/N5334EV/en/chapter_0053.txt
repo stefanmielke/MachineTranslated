@@ -14,7 +14,9 @@ The carriage does not belong to our family; it is provided by the village.
 
 <b>
 
-Helping me load the luggage from the driver's seat is Mr. Karon Clunot, who came to pick me up from the village. He is a 19-year-old who just moved up to the second tier this year.
+Helping me load the luggage from the driver's seat is Mr. Karon Clunot, who came to pick me up from the village.
+
+He is a 19-year-old who just moved up to the second tier this year.
 
 <b>
 
@@ -62,7 +64,9 @@ I also smiled at Papa Howard.
 
 <b>
 
-Before stepping outside the house, I received congratulatory words from Papa Howard, Mama Sonia, and Ms. Elrose for my birthday. At that moment, they embraced me with congratulations, and the warmth that still lingers on my arms and cheeks feels even more pronounced against the cold air outside.
+Before stepping outside the house, I received congratulatory words from Papa Howard, Mama Sonia, and Ms. Elrose for my birthday.
+
+At that moment, they embraced me with congratulations, and the warmth that still lingers on my arms and cheeks feels even more pronounced against the cold air outside.
 
 <b>
 
@@ -252,6 +256,8 @@ Aria Blouk is the eldest daughter of the Blouk family.
 
 Yes, she is Ronbart's older sister, the same age as me.
 
+<b>
+
 We often see each other at the training grounds where family members often instruct.
 
 <b>
@@ -260,7 +266,9 @@ We often see each other at the training grounds where family members often instr
 
 Aria, at just 24 years old, holds the highest rank of 10th and is a battle master.
 
-The combat style of the Blouk family, one of the twelve teams of Amukam, involves smashing enemies with a battle axe and using it for defense, embodying both offense and defense.
+The combat style of the Blouk family, one of the twelve teams of Amukam,
+
+involves smashing enemies with a battle axe and using it for defense, embodying both offense and defense.
 
 While both Ronbart and Aria share this style, Aria's combat power as a battle master is incomparable to Ronbart's.
 
@@ -422,7 +430,9 @@ Mr. Alphonse has short, slightly wavy light brown hair and a stylish mustache.
 
 He is slightly taller than Aria.
 
-His baritone voice greeted me warmly, sounding youthful for someone in his 50s.
+His baritone voice greeted me warmly,
+
+sounding youthful for someone in his 50s.
 
 <b>
 
@@ -545,6 +555,8 @@ The four from Team Aria. Aria smirked, tilting her head as if to say, "This is y
 <b>
 
 As I began to walk into the forest, Mr. Alphonse's baritone voice echoed behind me.
+
+<b>
 
 Aria, Ilta, Keti, and Millie disappeared into the forest.
 
