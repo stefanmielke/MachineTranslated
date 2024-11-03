@@ -310,6 +310,8 @@ And from inside, what appeared was an apple pie shaped like a rose!!
 
 I couldn't help but exclaim in admiration!
 
+<b>
+
 Thinly sliced apple wrapped like rose petals, baked in a small cup-shaped crust!
 
 So cute and beautiful!!
@@ -398,7 +400,15 @@ As the old man stepped out from behind the counter and approached me.
 
 <b>
 
-I extended my hand for a handshake, and he responded with a short, "Hmm."
+I extended my hand for a handshake, and he responded with a short,
+
+<b>
+
+"Hmm."
+
+<b>
+
+He responded with a brief handshake.
 
 However, he looked me up and down suspiciously without making eye contact.
 
@@ -501,6 +511,8 @@ When he reached me, he took one of the swords from the counter and presented it 
 <b>
 
 When I easily accepted the sword, Marsh looked surprised, as if he hadn't expected me to lift it so easily.
+
+<b>
 
 <b>
 
@@ -676,6 +688,8 @@ Maribel said, stepping out from behind the counter.
 
 While sitting across from the sofa on the counter, Maribel explained while sipping her tea.
 
+<b>
+
 It seems that the sword is woven with mithril silver to make it easier to imbue magical power.
 
 To maintain the strength with a mithril alloy requires considerable skill, and it seems to be in the realm of secret techniques.
@@ -686,9 +700,13 @@ The sight of magical power being infused into the sword was clearly visible to b
 
 For dwarves who forge weapons that handle magical power, it is a natural ability.
 
+<b>
+
 What Marsh is doing now is called "Magic Baking," which fixes the wielder's magical power into the sword, allowing the mithril within the sword to remember the wielder's magical power.
 
 This enables the wielder to use magic more efficiently when using that weapon.
+
+<b>
 
 It seems that the "raw" mithril woven into the sword is imbued with the wielder's magical power, and then the technique of "Magic Baking" is applied.
 

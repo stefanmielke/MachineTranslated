@@ -1,23 +1,22 @@
-# 39 - Suzy Cloud coming forward.
+# Episode 39: Suzy Cloud Makes Her Stand
 
 ## 39話　スージィ・クラウド名乗りを上げる
 
-The depressing development is over.
+The gloomy developments are over.
 
 *鬱展開はもう終わり。*
-
 
 ----------------
 
 &nbsp;
 
-'Ha, ha, ha, it's hard to say you won't let them die, isn't it? Hey? What are you going to do? All these kids are about to die, you know? Right? Ha-ha-ha-ha-ha-ha."
+"Ah, ahahaha, I don't think it's going to be easy to keep them alive, you know? Hey? What are you planning to do? These kids are all on the verge of death, aren't they? Hey? Ahahahahahahaha!"
 
 *「あは、あははは、死なせないって言っても難しいんじゃないかな？ねえ？どうするつもりさ？この子達、もう死んじゃいそうな子達ばっかだよ？ねえ？あはははははははははは」*
 
 &nbsp;
 
-Doug laughs and waves his right hand as if signaling something.
+Doug raised his right hand, laughing, as if signaling something.
 
 *ダグが笑い声を上げながら、何かの合図をする様に右手を振る。*
 
@@ -25,29 +24,29 @@ Doug laughs and waves his right hand as if signaling something.
 
 &nbsp;
 
-Suzy stepped forward with a swoosh.
+Suzy stepped forward with a swift movement.
 
 *スージィは、スッと一歩前へと足を踏み出した。*
 
 &nbsp;
 
-Bibi, Irving, just give me a second. I'll be quick, okay?"
+"Vivi, Irvin, just wait a moment, I'll finish it quickly, okay?"
 
 *「ビビ、アーヴィン、ちょっとだけ待って、直ぐ済ませる、ね」*
 
 &nbsp;
 
-As Suzy said these words, she helped Irving to his feet and walked past Beatrice, who was supporting him.
+As Suzy spoke, she lent a hand to Irvin, who was getting up, and passed by Beatrice, who was supporting him.
 
 *スージィがそう言葉を掛けながら、身体を起こすアーヴィンに手を貸し、支えているベアトリスの横を通り抜けた。*
 
-Algernon kicks in, and Beatrice flanks him.
+Algernon watched from beside Beatrice with a "kikikyu" sound.
 
 *アルジャーノンが　キキキュッ　とベアトリスの脇でそれを見送る。*
 
 &nbsp;
 
-"Sue...?"
+"Su...?"
 
 *「スー…？」*
 
@@ -59,19 +58,19 @@ Beatrice stared wide-eyed at Suzy's back.
 
 &nbsp;
 
-"...... what's up...Bibi?"
+"......What's wrong... Vivi?"
 
 *「……どうした…ビビ？」*
 
 &nbsp;
 
-Irving asked Beatrice, who had stopped moving, as she endured the intense pain in her arm.
+Irvin asked Beatrice, who had stopped moving, while enduring the intense pain in his arm.
 
 *動きを止めたベアトリスに、アーヴィンが腕の激痛に耐えながら問いかけた。*
 
 &nbsp;
 
-"...... that girl... she's out of it."
+"......That kid... is cut off."
 
 *「……あの子、…切れてる」*
 
@@ -81,119 +80,119 @@ Irving asked Beatrice, who had stopped moving, as she endured the intense pain i
 
 &nbsp;
 
-The shadow dogs that had attached themselves to the front three were all running toward Suzy, except for one.
+The shadow dogs that had attached themselves to the three at the front line suddenly began to run towards Suzy, except for one.
 
 *前線の三人に取り付いていた影犬達が、一匹を除き一斉にスージィに向かって走り出していた。*
 
 &nbsp;
 
-The last one of them raised its fangs without hesitation at Helena's neck, who was lying motionless on the ground, as if following some instruction.
+The last one, without hesitation, sank its fangs into Helena's neck, as if following some command.
 
 *その最後の一匹が、地に伏して動けずにいるヘレナの首筋に、何かの指示に従う様に躊躇無く牙を立てた。*
 
 &nbsp;
 
-Aggi! Gghhh!"
+"Aggh! Guuh!!"
 
 *「あぎっ！ぐぅう！！」*
 
-Oh! This guy! Wait..! Oh, shit!
+"Ah! Th-this guy! Wait... Ugh! Damn!!"
 
 *「あ！コ、コイツ！待っ…がっ！く、くそ！！」*
 
 &nbsp;
 
-Helena lets out a grunt of sudden intense pain.
+Helena let out a groan at the sudden sharp pain.
 
 *突然の激痛にヘレナが呻きを漏らす。*
 
-Dana tried to go after the shadow dog that had fangs for Helena, but the wound on her shin prevented her from getting to her feet and she fell to her knees on the spot.
+Darna tried to chase after the shadow dog that had bitten Helena, but she couldn't step forward due to the injury in her calf and ended up kneeling.
 
 *ダーナがヘレナに牙を立てた影犬を追おうとするが、脹脛の傷で足を踏み出せず、その場に膝を付いてしまった。*
 
-The shadow dog, with Helena's neck in its mouth, starts running with the last of the preceding shadow dogs.
+The shadow dog that had bitten Helena ran off to join the others at the back.
 
 *ヘレナの首筋を咥えた影犬は、先行する影犬達の最後尾に付いて走り出す。*
 
-At that moment, Suzy watched with narrowed eyes as Kageinu's mouth hung open in disgust.
+At that moment, Suzy narrowed her eyes as she saw the shadow dog's mouth curl up in a lewd manner.
 
 *その時、影犬の口元が嫌らしく吊り上ったのを、スージィは目を細めて見ていた。*
 
 &nbsp;
 
-"What is that? You're holding me hostage?"
+"What’s that? Planning to take a hostage?"
 
 *「なにそれ？人質の、つもり？」*
 
 &nbsp;
 
-Suzy tilted her head and cast a cold look at Shadow Dog.
+Suzy tilted her head slightly and threw a cold gaze at the shadow dog.
 
 *スージィは小首を傾げ、冷たい眼差しを影犬に投げかけた。*
 
-He lifted his chin and moved his foot forward. Then, the body swayed.
+She lifted her chin and advanced. Then, her body swayed gently.
 
 *そのまま顎を上げ、足を進める。そして　ユラリ　とその身が揺れた。*
 
 &nbsp;
 
-Suzy's skirt flutters.
+Suzy's skirt fluttered lightly.
 
 *フワリ　とスージィのスカートが舞う。*
 
 &nbsp;
 
-The next moment, a sword grew next to the mouth of the shadow dog that was holding Helena in its mouth.
+In the next moment, a sword sprouted beside the mouth of the shadow dog that had bitten Helena.
 
 *次の瞬間、ヘレナを咥えていた影犬の口の横に剣が生えた。*
 
 &nbsp;
 
-A white silver sword blade extended from the left side of the shadow dog's face.
+A silver blade extended from the left side of the shadow dog's face.
 
 *影犬の顔の左側から、白銀の刀身が伸びていた。*
 
-On the opposite side of his face is Suzy's left hand, gripping the hilt of his sword.
+On the opposite side of its face was Suzy's left hand, gripping the sword's hilt.
 
 *その顔の逆側にあるのは、剣の柄を握るスージィの左手だ。*
 
-Suzy opened her arms with a swish, and as if she was slicing a piece of candy, the upper jaw and head of the shadow dog were neatly separated from the rest of the body.
+As Suzy swiftly opened her arm, the shadow dog's upper jaw and head were cleanly severed from its body, as if cutting through a piece of fruit.
 
 *スージィがスイッと腕を開くと、まるで水菓子でも切る様に、影犬の上顎と頭部は身体から綺麗に切り分けられた。*
 
-The body of the remaining shadow dog, which had lost half of its head, fell down yukkuri as it was.
+The remaining body of the shadow dog, now half its head missing, slowly collapsed.
 
 *頭部を半分失った残った影犬の体は、そのままユックリ倒れ伏した。*
 
-Susie held Helena's body with her right hand to keep it from falling and pulled it away from the shadow dog's body.
+Suzy caught Helena's body with her right hand to prevent it from falling and pulled it away from the shadow dog's body.
 
 *スージィはヘレナの身体を落ちぬ様、右手で抱え受け影犬の身体から引き離した。*
 
 &nbsp;
 
-"Suzy ......, my sister ......?"
+"Suzy... big sister...?"
 
 *「スージィ……お姉……様？」*
 
-Helena... you did great.
+"Helena... you did well, great job."
 
 *「ヘレナ・・・頑張ったね、エライ、よ」*
 
-"Su, Suzy, oh, my sister ......, me, me!"
+"Su-Suzy, big sister... I-I!"
 
 *「ス、スージィ、お、姉……様、わたし、わたし！」*
 
-Don't worry, I'm healing now.
+"It's okay, I'll heal you now."
 
 *「大丈夫、今、治す、から」*
 
 &nbsp;
 
-The five shadow dogs that had been heading toward Suzy suddenly lost sight of her and were sniffing around on the ground as if searching for her scent.
+The five shadow dogs that had been heading towards Suzy suddenly lost sight of her and began sniffing the ground as if searching for her scent.
 
 *スージィに向かっていた5頭の影犬達は、突然スージィを見失い、その場で匂いを探す様に地面を嗅ぎ周っていた。*
 
-However, he soon found a target behind him and was once again running toward Suzy.
+But they quickly found their target behind them and started running towards Suzy again.
 
 *だが直ぐに後方に目標を見つけ出し、改めてスージィに向かい走り出していた。*
 
@@ -201,37 +200,37 @@ However, he soon found a target behind him and was once again running toward Suz
 
 &nbsp;
 
-≪'Chain Regeneration'.
+≪Chain Regeneration≫
 
 *≪チェーン・リジェネレーション≫*
 
-Skill of "Great Wiseman", a recovery job.
+A skill of the healing class "Great Wiseman."
 
 *回復職『グレートワイズマン』のスキル。*
 
-It connects all allies with a line of vitality centered on itself, regenerates HP at once, and continues to recover vitality for a short period of time.
+It connects all allies within a line of vitality centered on oneself, rapidly regenerating HP and continuously restoring vitality for a short time.
 
 *自分を中心に、味方全てを生命力のラインで結び、一気にHPを再生し、短時間生命力を回復し続ける。*
 
 &nbsp;
 
-With Suzy at the center, a golden, glowing line runs through the earth, extending to all the children present.
+A golden line of light ran across the ground from Suzy, extending to all the children present.
 
 *スージィを中心に、金色に光り輝くラインが地を走り、その場にいる子供たち全員に伸びて行く。*
 
 &nbsp;
 
-"Oh, sister ......? This?
+"Big sister...? W-what is this?!"
 
 *「お、お姉様……？こ、これ？！」*
 
 &nbsp;
 
-Helena's core was filled with warmth, and as she watched, her wounds healed and her strength was restored.
+Helena's body was filled with warmth, and her wounds healed and stamina recovered rapidly.
 
 *ヘレナの身体の芯が暖かい物で満たされ、見る見る受けた傷が治り体力が回復して行った。*
 
-Helena checked herself and was astonished.
+Helena checked her own body and let out a voice of astonishment.
 
 *ヘレナは自らの身体を確かめ、驚愕の声を上げた。*
 
@@ -239,19 +238,19 @@ Helena checked herself and was astonished.
 
 &nbsp;
 
-All the other children recover and get back on their feet.
+The other children also began to recover and stand up.
 
 *他の子供達も皆、回復し立ち上がっていく。*
 
-Dana, Lombardo, Carl, Irving, Colin, Mia, and Mary.
+Darna, Lombard, Karl, Irvin, Colin, Mia, Mary.
 
 *ダーナが、ロンバートが、カールが、アーヴィンが、コリンが、ミアが、メアリーが。*
 
-Alan, Belknap, and Stefan, as well as all the children from the former parade ground, one after the other.
+Alan, Bernap, Stephan, and all the children from the training ground followed suit.
 
 *アラン、ベルナップ、ステファンも、練場跡の子供達も皆次々と。*
 
-Only Fiorina and William, deprived of blood, have yet to make a move.
+Only Fiorina and William, who had their blood drained, still did not move.
 
 *只、血を奪われたフィオリーナとウィリアムだけは、まだ動きださない。*
 
@@ -259,17 +258,17 @@ Only Fiorina and William, deprived of blood, have yet to make a move.
 
 &nbsp;
 
-What's this? What's this? Can you move your arm?
+"Whoa! What is this?! My arm can move?!"
 
 *「うお！何だコレ！腕が動く？！」*
 
-Oh, Irving? ...... awesome."
+"Ah, Irvin? ...Amazing."
 
 *「あ、アーヴィン？……凄い」*
 
 &nbsp;
 
-Beatrice was surprised to see that Irving's arm, which had been exposed to the bone after having been repeatedly poked by the shadow dog's fangs, had healed beautifully.
+Beatrice exclaimed in surprise as she saw Irvin's arm, which had been repeatedly bitten by the shadow dogs and exposed to the bone, healing beautifully.
 
 *影犬に何度も牙を突き立てられ、骨まで露出していたアーヴィンの腕が綺麗に治癒されているのを見たベアトリスが、驚きの声を上げていた。*
 
@@ -279,21 +278,21 @@ Beatrice was surprised to see that Irving's arm, which had been exposed to the b
 
 &nbsp;
 
-Oh, that?" Doesn't that hurt? ...... that?"
+"Ah, huh? Doesn't it hurt? ...Huh?"
 
 *「あ、あれ？痛くない？……あれ？」*
 
-Mia?" I can't believe it. ....... Thank God...thank God, Mia.... Ah! E...er...and Mia, Mia? Here, this ...... is this... I think I'd better put this ...... on..."
+"Mia?! I can't believe it... I'm so glad... so glad, Mia... Ah! Uh... um, Mia? You should probably put this on... okay?"
 
 *「ミア？！信じられん……。良かった…よかった、ミア…。あ！え…えー…と、ミ、ミア？こ、これ……これを、羽織っておいた方が良い……かな」*
 
 &nbsp;
 
-Mia's black spear had gouged her side cleanly back, exposing her skin from the sides of her ripped clothing, and her ample breasts were nearly spilling out through the ripped garment.
+Mia's side, where she had been stabbed by a black spear, was healing perfectly, but her torn clothing was exposing her skin, and her ample bosom was about to spill out from the torn fabric.
 
 *ミアは、黒槍で脇腹を抉られた跡が綺麗に戻り、裂けた着衣の脇から肌が露出し、豊かな胸の房が、裂けた衣服の隙間から零れ落ちかけていた。*
 
-Willie removed the cape he was wearing and placed it over Mia's shoulders, a blush on his cheeks to hide the fact that he was wearing a cape.
+Blushing as she tried to cover it, Willy took off his cape and draped it over Mia's shoulders.
 
 *それを隠す様にと頬を赤らめながら、ウィリーが自分の着けていたケープを外し、ミアの肩に掛け置いた。*
 
@@ -303,21 +302,21 @@ Willie removed the cape he was wearing and placed it over Mia's shoulders, a blu
 
 &nbsp;
 
-Oh! My legs! I can move so much! I can move so much!"
+"Ah! My legs!! This is amazing! I can move so much!"
 
 *「あ！脚が！！すっごい！めっちゃ動ける！」*
 
-Mwah! Looks like the power's coming back!"
+"Wow! It seems like my strength is coming back!"
 
 *「むう！力が戻って来た様だ！」*
 
 &nbsp;
 
-Dana jumped on the spot and turned his spear and slammed it into the shadow dog's nose.
+Darna jumped in place, twirling her spear and smashing it into the nose of a shadow dog.
 
 *ダーナがその場で飛び跳ね、槍を回し影犬の鼻面に叩き入れた。*
 
-Strength returns to Lombardo's hand holding the tower shield.
+Lombard felt strength return to the hand holding the tower shield.
 
 *ロンバートのタワーシールドを持つ手にも力が戻る。*
 
@@ -325,53 +324,53 @@ Strength returns to Lombardo's hand holding the tower shield.
 
 &nbsp;
 
-Can you stand? I can walk! That's great Sue ...... everyone! Everyone's okay!"
+"Can you stand? Can you walk? This is incredible, Su... everyone! Everyone is okay?!"
 
 *「立てる？歩ける！凄いわスー……みんな！みんなは大丈夫！？」*
 
 &nbsp;
 
-At Colin's call, the twins Clark and Ashton, who were being treated at the site of the training center, Charles, Thomas, Leila, and Virgil came to voice their safety.
+At Colin's call, the twins Clark and Ashton, who were receiving treatment at the training ground, along with Charles, Thomas, Layla, and Virgil, all shouted out to confirm their safety.
 
 *コリンの呼びかけに、修練場の跡で治療を受けていたクラークとアシュトンの双子を始め、チャールズが、トマスが、レイラが、ヴァージルが声を上げて無事を伝えて来た。*
 
 &nbsp;
 
-Outside the training hall, too, Carl stood up, checking where the wounds on his body had been, and Mary wiped the blood from her forehead, which had stopped bleeding, and was surprised to see that the wounds had disappeared.
+Outside the training ground, Karl stood up while checking the places where he had been injured, and Mary wiped the blood from her forehead, surprised to see the wounds had vanished.
 
 *修練場の外でも、カールが身体の傷があった場所を確かめながら立ち上がり、メアリーが出血の止まった額の血を拭い、傷が消えている事に驚いていた。*
 
 &nbsp;
 
-Furthermore, even on the other side of the stone wall...
+Even on the other side of the stone wall...
 
 *更に石壁の向こう側でも…。*
 
 &nbsp;
 
-What happened? ...Huh? Huh? Fiorina? ...Whoa! Will is here too! Hey! Belknap! Can you move?
+"What happened? ...Huh? What?! Fiorina?! ...Whoa!? Will is here too?! Hey! Bernap! Can you move?!"
 
 *「どうなったんだ？…え？なっ？！フィオリーナ？！…うぉ！？ウィルもいる！？おい！ベルナップ！動けるか？」*
 
-No problem! No problem. Is Alan the one who can move?"
+"Yeah! No problem. Can you move, Alan?"
 
 *「ん！問題無い。アランこそ動けるのか？」*
 
-No problem at all! Hey! Stefan! You can't move either, can you?
+"Absolutely no problem! Hey! Stephan! You can move too, right?!"
 
 *「全く問題なし！おい！ステファン！お前も動けんだろ？！」*
 
-I'm totally fine!
+"Totally fine!!"
 
 *「全然平気！！」*
 
-I'm going to go! I don't know what's going on, but it looks like the enemy is standing around! I don't know what's going on, but it looks like the enemy is standing around! You take Fiorina! We're getting the hell out of here!
+"Alright! I don't know what's going on, but it looks like the enemies are standing still! Bernap and I will drag Will away, so Stephan! You take Fiorina! We need to get out of here fast!"
 
 *「おし！何だかワカンネーけど、敵が立ちんぼになってるっぽい！オレとベルナップでウィル引っ張って行くから、ステファン！お前はフィオリーナを連れてけ！とっととココを離脱するぞ！」*
 
 &nbsp;
 
-Belknap and Stefan nodded and dragged them out of the place with them, still not opening their eyes.
+Bernap and Stephan nodded and began to drag the two who still had their eyes closed out of the area.
 
 *ベルナップとステファンが頷き、未だに目を開けない二人を抱えその場から引き摺り出す。*
 
@@ -379,247 +378,247 @@ Belknap and Stefan nodded and dragged them out of the place with them, still not
 
 &nbsp;
 
-This is just a side note.
+"This is just a bonus."
 
 *「これは、ついで」*
 
 &nbsp;
 
-Suzy then pulled out the two swords hanging from her waist and raised her hands above her head.
+With that, Suzy drew the two swords hanging at her waist and raised both hands above her head.
 
 *そう言うとスージィは、腰に吊るした二本の剣を抜き、そのまま両手を頭上へと上げた。*
 
-Holding the sword as if it were hanging above his head, he moves his body with his eyes downcast, swaying his body in a steady rhythm.
+Holding the swords down like a curtain, she closed her eyes and began to sway her body rhythmically.
 
 *剣を頭上で垂らす様に持ち、目を伏せ身体をユラリユラリと、一定のリズムで揺らす様に動かす。*
 
-And what leaks from his mouth....
+And what escaped her lips was...
 
 *そしてその口元から漏れる物は…。*
 
 &nbsp;
 
-'Song? ...... Suzy...sister ......? .........!!!!"
+"A song? ...Suzy... big sister...? ...!!"
 
 *「歌？……スージィ…お姉様……？………！！」*
 
 &nbsp;
 
-As Helena's eyes widened in surprise at the sight of Suzy, the returning shadow dogs jumped on her.
+Helena was astonished by Suzy's appearance, her eyes wide open, when the returning shadow dogs lunged at Suzy.
 
 *ヘレナがそのスージィの姿に驚き、目を見開いていると、戻って来た影犬達がスージィに飛び掛って来た。*
 
-When Helena noticed it, its fangs were already on the verge of reaching Suzy.
+By the time Helena noticed, the fangs were almost upon Suzy.
 
 *ヘレナが気付いた時は既に、その牙がスージィへ届く寸前だった。*
 
-Fangs bite into Suzy's body!
+The fangs of the shadow dog sank into Suzy's body!
 
 *スージィの身体に牙が食込む！*
 
-The moment it looked like that, Kageinu's fangs cut the sky emptily, and his body also passed by without touching Suzy.
+At that moment, the shadow dog's fangs cut through the air uselessly, and its body passed by Suzy without touching her.
 
 *そう見えた瞬間、影犬の牙は虚しく空を切り、その身体もスージィに触れる事無く通り過ぎた。*
 
-All five shadow dogs land without being touched by Suzy.
+All five shadow dogs landed without being able to touch Suzy.
 
 *5匹の影犬全てが、スージィに触れられず着地する。*
 
 &nbsp;
 
-Neither the shadow dogs nor Helena, who was watching in front of them, understood what had happened.
+Neither the shadow dogs nor Helena, who was watching, understood what had just happened.
 
 *何が起きたのか影犬達にも、目の前で見ているヘレナにも理解が出来ていない。*
 
-Yet again the shadow dogs pounce.
+Still, the shadow dogs lunged again.
 
 *それでも再び影犬達は飛び掛る。*
 
-However, Suzy still can't even snatch it.
+But again, they couldn't even graze Suzy.
 
 *しかしやはりスージィには掠る事すら出来ない。*
 
 &nbsp;
 
-Susie does not seem to be bothered by such a situation, and she sings a song and dances around the room.
+Suzy, seemingly unconcerned by the situation, swayed gently, humming a song, and began to dance.
 
 *スージィはそんな様子を気にする風も無く、ユラリユラリと歌を口ずさみ、身体を躍らせる。*
 
-Soon, the children began to hear sounds different from singing.
+Soon, the children began to hear sounds that were different from the song.
 
 *やがて、子供達の耳に歌とは違う音が聞こえ始めた。*
 
 &nbsp;
 
-What is that? Is that a guitar?"
+"Huh? Is that a guitar?"
 
 *「あれ？これギター？」*
 
-The drums are beating."
+"Is that a drum sound?"
 
 *「ドラムが鳴ってる」*
 
-"Organ sounds?"
+"An organ?"
 
 *「オルガンの音？」*
 
-This is Lute, right?"
+"That's a lute, right?"
 
 *「これリュートだよね？」*
 
-I can hear the harp, too."
+"I can hear a harp too."
 
 *「ハープも聞こえるよ」*
 
 &nbsp;
 
-The ...... orchestra of the genie?"
+"A spirit... orchestra?"
 
 *「精霊の……楽団？」*
 
 &nbsp;
 
-Helena couldn't help but speak up and look at Suzy again.
+Helena blurted out, turning her gaze back to Suzy.
 
 *ヘレナが思わず口にして、改めてスージィに目を向けた。*
 
 &nbsp;
 
-Her fiery red hair danced in the light of the setting sun on the horizon, shimmering in the light of the falling sun.
+Illuminated by the setting sun sinking on the horizon, her fiery red hair shimmered as it danced.
 
 *地平に沈む夕日に照らされ、落陽の光を受け、燃える様な赤い髪が煌めきながらに舞っていた。*
 
-A silvery white sword cuts through the golden light.
+The silver sword cut through the golden light.
 
 *白銀の剣が、黄金の光を切り分けて行く。*
 
-In the light, Suzy swayed and danced gently and elongated.
+In that light, Suzy swayed gracefully, dancing.
 
 *その光の中でスージィが、伸びやかに緩やかに揺れ舞い踊る。*
 
-The sunset light on his face was so gentle and serene that Helena, seeing him up close, even thought he was a god.
+Her expression, lit by the sunset, was incredibly gentle and serene, making Helena feel as if she were gazing upon a deity.
 
 *夕陽に照らされるその表情は、とても優しく穏やかで、間近で見るヘレナには、神々しくさえ思わせていた。*
 
-Helena's heart fills with a hot substance.
+Helena's heart was filled with warmth.
 
 *ヘレナの胸の奥が、熱い物で満たされて行く。*
 
 &nbsp;
 
-At the same time, he could feel his own body overflowing with power.
+At the same time, she felt strength surging within her body.
 
 *それと同時に、自らの身体に力が溢れて来るのが解る。*
 
-Helena's senses were sharpened as never before.
+Helena's senses were sharper than ever before.
 
 *ヘレナの感覚が、未だかつて無い程研ぎ澄まされていた。*
 
-At that moment, I saw Kageinu kick the ground, ready to strike for the second time.
+At that moment, she saw a shadow dog preparing to charge again, kicking off the ground.
 
 *その時、何度目かの突撃を掛けようと、影犬が地を蹴ったのが見えた。*
 
-Helena held two daggers in her opposite hands and instantly slid her body in a straight line between the shadow dog and Suzy.
+Helena held two daggers in reverse grip and swiftly slid her body into the line between the shadow dog and Suzy.
 
 *ヘレナは二本のダガーを逆手に持ち、瞬時に影犬とスージィとの直線上に、その身体を滑り込ませた。*
 
 &nbsp;
 
-"You dare to interfere with my sister...! You insolent thing!
+"I won't let you interfere with my big sister...!! You insolent creature!!!"
 
 *「お姉様の邪魔など…！！このっ不埒もの！！！」*
 
 &nbsp;
 
-Helena slammed the shadow dog that opened its mouth with the dagger she held to the right in an attempt to break its fangs.
+Helena shouted as she aimed to smash the shadow dog's fangs with the dagger gripped in her right hand.
 
 *ヘレナが口を開いた影犬に、その牙を叩き折ってやろうと右に握ったダガーを叩き付けた。*
 
 &nbsp;
 
-Helena's dagger went straight for the shadow dog's lower fangs, cutting off the lower jaw as well.
+Helena's dagger sliced straight through the shadow dog's lower fangs, severing its lower jaw in one motion.
 
 *ヘレナのダガーは真っ直ぐに、影犬の下の牙を削り取って行き、そのまま下顎をも斬り飛ばした。*
 
-Helena bent low and got into the pocket of the next shadow dog that jumped in, where she stretched out and swung her left dagger inward.
+She then crouched low and dove into the next shadow dog's embrace, extending her body upward and swinging her left dagger inward.
 
 *ヘレナはそのまま身体を低く屈め、次に飛び込んで来た影犬の懐に入り込み、そこから身体を伸び上がらせ、左のダガーを内側へ振り切った。*
 
-The dagger sliced through the shadow dog's abdomen, spilling its guts.
+The dagger tore through the shadow dog's abdomen, spilling its innards.
 
 *ダガーは影犬の腹部を切り裂き、臓物を零れさせた。*
 
 &nbsp;
 
-What? Huh? Huh?
+"What?! Huh? Huh?!"
 
 *「なっ！？え？えぇっ？！」*
 
 &nbsp;
 
-Helena could not hide her surprise at the spur-of-the-moment move she took and the power of the attack.
+Helena couldn't hide her surprise at her own sudden movements and the power of her attack.
 
 *ヘレナは自分が取った咄嗟の動きと、その攻撃威力に驚きが隠せない。*
 
-Then another sharp flash of sword flashed.
+At that moment, a sharp flash of a sword gleamed.
 
 *そこへもう一つ、鋭く剣閃が閃いた。*
 
-Irving's longsword.
+It was Irvin's longsword.
 
 *アーヴィンのロングソードだ。*
 
 &nbsp;
 
-Irving picked up his longsword as soon as he was sure his own wounds had healed, and he leaped toward the shadow dogs swarming around Suzy.
+Irvin, confirming that his wounds had healed, picked up the longsword and charged at the shadow dogs surrounding Suzy.
 
 *アーヴィンは、自らの傷が回復したのを確認したのと同時にロングソードを拾い上げ、スージィに群がる影犬に向け飛び出していたのだ。*
 
-The slash from below easily sliced through Kageinu's body, killing him.
+With a swift upward slash, he easily sliced through the shadow dog's abdomen, killing it instantly.
 
 *下から掬い上げる様に斬り上げた一閃は、影犬の腹からその身体を容易く切り裂き絶命させた。*
 
-The longsword that went up to the upper level is swung down as it is and slammed into the face of the second head.
+He then swung the longsword down, smashing it into the face of a second shadow dog.
 
 *上段に上がったロングソードをそのまま振り降ろし、二頭目の顔面に叩き込む。*
 
-The shadow dog's cranium was ripped in two and slaughtered as it was.
+The shadow dog's skull split in two, and it was slain.
 
 *影犬の頭蓋は二つに裂け、そのまま屠られた。*
 
 &nbsp;
 
-What the heck is this? Why is this so easy?"
+"What the hell is this? Why is it so easy?"
 
 *「なんだこりゃ？何でこんな簡単に？」*
 
 &nbsp;
 
-Irving, too, is astonished at the power he wields.
+Irvin also exclaimed in astonishment at the power he wielded.
 
 *アーヴィンも、自分の振るった力に驚愕の声を上げる。*
 
-Suddenly, a thud echoes from behind!　sounded from behind me.
+Suddenly, a loud "bang!" echoed from behind.
 
 *突如後ろから　ゴッ！　という音が響く。*
 
-With that, there was a big hole in the face of the last one.
+Along with it, a large hole appeared in the face of the last shadow dog.
 
 *と共に、最後の一頭の顔に大穴があいた。*
 
-Karl fired a "Fire Bullet" from behind.
+It was Karl's "Fire Bullet" launched from behind.
 
 *後方からカールが放った≪ファイア・ブレット≫だ。*
 
 &nbsp;
 
-Hey! What? This power?
+"W-what the?! What power is this?!!"
 
 *「な！なんだぁ？！この威力？！！」*
 
 &nbsp;
 
-Carl voiced his surprise as well.
+Karl also raised his voice in surprise.
 
 *カールも同様に驚き声を上げていた。*
 
@@ -627,19 +626,19 @@ Carl voiced his surprise as well.
 
 &nbsp;
 
-Mary easily avoided the Brutal Bat that glided by and shot an arrow at it from behind.
+Mary dodged a brutal bat that swooped down and shot an arrow from behind.
 
 *メアリーが滑空して来たブルータルバットをスルリと躱し、その後ろから矢を射かけた。*
 
-The arrow, which had barely pierced the skin earlier, pierced deeply with piercing force.
+The arrows that had barely pierced skin before now struck deeply with penetrating force.
 
 *先程までは皮膚に刺さるのがやっとだった矢が、貫く勢いで深々と突き刺さる。*
 
-The arrowhead went straight for the vital spot and shot the brute bat down.
+The arrowhead pierced the vital point, shooting down the brutal bat.
 
 *鏃はそのまま急所を射抜き、ブルータルバットを射落とした。*
 
-Mary was amazed at the accuracy of her own hit and the power of her bow.
+Mary was astonished by her own accuracy and the power of her bow.
 
 *メアリーはその自らの命中精度の高さと、弓の威力に目を見張っていた。*
 
@@ -647,33 +646,33 @@ Mary was amazed at the accuracy of her own hit and the power of her bow.
 
 &nbsp;
 
-Kelum eigo spero eude." Mia Mathisun, daughter of Mathisun, who is connected to Amukam, seeks and appeals to Nyumpeh, the keeper of the waters. Let the power of the stream of water destroy our enemies! ≪Water Cutter."
+"Kelm Eigo Spero Eude. I, Mia Mattison, daughter of the Matisson connected to Amukam, call upon the water's administrators, the Nymphs. With the power of the flowing water, grant us the strength to vanquish our enemies! ≪Water Cutter≫"
 
 *「ケルム・エイゴ・スペロ・エウデ。アムカムに連なるマティスンの娘ミア・マティスンが求め、水の管理者たるニュンペーに訴える。その水の流れの御力を以って我らの敵を滅し賜え！≪ウォーター・カッター≫」*
 
 &nbsp;
 
-Mia chanted a congratulatory prayer and thrust the index fingers of both hands toward the Brutal Bat in the sky above.
+Mia chanted the incantation, pointing both index fingers at the brutal bat above.
 
 *ミアが祝詞を唱え、両手の人差し指を上空のブルータルバットへ向け突き出した。*
 
-A very fine stream of water flows from the tips of both fingers in a straight line up into the sky.
+A minuscule stream of water shot straight up from her fingertips.
 
 *両の指先から極微の細さの水流が、上空へ向け一直線に伸びて行く。*
 
-Mia moved her left and right fingertips in an up-and-down motion, and the Brutal Bat, which was on the line of the water flow, was cut off vertically and fell to the ground like a dead leaf.
+As Mia moved her fingers apart, the stream of water sliced through the brutal bat hovering above, causing it to fall to the ground like a withered leaf.
 
 *ミアは左右の指先を、上下に開く様にスッと動かすと、水流の線上に居たブルータルバットは縦に断ち切られ、そのまま枯葉が落ちる様に地上へ落ちた。*
 
 &nbsp;
 
-Wow, what is this? What is this? This far away? Something that big? Wow!"
+"Wow! What is this? I can reach that far? And take down something that big? Wow!"
 
 *「うわうわ！なにこれ？こんな遠くまで？あんなおっきい物まで？うわ」*
 
 &nbsp;
 
-Mia rolled her eyes, and Willie, watching next to her, was speechless.
+Mia's eyes widened in amazement, and Willy, who was watching beside her, was left speechless.
 
 *ミアが目を丸くし、隣で見ていたウィリーも言葉を失っていた。*
 
@@ -681,25 +680,25 @@ Mia rolled her eyes, and Willie, watching next to her, was speechless.
 
 &nbsp;
 
-Dana spins her spear and scoops it up from under the shadow dog.
+Darna twirled her spear and scooped up a shadow dog from below.
 
 *ダーナが槍を回し、影犬の下から掬い上げる。*
 
-Dana thrust a series of spears at the shadow dog, which had lost its footing in mid-air.
+As the shadow dog lost its footing in mid-air, Darna repeatedly thrust her spear into it.
 
 *宙に浮き足場を無くした影犬に、ダーナは連続で槍を突き入れた。*
 
-He pulls out the spear that hit the vital stopping point and dances it directly to the next shadow dog.
+After pulling out the spear that had struck the vital point, she danced it toward the next shadow dog.
 
 *急所への止めを突いた槍を引き抜くと、そのまま次の影犬へと槍を舞わす。*
 
 &nbsp;
 
-Lombardo held the tower shield he had been handling with both hands with one left hand and re-gripped the battle-axe he carried at his waist in his right hand.
+Lombard held his tower shield with one hand, having previously used both hands, and readjusted his grip on the battle axe in his other hand.
 
 *ロンバートは、両手で扱っていたタワーシールドを左手一本で持ち、右手には腰に携えていたバトルアックスを握り直した。*
 
-With his left shield, he flips several shadow dogs away, and then continues to smash the cranium of the shadow dog that looms before him with his battle axe.
+He knocked several shadow dogs away with his shield and then smashed the battle axe into the skull of the shadow dog approaching him.
 
 *左の盾で数頭の影犬を弾き飛ばし、そのまま、目の前に迫る影犬の頭蓋をバトルアックスで叩き割る。*
 
@@ -709,67 +708,67 @@ With his left shield, he flips several shadow dogs away, and then continues to s
 
 &nbsp;
 
-What the hell? What is it with these guys? Why are they doing this to us all of a sudden?
+"What the hell?! What are these guys?! Why are they suddenly like this?!!"
 
 *「なんだ！？何だコイツら！なんでイキナリこんな？！！」*
 
-It's him! He did something!"
+"That one! That one did something!!"
 
 *「アイツよ！アイツが何かやったのよ！！」*
 
-Kuso! Even though Master Orbet is watching! Ah? Guys! Who told you to move?
+"Damn it! Lord Olbet is watching! Ah?! You guys! Who said you could move?!!!"
 
 *「クッソ！オルベット様が見てるのに！！あぁ？！お前達！誰が動いて良いと言った？！！！」*
 
 &nbsp;
 
-Dag extended his black spear as he spotted Alan and the others dragging Will and Fiorina, who were unable to move.
+Doug extended his black spear upon seeing Alan and the others dragging the immobile Will and Fiorina.
 
 *動けぬウィルとフィオリーナを抱え引き摺るアラン達を見つけ、ダグが黒槍を伸ばした。*
 
 &nbsp;
 
-Beatrice, who had noticed the movement of the five men and was watching them, noticed that Doug had extended his black spear.
+Beatrice, who had been observing the five's movements, noticed Doug extending his black spear.
 
 *5人の動きに気が付き、様子を窺っていたベアトリスが、ダグが黒槍を伸ばした事に気が付いた。*
 
 &nbsp;
 
-Stonewall! ≪Stonewall, protect those kids!"
+"Not good! ≪Stone Wall≫ Protect those kids!!"
 
 *「いけない！≪ストーン・ウォール≫あの子たちを護って！！」*
 
 &nbsp;
 
-Beatrice's stone wall slithered up to protect the five of them.
+Beatrice's stone wall rose up to protect the five.
 
 *ベアトリスの石壁が、5人を護る様にそそり立った。*
 
-It was so thick and had a quartz-like luster and hardness that the stone walls up to this point had seemed like a meager impulse.
+It was so thick and radiant, like quartz, that the previous stone walls seemed like flimsy partitions.
 
 *それは、今までの石壁が貧相な衝立にしか感じられぬ程の厚みと、石英の様な輝きと硬度を持っていた。*
 
-The black spear was easily bounced off its wall and dissipated.
+The black spear was easily deflected by the wall and scattered into mist.
 
 *黒槍は、その壁に容易く弾かれ霧散した。*
 
-Beatrice also froze, her eyes widening at the strength of the stone wall.
+Beatrice's eyes widened in shock at the strength of the stone wall, "No way..."
 
 *ベアトリスもその石壁の強度に　うっそぉ　と目を見開き固まった。*
 
 &nbsp;
 
-Wow! Yikes! Hurry up, Belknap! Stefan!
+"Whoa! This is bad! Hurry, Bernap! Stephan!"
 
 *「うわわわ！やっべ！急げベルナップ！ステファン！」*
 
 &nbsp;
 
-Surprised by the stone wall that suddenly appeared directly behind them, Alain called out to Belknap and Stefan and hurried them along.
+Alan shouted to Bernap and Stephan, startled by the suddenly appearing stone wall, urging them to hurry.
 
 *突然真後ろに出現した石壁に驚き、アランがベルナップとステファンに声を掛け、二人を急かした。*
 
-Oh!　and the two nodded to each other, and the five of them rolled into the gap in the front line that Dana had opened.
+"Okay!" the two nodded, and they rolled into the gap in the battle line that Darna had opened.
 
 *おう！　と二人が頷き合い、ダーナが開いた戦線の隙間に5人で転がり込んで行く。*
 
@@ -777,27 +776,27 @@ Oh!　and the two nodded to each other, and the five of them rolled into the gap
 
 &nbsp;
 
-And one more thing.
+"One more bonus, okay?"
 
 *「もひとつ、おまけ、ね」*
 
 &nbsp;
 
-When Suzy confirmed that the five had come to this side of the defense, a ripple of light spread around her as she said so.
+Once Suzy confirmed that the five had come to the defensive side, she said this, and a ripple of light spread from her.
 
 *5人が防衛戦のこちら側へ来た事を確認したスージィがそう言うと、彼女を中心に、光の波紋が広がった。*
 
 &nbsp;
 
-≪Vitality Release.
+≪Vitality Release≫
 
 *≪ヴァイタリティ・リリース≫*
 
-Skills of the Great Wiseman, a recovery job.
+A skill of the healing class Great Wiseman.
 
 *回復職グレートワイズマンのスキル。*
 
-All HP and MP of all allies around you are restored.
+It fully restores the HP and MP of allies around her.
 
 *自分の周りの味方のHP・MPを全回復させる。*
 
@@ -807,57 +806,57 @@ All HP and MP of all allies around you are restored.
 
 &nbsp;
 
-Huh? Huh? The magic is back .........? No! More than that?
+"Huh? Huh? My magic power... is coming back... no, even more than that?!"
 
 *「え？え？魔力が……戻って…る？いえ！それ以上？？」*
 
 &nbsp;
 
-Colin expressed his surprise that not only was the magic that had been nearly used up in the healing process fully restored, but that the amount of magic had increased significantly.
+Colin exclaimed in surprise, realizing not only that his magic power, almost depleted from healing, had fully recovered, but also that his total magic capacity had significantly increased.
 
 *コリンが、治癒でほぼ使い切りかけていた魔力が全快しているのみならず、その魔力量が、大幅に増えている事に驚きの声を上げた。*
 
-It's not just Colin, Beatrice, Willie, Mia and Carl, but it's not just the magic profession.
+It wasn’t just Colin; Beatrice, Willy, Mia, and Karl were also experiencing this. But it wasn’t only the magic users.
 
 *それはコリンだけでは無い、ベアトリスも、ウィリーも、ミアもカールも、だがそれは魔法職だけでは無い。*
 
-The vanguard who used magic for equipment..., William too.
+The frontline fighters who had been using magic power on their equipment… William included.
 
 *装備に魔力を使っていた前衛…、ウィリアムもだ。*
 
 &nbsp;
 
-I'd like to know "Where is this ......? Why? ...me?"
+"Uh... where is this? Why...? Am I...?"
 
 *「む……此処は？なぜ？…俺は？」*
 
 &nbsp;
 
-William regains consciousness and is surprised to find that there is nothing wrong with his body.
+William regained consciousness and was surprised to find no abnormalities in his body.
 
 *ウィリアムが意識を取り戻し、身体に異常が無い事に驚く。*
 
-On the contrary, he felt a sense of fullness of energy and strength, as if after a well-deserved rest, or even more so, and could not hide his bewilderment.
+Moreover, he felt a sense of vitality and energy as if he had taken sufficient rest, even more than that, leaving him bewildered.
 
 *それどころか、十分な休養を取った後の様な、いや、それ以上の気力と体力の充実感を感じ、戸惑いを隠せないでいた。*
 
 &nbsp;
 
-Will! Will! You noticed? Thank God! Will!
+"Will! Will!! You’re awake?! Thank goodness! Will!"
 
 *「ウィル！ウィル！！気が付いたの？！良かった！ウィル！」*
 
-"Colin! Run? Can you stand? Where's your wound?
+"Colin?! Are you running? Can you stand?! What about your wounds?!!"
 
 *「コリン！？走って？立てるのか？！傷は？！！」*
 
 &nbsp;
 
-Colin noticed William getting up and ran over to him.
+Colin rushed over to William, who had stood up.
 
 *立ち上がったウィリアムに気付き、コリンが駆け寄って来た。*
 
-William shouted in surprise at the sight of Colin running, but when he jumped in, William happily accepted him and hugged him.
+William was surprised to see Colin running, but he happily embraced Colin as he jumped into him.
 
 *コリンの走っている姿にウィリアムは驚き声を上げるが、飛び込んで来たコリンをウィリアムは嬉しそうに受け止め抱きしめた。*
 
@@ -867,83 +866,83 @@ William shouted in surprise at the sight of Colin running, but when he jumped in
 
 &nbsp;
 
-What's going on? How can he even get up?
+"What’s going on? Why can he stand up too?!"
 
 *「どうなってんの？なんで彼まで起ち上がれるのよ？！」*
 
-Damn ......." But alas! The sun has already hidden itself below the horizon. Time's up! Playtime's over, ！！！！."
+"Damn it...! But unfortunately! The sun has already hidden below the horizon. Time's up!! The playtime is over!!!!"
 
 *「ちくしょう……！でも残念！もう陽は地平の下に姿を隠した。時間切れだ！！遊びの時間は終りだよ！！！！」*
 
 &nbsp;
 
-Doug swung his right hand out vigorously, and the shadow spread at once.
+Doug swung his right hand vigorously, and the shadows spread out in an instant.
 
 *ダグが右手を勢いよく振り広げると、その影が一気に広がった。*
 
-Five or six humanoid figures with crocodile-like mouths crawled out of them.
+From within, five or six humanoid figures with crocodile-like mouths crawled out.
 
 *その中から5体、6体と、鰐の様な口を持つ人モドキの姿が這い出て来た。*
 
-Furthermore, there were also figures with pure white skin without blood.
+Furthermore, there were also pale figures with no blood in them.
 
 *更には、血の気を持たぬ真っ白な肌の人影も。*
 
-Their red eyes glowing, they crawl out of the shadows as if they are overflowing.
+With red eyes shining, they crawled out of the shadows in a rush.
 
 *赤い目を光らせ、我先にと溢れる様に影から這い出てくる。*
 
-Brutal bats came from the sky, and shadow docks came in like reinforcements from beyond the windbreak.
+And from the sky, brutal bats and shadow dogs surged in as reinforcements.
 
 *そして空からはブルータルバットが、防風林の向こうからシャドードックが、増援の様に押し寄せて来た。*
 
 &nbsp;
 
-"Oh, this many? No, there's no way out! There's no way out!
+"W-what's with this number?! No way! Our escape route!!"
 
 *「こ、こんな数？！だめ！退路が！！」*
 
 &nbsp;
 
-Colin raised a voice that sounded like a scream.
+Colin let out a scream-like voice.
 
 *コリンが悲鳴に似た声を上げた。*
 
 &nbsp;
 
-Sue! There's a ward here! We can't get out of here!"
+"Su! There's a barrier set up here! We can't get out from here!"
 
 *「スー！此処に結界が張られているの！アタシ達ここから出られないのよ！」*
 
 &nbsp;
 
-Beatrice briefly informed Susie of the situation.
+Beatrice quickly conveyed the situation to Suzy.
 
 *ベアトリスが手短に状況をスージィに伝えた。*
 
 &nbsp;
 
-W... Warding?
+"...A barrier?"
 
 *「・・・結界？」*
 
 &nbsp;
 
-Suzy looked up at the sky and swung her right-hand sword upward as if it were slicing through the sky.
+Suzy looked up suspiciously and swung her right sword upward as if to slice through the sky.
 
 *スージィが胡散臭げに上空を見上げ、そのまま右手の剣を天空を切り裂く様に上方へ振り抜いた。*
 
 &nbsp;
 
-Immediately afterwards, a crack of light appears in the space above.
+Immediately, a crack of light appeared in the space above.
 
 *直後　ピシリッ　と上空の空間に光の亀裂が入る。*
 
-The wards scattered and disappeared with a sound like shattering glass.
+With a sound like shattering glass, the barrier shattered and disappeared.
 
 *そのままガラスが砕ける様な音を響かせ、結界が飛び散り消滅した。*
 
-Everyone present, friend and foe alike, looked up at the sky and froze, their eyes wide open.
+Everyone present, both enemies and allies, looked up at the sky, their eyes wide in shock.
 
 *その場に居た全ての者が、敵も味方も空を見上げ目を見開き固まってしまった。*
 
@@ -951,11 +950,11 @@ Everyone present, friend and foe alike, looked up at the sky and froze, their ey
 
 &nbsp;
 
-What the hell is that? That guy! What did he just do?
+"W-what the hell?! What did she just do?!!!"
 
 *「な、ななななんなんだ！？アイツ！！！今何したんだよアイツは？！！！」*
 
-I don't know! I don't know! What the hell is going on?
+"I don't know! I have no idea!! What the hell is going on?!!!"
 
 *「知らない！ワカンナイわよ！！ナニよ一体ぃ？！！！」*
 
@@ -963,7 +962,7 @@ I don't know! I don't know! What the hell is going on?
 
 &nbsp;
 
-Immediately, Suzy leaps on the spot, kicking the ground.
+Immediately, Suzy kicked off the ground and jumped.
 
 *直ぐ様、その場でスージィが地を蹴り跳躍する。*
 
@@ -971,27 +970,27 @@ In the direction of the destroyed school building.
 
 *破壊された校舎の方向へ。*
 
-High like an arc.
+Arcing high into the air.
 
 *弧を描く様に高く。*
 
 &nbsp;
 
-"Susie jumped?
+"Did Suzy just jump?!!"
 
 *「スージィが跳んだ？！！」*
 
-"! God damn it! Why can't I see? Why can't I see it?
+"What the hell?! Why can't I see her?!!"
 
 *「！ちくしょう！何でだ？！！何で見え無ぇ？！！！」*
 
 &nbsp;
 
-Irving's surprise was evident.
+Irvin's voice of surprise rang out.
 
 *アーヴィンの驚きの声が上がった。*
 
-I heard Alan's disturbing cries afterwards, but bobbing bobbing bobbing!　and the sound of being taco-knocked over, so Suzy decided to go through with it.
+He heard Alan's ominous shout afterward, but decided to ignore it when he heard the sound of a beating.
 
 *その後のアランの不穏な叫びが聞こえたが、ボコッボコボコ！　とタコ殴られる音が聞こえたのでスージィはスルーする事にした。*
 
@@ -999,147 +998,147 @@ I heard Alan's disturbing cries afterwards, but bobbing bobbing bobbing!　and t
 
 &nbsp;
 
-Suzy turns her body vertically as she leaps and zaps the ground with her head down in the sky.
+Suzy rotated her body vertically while jumping, checking the ground below as she faced downward.
 
 *スージィは跳びながら縦方向に身体を回し、上空で頭を下に向けた状態で地上をザッと確認する。*
 
 &nbsp;
 
-(Vampire ...... two elder vampires. Shadow ghouls from their shadows? Seven from each of those shadows? And the white ones are Lesser Vampires? I'm getting a lot of small fry.... I want to use my range, but... it would be too dangerous if they reach everyone. I'll just have to destroy them one by one. ...... The dogs and bats are gathering all over the place, but they can be treated as small fry now, so I'll leave that one to you guys...)
+(Vampires... two Elder Vampires. From their shadows, Shadow Ghouls? Seven from each shadow, I suppose? And the white one is a Lesser Vampire? The weaker ones are swarming in. I want to use an area attack, but... if it reaches everyone, it would be too dangerous. I guess I’ll have to pop them off one by one... The dogs and bats are also gathering, but with those kids now, I can treat them as weaklings, so I'll leave that to everyone♪)
 
 *（ヴァンパイア……エルダーヴァンパイア２体。その影からシャドーグール？其々の影から7体ずつかな？んで白いのがレッサーヴァンパイア？雑魚っポイのがワラワラ湧いて来てるなー。範囲使いたいけど…皆に届いたら危な過ぎだものねー。しょうがないから1体ずつプチプチ潰そか……。犬と蝙蝠もワラワラ集まって来てるけど、今のあの子達なら雑魚扱い出来るから、あれは皆に任せよ♪）*
 
 &nbsp;
 
-After a moment's thought, he drew his two swords again, pointed the tip of his sword at the ground, and fired his sword ki like a machine gun at his target, the "white target.
+In an instant, she thought that much and drew her two swords again, aiming the sword tips toward the ground, and began to unleash sword energy at the "white target."
 
 *一瞬でそれだけ思考すると再び二刀を抜き、剣先を地上へ向け、目標の『白い的』に剣氣を機銃の様に連射した。*
 
-Lesser vampires pop off one after another.
+The Lesser Vampires burst one after another.
 
 *レッサーヴァンパイアが次々と弾け飛んで行く。*
 
-The two vampires have no time to comprehend what is happening.
+The two Vampires had no time to comprehend what was happening.
 
 *2体のヴァンパイアには、何が起きているのか理解する間も無い。*
 
-In an instant, I realized that all the servants I was supposed to have kept had disappeared.
+Before they knew it, all the minions they had raised had vanished.
 
 *気が付けば一瞬で、飼っていた筈の全ての下僕が消滅していた。*
 
 &nbsp;
 
-"Hey, what? What? What the fuck? What is it? What the hell?
+"W-what? What the hell? What is this?!!"
 
 *「な、な？なに？なんだ？なんだよ！これ？！！」*
 
 &nbsp;
 
-Doug shouted, but Suzy landed in front of the school building and swung her right-hand sword with great force as soon as her feet hit the ground.
+Doug shouted in confusion, searching for the minions that should have been there, looking around frantically.
 
 *ダグが叫ぶが、校舎の手前に着地したスージィは、地上に足が付くと同時に右手の剣を勢い良く振り切った。*
 
-The shockwave coming from its sword pressure cleaves the shadow ghouls.
+Suzy tilted her head, looking down at Doug with a displeased expression.
 
 *その剣圧から来る衝撃波がシャドーグールを薙ぎ払う。*
 
-Glogooooooo .........!　and emitted a decisive roar, and all the shadow ghouls fizzled out and disappeared.
+"Grooooaaar...!!" With a final deathly groan, all the shadow ghouls dissipated into mist and vanished.
 
 *グロゴォォォォ………！！　と断末魔の唸りを発し、全てのシャドーグールが霧散し消滅した。*
 
 &nbsp;
 
-What the hell? What the hell is this? What the hell is this? What the hell are you?
+"What the hell?! What the hell is going on?! What happened here?! Who the hell are you?!"
 
 *「何だよ！？一体何なんだよ？！！何があったんだよコレ？！！何なんだよお前は？！！」*
 
 &nbsp;
 
-Doug shouts in confusion and looks around for his family members who should have been there.
+Doug, clearly confused, shouted loudly as he searched for his subordinates who should have been there, repeatedly looking around.
 
 *ダグが混乱した様に大声を上げ、今まで居たはずの眷属を探し、しきりに辺りを見回す。*
 
-Suzy tilted her head slightly, raising her eyebrows uncomfortably...
+Suzie tilted her head, frowning in annoyance.
 
 *スージィは小首を傾げ、不快そうに眉根を寄せながら…。*
 
 &nbsp;
 
-You've been nagging me for the last hour.
+"You've been noisy since earlier."
 
 *「お前、さっきから、うっさい」*
 
 &nbsp;
 
-Before he knew it, he was standing in front of Doug, swinging his right-hand sword horizontally and slashing away.
+Before he knew it, Suzy stood right in front of Doug and swung her right sword horizontally.
 
 *いつの間にかダグの目の前に立ち、右手の剣を水平に振り斬り払った。*
 
 &nbsp;
 
-Na! Bubbo!
+"Wha?! B-buh?!"
 
 *「な！ぶゅぼ！？」*
 
 &nbsp;
 
-The vampire, who was called Doug, exploded and scattered on the spot.
+The vampire known as Doug exploded on the spot.
 
 *ダグと呼ばれていたヴァンパイアは、その場で爆ぜ散った。*
 
-The white grains of salt scatter like spatter.
+White salt-like particles scattered.
 
 *白い塩の粒が飛び散る様に散る。*
 
-It dissolved into the atmosphere and disappeared, extinguishing its existence.
+They dissolved into the atmosphere, erasing his existence.
 
 *そのまま大気に溶け消え、その存在を消滅させた。*
 
 &nbsp;
 
-Doug? Nah! What? You! What are you doing?
+"Doug?! W-what?! What are you?! What did you do?!!!"
 
 *「ダグ？！な！なんだ？！オマエ！ナニを？！！！」*
 
 &nbsp;
 
-Eliza immediately jumps back from the scene, her hands transformed into claws and screams....
+Eliza immediately jumped back from the spot, her hands transforming into claws as she shouted...
 
 *イライザが直ぐ様その場から飛び退り、両手を鉤爪に変質させ叫ぶが…。*
 
 &nbsp;
 
-I told him to shut up.
+"That's why I said, you're noisy."
 
 *「だから、うっさいって」*
 
 &nbsp;
 
-Suzy, who was standing behind him before he knew it, slashes up his left-hand sword and swings it away.
+Before he knew it, Suzy stood behind Eliza and swung her left sword upward.
 
 *いつの間にか後ろに立っていたスージィが、左手の剣を斬り上げ振り払う。*
 
 &nbsp;
 
-Boo!
+"Boah?!"
 
 *「ぼぁっ！？」*
 
 &nbsp;
 
-As it was, the vampire called Eliza also scattered and scratched away in white.
+The vampire called Eliza also scattered into white particles and vanished.
 
 *そのままイライザと呼ばれたヴァンパイアも、白く飛び散り掻き消えた。*
 
 &nbsp;
 
-I'm not gonna give you any slack.
+"I have no intention of holding back against you."
 
 *「お前らに、加減するつもり、毛頭ない、から」*
 
 &nbsp;
 
-With that, Suzy stared coldly into the void and placed the two swords into their sheaths at her waist.
+With that cold gaze, Suzy glared into the void and sheathed her two swords at her waist.
 
 *そう言って冷ややかな視線で虚空を睨み、スージィは二振りの剣を腰の鞘へと納めた。*
 
@@ -1151,63 +1150,63 @@ With that, Suzy stared coldly into the void and placed the two swords into their
 
 &nbsp;
 
-When Susie returned to everyone, the twins, Clark and Ashton, were holding Fiorina and anxiously calling out to her several times.
+When Suzy returned to everyone, the twins Clark and Ashton were holding Fiorina, worriedly calling out to her repeatedly.
 
 *スージィが皆の所へ戻ると、クラーク、アシュトンの双子がフィオリーナを抱え、心配そうに何度フィオリーナに向けも声を掛けていた。*
 
 &nbsp;
 
-Fiorina is the only one who hasn't regained consciousness.
+"Fiorina is the only one who hasn't regained consciousness."
 
 *「フィオリーナだけ意識が戻らないの」*
 
 &nbsp;
 
-Colin told Suzy anxiously as he poured healing magic into Fiorina.
+Colin said, pouring healing magic into Fiorina while anxiously conveying this to Suzy.
 
 *コリンが癒しの魔力をフィオリーナに流し込みながら、心配そうにスージィに伝えた。*
 
 &nbsp;
 
-Susie was told that Fiorina had been deprived of her blood by a vampire.
+Suzy was informed that Fiorina had her blood drained by a vampire.
 
 *スージィは、フィオリーナがヴァンパイアに血を奪われたのだと聞かされた。*
 
-Today, Henry taught me that vampire victims are deprived of their astral body and part of their manas.
+Today, she learned from Henry that a vampire's victim loses part of their astral body and manas.
 
 *今日、ヘンリーに教わった話では、ヴァンパイアの犠牲者は、アストラル体とマナスの一部を奪われてしまう。*
 
-The trapped souls will not be released until the vampire who took part of their souls is destroyed. ...... and
+Until the vampire that took part of their soul is destroyed, the captured soul cannot be freed...
 
 *魂の一部を奪ったヴァンパイアを滅ぼすまでは、囚われた魂は解放される事は無い……と。*
 
 &nbsp;
 
-The astral body should be depleted by the recovery of MP from the mana charge.
+The depletion of the astral body should have been restored through MP recovery via mana charge.
 
 *アストラル体の消耗は、マナチャージに依るＭＰの回復で戻って居る筈だ。*
 
-In fact, William, who was deprived of pure blood only, was revived by "Vitality Release" with full HP and MP, since he was unconscious due to MP depletion.
+In fact, William, who had purely lost blood, lost consciousness due to MP depletion, and was revived with HP and MP fully restored by ≪Vitality Release≫.
 
 *現に、純粋に血液だけを奪われたウィリアムは、ＭＰ枯渇で意識を失っていた為、ＨＰとＭＰ全快の≪ヴァイタリティ・リリース≫で復活している。*
 
-Manas also destroyed the vampire who took it from him.
+The manas should also have been taken by the vampire that had been destroyed.
 
 *マナスも、奪った当のヴァンパイアは滅ぼした。*
 
-The soul should be liberated.
+The soul should be freed.
 
 *魂は解放されている筈。*
 
-Are you saying that the connection has not returned to consciousness?
+If she wasn't regaining consciousness, it meant that the connection was not restored?
 
 *意識が戻らないのは、その繋がりが戻っていないと云う事？*
 
-If so, does this mean that he can be revived by restoring the connection between his body and his soul?
+If so, it would mean that if she could restore the connection between the body and the soul, she could resurrect her.
 
 *ならば、肉体と魂の繋がりを回復すれば蘇生出来ると云う事だろうか？*
 
-Susie thought so.
+Suzy thought this.
 
 *スージィはそう思考した。*
 
@@ -1215,99 +1214,99 @@ Susie thought so.
 
 &nbsp;
 
-[Resuscitation].
+【Resurrection】
 
 *【蘇生】*
 
-Suzy does not believe that it is possible to raise the dead in this world.
+Suzy did not believe that she could resurrect the dead in this world.
 
 *スージィは、この世界で死者を甦らせる事が出来るとは信じてはいない。*
 
-In the game, there is a revival magic called "Resurrection" that can restore a person from a state of inability to fight, and I can use it myself.
+There exists a resurrection magic called ≪Resurrection≫ that brings someone back from a state of incapacitation in the game, and she can use it.
 
 *ゲーム内で、戦闘不能状態から復帰させる≪リザレクション≫と云う蘇生魔法は存在しているし、自分も使える。*
 
-However, it is hard to believe that the inability to fight in a game and death in this world can be talked about on the same level.
+However, she could hardly believe that the incapacitation in the game could be equated with death in this world.
 
 *だが、ゲーム内での戦闘不能と、この世界での死亡が同次元で語れる事とは到底思えない。*
 
-What if the inability to fight in the game is a fainting state in this world?
+What if the incapacitation in the game was akin to being unconscious in this world?
 
 *ゲーム内での戦闘不能が、この世界での気絶状態だったら？*
 
-Once they regain consciousness, they can return to battle once more.
+If one regains consciousness, they can return to battle once more.
 
 *意識を取り戻せば、もう一度戦闘に復帰できる。*
 
-Yes, just as Will was right now!
+Just like how Will was doing right now!
 
 *そう、今まさにウィルがそうだったように！*
 
-What if the magic called "Resurrection" is just that?
+What if the magic called ≪Resurrection≫ was merely that?
 
 *もし≪リザレクション≫と云う魔法がそれだけの物だったら？*
 
-If someone dies unexpectedly, there is nothing I can do to bring them back to life!
+If someone were to meet an untimely death, she would not be able to bring them back!
 
 *もし誰かが不慮の死を迎えても、自分にはソレを甦らせる事など出来ない！*
 
-Isn't it reasonable to think so?
+It would be reasonable to think that way.
 
 *そう考えるのが妥当なのではないのか？*
 
 &nbsp;
 
-Suzy had never thought of testing "Resurrection" before.
+Until now, Suzy had never considered testing ≪Resurrection≫.
 
 *スージィはこれまで、とてもではないが≪リザレクション≫の検証しようとは考えられなかった。*
 
-Wait for someone to die, or let them die and then use them, what if it doesn't work?
+Waiting for someone to die, or using it after someone dies, what if it didn’t work out?
 
 *誰かが死ぬのを待つとか、死なせてから使うとか、もし上手く行かなかったらどうするのだ？*
 
-I shudder just thinking about it.
+Just thinking about it sent shivers down her spine.
 
 *考えただけでゾッとする。*
 
-That's why I panicked so much when I sensed that Sonia might lose her life.
+That’s why she panicked so much when she felt Sonia might lose her life.
 
 *だから、ソニアが命を落とすかもしれないと感じた時に、あれ程慌てたのだ。*
 
-There is no such guarantee anywhere to bring people back to life, and people do not come back to life when they die.
+There is no guarantee of bringing someone back to life, and people do not come back after they die.
 
 *人を生き返らせるなど、そんな保証はどこにも無いし、人は死んだら生き返らない。*
 
-It is a matter of course.
+That is a given.
 
 *それは当たり前の事なのだから。*
 
 &nbsp;
 
-However, if this "Resurrection" is a magic that can restore the soul connection, Fiorina may be able to wake up soon by using this magic.
+But what if this ≪Resurrection≫ was a magic that could restore the connection of the soul? If so, using it might allow Fiorina to wake up immediately.
 
 *だがもし、この≪リザレクション≫が、魂の繋がりを回復することが出来る魔法なのであれば、これを使えばフィオリーナは、直ぐにで目を覚ます事が出来るかもしれない。*
 
-The connection between the body and the manas should be thin, or even thin, but not broken.
+The connection between the body and manas might be thin or weak, but it shouldn't be severed.
 
 *肉体とマナスとの繋がりは薄く、もしくは細く成ってはいても切れては居ない筈。*
 
-Once, Dr. Henry was unable to save Mr. Ravi because his manas remained captive.
+Once, Henry-sensei couldn't save Ravi because her manas was still captured.
 
 *嘗て、ヘンリー先生がラヴィさんを救えなかったのは、そのマナスが捕えられたままだったからだ。*
 
-Now, Fiorina has no such fears.
+Now, Fiorina should not have that concern.
 
 *今、フィオリーナにその危惧は無い。*
 
-We don't know if it is possible to bring the dead back to life.
+Whether or not she could resurrect the dead is uncertain.
 
 *死者を甦らせる事が出来るかどうかは解らない。*
 
-But Fiorina is still alive now!
+But Fiorina is still alive!
 
 *だがフィオリーナは今はまだ生きている！*
 
-Then let's try it, let's try it!
+Then, it’s worth a try, let’s give it a shot!
 
 *ならば試そう、試してみよう！*
 
@@ -1315,405 +1314,405 @@ Then let's try it, let's try it!
 
 &nbsp;
 
-Susie kneeled next to Fiorina and held out one hand to activate the magic.
+Suzy knelt beside Fiorina, raised one hand, and activated the magic.
 
 *スージィはフィオリーナの隣に膝を付き、片手を翳し魔法を発動させた。*
 
 &nbsp;
 
-≪Resurrection.
+≪Resurrection≫
 
 *≪リザレクション≫*
 
 &nbsp;
 
-Light floods from Suzy's palm.
+Light overflowed from Suzy's palm.
 
 *スージィの掌から光が溢れる。*
 
-The warm light went around Fiorina's entire body.
+The warm light enveloped Fiorina's entire body.
 
 *温かみのある光は、フィオリーナの全身を包んで行った。*
 
-The light eventually fades away as if melting into Fiorina.
+Gradually, the light melted into Fiorina, disappearing.
 
 *やがてユックリとその光が、フィオリーナの中に溶ける様に消えて行く。*
 
 &nbsp;
 
-Suzy exhaled and stood up.
+With a sigh, Suzy stood up.
 
 *ふぅ　と息を吐き出しスージィが立ち上がった。*
 
-Fiorina's eyes, which had been closed, twitched and lifted their lids.
+Fiorina, who had her eyes closed, began to twitch and slowly opened her eyelids.
 
 *目を閉じていたフィオリーナの眼元が、ピクピクと動きユックリと瞼を上げた。*
 
 &nbsp;
 
-Fiorina!"
+"Fiorina!!"
 
 *「「フィオリーナ！！」」*
 
 &nbsp;
 
-Clark and Ashton approached Fiorina together.
+Clark and Ashton called out to Fiorina in unison.
 
 *クラークとアシュトンが、揃ってフィオリーナに声を掛けた。*
 
-Fiorina's eyes widened in surprise.
+Fiorina opened her eyes in surprise.
 
 *フィオリーナは驚いた様に目を見開いた。*
 
 &nbsp;
 
-What? Huh? Why? Why?"
+"Huh? What? Why? How?"
 
 *「え？あれ？なんで？どうして？」*
 
-I'm so glad! Good, Fiorina! Thank God...!
+"I'm so glad! I'm so glad, Fiorina! I'm so glad...!!"
 
 *「よかった！よかったわフィオリーナ！よかった…！！」*
 
 &nbsp;
 
-Colin took Fiorina from the twins and hugged her.
+Colin took Fiorina from the twins and hugged her tightly.
 
 *コリンが、フィオリーナを双子から取り上げ抱きしめた。*
 
-Fiorina, huh? What's that?　Fiorina was puzzled.
+Fiorina was just bewildered, saying "Huh? What?" repeatedly.
 
 *フィオリーナは　え？あれ？　と戸惑うばかりだ。*
 
-After checking on everyone and breathing a deep sigh of relief, Suzy turned her sharp gaze in the direction of the north.
+After confirming everyone's relieved expressions and exhaling a deep sigh of relief, Suzy turned her sharp gaze to the north.
 
 *そんな皆の姿を確かめ、深い安堵の息を吐いた後、スージィは北の方向に鋭い視線を向けた。*
 
 &nbsp;
 
-What's wrong? Sue!"
+"What’s wrong?! Su!"
 
 *「どうしたの？！スー！」*
 
 &nbsp;
 
-Beatrice notices Suzy's gaze and asks.
+Beatrice noticed Suzy's gaze and asked.
 
 *ベアトリスが、そんなスージィの視線に気が付き尋ねる。*
 
 &nbsp;
 
-"Still here, 20, 30, more and more are coming toward us.
+"There are still about 20 or 30 coming this way, more and more."
 
 *「まだここに、20や30、どんどん向かって、来てる」*
 
-What?
+"Eh?!"
 
 *「え？！」*
 
 &nbsp;
 
-These words made not only Beatrice, but also the children present at the event, startled.
+At those words, not only Beatrice but all the children present were taken aback.
 
 *その言葉にベアトリスだけでなく、その場に居た子供達がギョッとする。*
 
-The new stone wall that Beatrice had deployed was powerful, and the shadow dogs were unable to break through and attack.
+The new stone wall Beatrice had erected was powerful, and the shadow dogs were struggling to break through.
 
 *ベアトリスが展開した新しい石壁は強力で、影犬達は突破できずに攻めあぐねていた。*
 
-Still, there are things that jump over them.
+Even so, some were still leaping over.
 
 *それでも飛び越えて来るものは居る。*
 
-Dana and Lombardo are still dealing with that.
+Darna and Lombard were still dealing with them.
 
 *それを、ダーナやロンバートが今も対処を行っている。*
 
-The bat approaching from the sky was shot down by Mary's bow and two members of the magic group.
+From the sky, Mary was shooting down bats with her bow, along with the two magic users.
 
 *空から迫る蝙蝠には、メアリーの弓と、魔法組の二人が射落としていた。*
 
 &nbsp;
 
-But they're all small fry now, so they'll be fine. The enchiladas will stay like this for another hour, so they won't be a problem, and..."
+"But with everyone now, they’re just weaklings, so it’s fine. The enchantment will last for another hour, so there’s no problem. Plus..."
 
 *「でも、今の皆なら、雑魚だから、大丈夫。エンチャも、後1時間は、このままだから、問題ない、それに・・・」*
 
 &nbsp;
 
-Susie raised her right hand above her head and snapped her fingers.
+Suzy raised her right hand above her head and snapped her fingers.
 
 *スージィが右手を頭上にあげ　パチリ　と指先を鳴らした。*
 
 &nbsp;
 
-Come! World Tree!
+"Come, World Tree!!"
 
 *「来い！世界樹ぅぅっっ！！」*
 
 &nbsp;
 
-A huge seed-like object descended rapidly from the sky above and pierced the ground.
+A huge seed-like object descended rapidly from the sky and plunged into the ground.
 
 *上空から巨大な種の様な物体が、急速に降下し地面に突き刺さった。*
 
-Immediately, the outer skin of the tree opened up, and a trunk emerged from the inside and grew branches, becoming a young tree in no time at all.
+It quickly opened its outer skin, revealing a trunk that extended branches, instantly becoming a young tree.
 
 *それは直ぐ様、外皮が捲れ上がる様に開き、中から現れた一本の幹がそのまま枝を伸ばし、忽ち一本の若木となった。*
 
 &nbsp;
 
-≪Samon Yggdrasil.
+≪Summon Yggdrasil≫
 
 *≪サモン・ユグドラシル≫*
 
-Great Wiseman Skills.
+A skill of the Great Wiseman.
 
 *グレートワイズマンのスキル。*
 
-Summons a young tree of the world tree and gives the breath of life to those in its shade.
+Summoning a young World Tree to give life to those under its shade.
 
 *世界樹の若木を召喚して、その木蔭に居る者に生命の息吹を与える。*
 
 &nbsp;
 
-If you stay at the base of her, even if you get hurt, you will heal quickly and your magic will be restored.
+"If you stay at the base of this tree, even if you're injured, you'll heal quickly, and your magic power will recover."
 
 *「この子の、根元に居れば、怪我しても、すぐ治るし、魔力も回復する、から」*
 
-What? What? What is this? What is this? Sue-chan!
+"Eh?! What? What is this? What is this? Su-chan!"
 
 *「えぇ？！なに？これなに？何コレ？スーちゃん！」*
 
 &nbsp;
 
-Mia rolled her eyes and visited Suzy vigorously.
+Mia's eyes widened as she rushed to Suzy.
 
 *ミアが目を丸くして、スージィに勢いよく訪ねて来た。*
 
 &nbsp;
 
-I summoned a young ash tree, and she's going to be here for at least an hour, so don't worry.
+"I summoned a young ash tree. This one will be here for about an hour, so it’s fine, okay?"
 
 *「トネリコの若木を、召喚したの、この子も、1時間くらいは、居るから、平気、よ？」*
 
 &nbsp;
 
-Suzy replied matter-of-factly.
+Suzy replied nonchalantly.
 
 *スージィが事も無げに答えた。*
 
-A summoning technique in such a short time?　Beatrice peeled her white eyes and froze, her mouth agape.
+S-summoning magic in an instant? Beatrice rolled her eyes in disbelief, her mouth agape.
 
 *しょ、召喚術をこんな一瞬で？　ベアトリスが白目を剥いて口をアングリと開き固まった。*
 
 &nbsp;
 
-So, everybody just hang on a little bit longer."
+"So, everyone, just hold on a little longer."
 
 *「だから、皆、もうちょっとだけ、頑張って」*
 
-Anta! What are you doing?
+"Are you planning to do something?!"
 
 *「アンタ！何かする気？！」*
 
 &nbsp;
 
-Beatrice, who has regained her composure, asks Susie.
+After regaining her composure, Beatrice asked Suzy.
 
 *気を取り直したベアトリスが、スージィに尋ねる。*
 
 &nbsp;
 
-"Yeah, there's no end in sight, so I'll just turn down the source and come back."
+"Yeah, since it's endless, I'll cut off the source."
 
 *「うん、キリが無いから、元を断って、来る」*
 
 &nbsp;
 
-Susie pulled her chin back and stared deep into the forest, out of sight from here.
+Suzy tilted her chin and glared into the depths of the forest, which were not visible from here.
 
 *スージィが顎を引き、此処からは見えない森の奥を睨みつけた。*
 
 &nbsp;
 
-Will, Lombard, Belknap, protect them all."
+"Will, Lombard, Bernap, protect everyone."
 
 *「ウィル、ロンバート、ベルナップ、皆を守って」*
 
-Dana, Irving, Alan, Helena, take them down.
+"Darna, Irvin, Alan, take them down."
 
 *「ダーナ、アーヴィン、アラン、ヘレナ、奴らを倒して」*
 
-Mia, Carl, Mary, shoot the enemy."
+"Mia, Karl, Mary, shoot the enemies."
 
 *「ミア、カール、メアリー、敵を撃って」*
 
-Willie, Colin, Bibi, take care of everybody.
+"Willy, Colin, Vivi, please take care of everyone."
 
 *「ウィリー、コリン、ビビ、皆をお願い」*
 
 &nbsp;
 
-Suzy goes to each one of them.
+Suzy called out to each of them.
 
 *スージィが一人一人に声を掛けて行く。*
 
 &nbsp;
 
-Sue, I can do it! I can do it too! I can fight!"
+"Su-nee! I can fight too!"
 
 *「スー姉！オレだって出来るよ！戦える！」*
 
-Stefan can do it. With Helena, you know?"
+"Yeah, I know you can, Stephan. With Helena, okay?"
 
 *「うん、ステファンなら、出来るよ。ヘレナと、一緒に、ね？」*
 
-I'll take care of you, sister! I'll protect you!
+"Leave it to me, big sister! I’ll protect everyone!"
 
 *「お任せくださいお姉様！私がシッカリ守って見せます！」*
 
-Yes, Helena, please, okay?"
+"Okay, Helena, I’m counting on you."
 
 *「うん、ヘレナ、お願い、ね？」*
 
 &nbsp;
 
-Suzy patted Stefan on the head and smiled at Helena.
+Suzy patted Stephan's head and smiled at Helena.
 
 *スージィがステファンの頭を撫で、ヘレナにニコリと微笑んだ。*
 
-I'm going to protect you!　Stefan was breathing, "I'm going to protect you!　Helena was proud of it and blew her breath out of her nose.
+"I'll protect you!" Stephan declared, puffing out his chest, while Helena proudly snorted.
 
 *オレが守ってやるんだからな！　と息を巻くステファンに　ふふん！！　とヘレナが得意げに、鼻から息を飛ばしていた。*
 
 &nbsp;
 
-We can fight, too!　Clark and Ashton exclaimed.
+"We can fight too!" Clark and Ashton chimed in.
 
 *オレ達だって戦えるぞ！　とクラークとアシュトンも息を巻く。*
 
-Lombardo drags the twins away.
+"Then you guys go over there," Lombard said, dragging the twins along.
 
 *それを　なら、お前たちはコッチだ　とロンバートが双子を引き摺って行く。*
 
 &nbsp;
 
-Sue!
+"Su-chan!!"
 
 *「スーちゃん！！」*
 
-Mupugyu!"
+"Mupugyu!"
 
 *「むぷぎゅ！」*
 
 &nbsp;
 
-Mia hugged me as hard as she could.
+Mia hugged Suzy tightly.
 
 *ミアに思い切り抱きしめられた。*
 
 &nbsp;
 
-Thanks, thanks, thanks." Sue-chan!"
+"Thank you, thank you! Su-chan!"
 
 *「ありがと、ありがとね！スーちゃん！」*
 
-No, Mia, that hurt, didn't it? I'm sorry I'm late."
+"No, Mia, it must have hurt, right? I'm sorry for being late."
 
 *「ううん、ミア、痛かったでしょ？ごめんね、来るの遅くなって」*
 
-I'm fine! I'm fine! Sue, are you ...... going to be okay on your own?"
+"I'm fine! I'm fine! But Su-chan, are you okay on your own?"
 
 *「平気よ！平気！スーちゃんこそ……一人で大丈夫なの？」*
 
-Yeah, I'm fine. So, Mia, why don't you wait here with the others?"
+"Yeah, I’m fine. So Mia, wait here with everyone, okay?"
 
 *「うん、大丈夫。だからミア、ココで、皆と待ってて？」*
 
 &nbsp;
 
-Suzy placed her hand on Mia's waist and spoke softly to her, looking into her eyes.
+Suzy placed her hand on Mia's waist and gently spoke while looking into her eyes.
 
 *スージィがミアの腰に手を置き、目を見詰めながら優しく語りかけた。*
 
 &nbsp;
 
-Sue, thank you. Are you sure you can... go by yourself?"
+"Su, thank you. Can you really go alone?"
 
 *「スー、ありがとう。本当に一人で…行けるの？」*
 
-Colin said, "Yeah, Colin, it's okay. So, Colin, take care of everybody."
+"Yeah, I’m fine, Colin. So Colin, please take care of everyone."
 
 *「うん、コリン大丈夫。だから、コリンは皆を、お願い」*
 
-I'll leave it to you! It won't take long, will it?
+"Then I’ll leave it to you! You’ll finish quickly, right?!"
 
 *「ならアンタに任せるわ！すぐ終わるんでしょ？！」*
 
-I'll take care of it, Bibi! I'm on it, Bibi, and I'll have this done in less than 30 minutes, okay?"
+"Yeah! Leave it to me, Vivi. I’ll wrap it up in less than 30 minutes, okay?"
 
 *「ん！任せてビビ。30分かからないで、終わらせるから、ね？」*
 
-I'm counting on you, Sue! You got it!
+"I’m counting on you, Su! I’m leaving it to you!!"
 
 *「頼んだよスー！アンタに任せた！！」*
 
-Yeah! Dana! I'm in charge!
+"Yeah! Darna! I’m counting on you!!"
 
 *「うん！ダーナ！任された！！」*
 
 &nbsp;
 
-Dana raised her right fist and shouted, to which Suzy responded by raising her right fist as well.
+Darna raised her right fist and shouted, and Suzy raised her right fist in response.
 
 *右の拳を上げて叫ぶダーナに、スージィも右の拳を上げて応えた。*
 
 &nbsp;
 
-I'll be right back, okay? I'll be right back, okay?"
+"Okay, I’m off, everyone. I’ll be back soon, okay?"
 
 *「じゃ、行って来るね、みんな。直ぐ戻るから、ね？」*
 
-Go on, Sue! And! Get them out of here!
+"Go, Su! And take them down quickly!!"
 
 *「行ってきなさいスー！そして！とっととやっつけちゃえ！！」*
 
 &nbsp;
 
-Beatrice's words! Suzy nodded with a big smile.
+At Beatrice's words, Suzy nodded with a big smile.
 
 *ベアトリスの言葉に　うん！と満面の笑みで頷くスージィ。*
 
-He kicked the ground and ran toward the forest to the north.
+She kicked off the ground and started running towards the northern forest.
 
 *そのまま地を蹴り北の森へと向かって走り出した。*
 
-Then, a shadow dog jumped out from the top of the stone wall in front of us.
+At that moment, a shadow dog jumped out from above the stone wall in front of her.
 
 *そこへ、目前の石壁の上から影犬が飛び出して来た。*
 
-Suzy slashes at it as if passing it by, and then speeds off into the forest.
+Suzy cut it down in passing with a flurry of strikes and increased her speed as she ran into the forest.
 
 *スージィはそれを、すれ違い様乱斬りにして、そのまま森へと速度を上げて走り去って行く。*
 
-The children who were watching them were in awe.
+The children watching let out gasps of admiration.
 
 *それを見ていた子供達が、感嘆の声を上げた。*
 
 &nbsp;
 
-Come on! Come on! If these guys aren't cleaned up when Sue gets back! We won't be able to face her!
+"Alright! Everyone! If Su gets back and these guys are still not taken care of, we won't be able to face her!"
 
 *「さあ！皆！スーが戻った時に、まだコイツら片付いて無かったら！あの子に顔向けできないわよ！」*
 
 &nbsp;
 
-Beatrice sent everyone into a fury.
+Beatrice shouted to everyone.
 
 *ベアトリスが全員に激を飛ばした。*
 
-Oh, oh, oh!　and the battle cries of children echo through the area as they shake the earth.
+"Whoa!!" The children's battle cries echoed around them, shaking the ground.
 
 *おおう！！　と大地を揺らせと子供達の鬨の声が、辺りに響き渡って行く。*
 
@@ -1735,59 +1734,59 @@ Oh, oh, oh!　and the battle cries of children echo through the area as they sha
 
 &nbsp;
 
-Susie runs in a straight line into the forest, heading for several eradication targets.
+Suzy ran straight into the forest towards several extermination targets.
 
 *スージィは、幾つか居る殲滅目標に向かい、森へと一直線に走る。*
 
-We crushed every dog and bat we saw along the way.
+Along the way, she crushed any dogs or bats that caught her eye.
 
 *途中目に付いた犬や蝙蝠は、悉く潰して行った。*
 
 &nbsp;
 
-(First of all, the guys who give these guys their orders. Evil Warwolves and Evil Warbats. With "Evil" on their heads! It's so easy to understand! They are definitely giving orders to the dogs and bats to unify their will. If we destroy them, they will be nothing more than a bunch of rabble-rousers. And the worst of all is this "Evil War Rat"! But first, we must crush the dogs and bats quickly!)
+(First, the ones giving orders. Evil Werewolves and Evil Werebats. How considerate to put "Evil" in their names! It's so obvious! These guys are definitely the ones giving commands to the dogs and bats, unifying their will. If I take them down, they'll just be a rabble. And the most dangerous one is this "Evil Wrat." This one is bad! But first, I’ll quickly take down the dogs and bats!!)
 
 *（まずはコイツらに指令を出してる奴ら。イビル・ワーウルフにイビル・ワーバット。ご丁寧に頭に『イビル』とか着けて！分り易いったらありゃしない！間違いなくコイツらが犬や蝙蝠に指令を出して意志を統一させてる。コレを潰せば只の烏合の衆。そして一番不味いのがこの『イビル・ワーラット』コイツがヤバい！でもその前にサクっと犬と蝙蝠を潰す！！）*
 
 &nbsp;
 
-I heard a squeaky voice at my shoulder.
+She heard a "kikyu" sound from her shoulder.
 
 *キキュっと肩口で鳴く声が聞こえた。*
 
 &nbsp;
 
-"Algernon, are you sure? Are you sure you don't want to stay with Bibi?"
+"Algernon, are you okay? Aren't you supposed to be by Vivi's side?"
 
 *「アルジャーノン、良いの？アンタ、ビビの傍に、居なくって？」*
 
 &nbsp;
 
-Kiki-kikikyuu No problem! and squealing rodents.
+Kikikikyu! No problem! the rodent chirped.
 
 *キキキキュッ　問題無い！と鳴く齧歯目。*
 
 &nbsp;
 
-So, if you're out there, it's not safe for you to be out here, okay?"
+"Then it’s dangerous to be outside, so stay in here, okay?"
 
 *「なら、外側に居ると、危ないから、コッチ入ってなさい、ね？」*
 
 &nbsp;
 
-The rodent opened its finger to indicate its chest, and the rodent let out a single squeak and dove into the chest.
+As she pointed to her chest with her finger, the rodent chirped and burrowed into her chest.
 
 *と胸元を指で開いて示すと、齧歯目は　キキュッ　と一声鳴き、胸元へ潜り込んだ。*
 
 &nbsp;
 
-Oh..! Oh, no, don't... don't... don't... don't move, okay?"
+"Ah! N-no, don’t move too much, okay?"
 
 *「あ！ン・・・あ、あん、まり・・・う、動いちゃ、ダメ・・・なんだから、ね？」*
 
 &nbsp;
 
-Kikyu? and a rodent's eye that squeaks. Suzy, whose cheeks are always stained even in such a situation. It's a wonder she's still alive.
+Kikyu? the rodent chirped. Even in this situation, Suzy blushed slightly. As expected of her.
 
 *キキュ？と鳴く齧歯目。こんな時でも頬を染めるブレのないスージィ。流石である。*
 
@@ -1797,87 +1796,87 @@ Kikyu? and a rodent's eye that squeaks. Suzy, whose cheeks are always stained ev
 
 &nbsp;
 
-Suzy rushed into the woods.
+Suzy plunged into the forest.
 
 *スージィは森の中へ突入した。*
 
-The closer we get to our target, the more shadow dogs there are, but it doesn't matter. We cut them all into pieces and push forward.
+As she got closer to her target, the number of shadow dogs increased, but it didn't matter. She sliced through them all and pressed on.
 
 *目標へ近づく程に、影犬の数が増すが関係無い。全て斬り刻んで突き進む。*
 
-Flesh and blood were scattered throughout the forest, but Suzy deftly avoided the blood splatter, not a single stain on any part of her attire.
+Blood and flesh were scattered throughout the forest, but Suzy skillfully avoided the splatter, and not a single stain marred her attire.
 
 *血肉が森の中に撒き散らかされるが、スージィは器用に血飛沫を避け、その装いの何処にも染み一つの汚れも付いていない。*
 
-Then, the target was sighted.
+Then, she spotted her target.
 
 *そして、目標を視認した。*
 
 &nbsp;
 
-(Found it! Evil Warwolves!!!!)
+(I found it! Evil Werewolf!!)
 
 *（見つけた！イビル・ワーウルフ！！）*
 
 &nbsp;
 
-A black wolf standing on two legs, reaching two meters in height.
+A black wolf standing on two legs, reaching a height of two meters.
 
 *身長2メートルに達する、二足で立つ黒い狼。*
 
-Before she even had time to recognize Suzy, she was slashed into a pulp by the woman who had just passed by her.
+Before it could even recognize Suzy, it was easily slashed to pieces and turned into blood and flesh as she passed by.
 
 *ソレはスージィを認識する間も無く、彼女にすれ違い様、アッサリと乱斬りにされ血肉に変えられた。*
 
-Susie turns her body and stops, as if she is dancing on the spot.
+Suzy spun gracefully on the spot, coming to a stop.
 
 *スージィはその場で、フワリと舞う様に身体を回し停止する。*
 
-At the same time, the surviving shadow dogs around them turned into flesh and blood and scattered.
+At the same time, the surviving shadow dogs around her also turned into blood and flesh, scattering away.
 
 *それと同時に、周りに居た生き残りの影犬達も、血肉と化して飛び散った。*
 
-Susie looked up at the western sky as it was.
+Suzy looked up at the western sky.
 
 *スージィはそのまま西の空を見上げた。*
 
-The bats are swarming in the sky above us.
+In her line of sight were the bats swarming above.
 
 *視線の先に居るのは、上空で群れる蝙蝠達だ。*
 
-Among them, only one large individual can be identified that jumps out of the water.
+Among them, she could see one particularly large individual.
 
 *その中に、飛び抜けて大きな個体が一匹だけ確認できる。*
 
 &nbsp;
 
-(Evil Warbat confirmed! Let's blow them all up together... We're in the sky, we'll be fine, right?)
+(I've confirmed the Evil Werebat! Should I blow them all away... It’s in the sky, so it should be fine, right?)
 
 *（イビル・ワーバット確認！纏めて吹き飛ばすか…。空の上だし平気よね？）*
 
 &nbsp;
 
-Suzy flies her skills toward the target with the tip of her sword.
+Suzy aimed her sword tip at the target and unleashed her skill.
 
 *スージィは、剣先を目標に向けてスキルを飛ばす。*
 
 &nbsp;
 
-≪Impact Storm≫.
+≪Impact Storm≫
 
 *≪インパクト・ストーム≫*
 
-Dueling Barbarians' long-range ranged attack skills.
+A long-range area attack skill of the Duel Barbarian.
 
 *デュエルバーバリアンの遠距離範囲攻撃スキル。*
 
 &nbsp;
 
-With a low burst, the target warbat was blown away, along with the surrounding bats.
+With a low explosion sound, the target werebat was blown away along with the surrounding bats.
 
 *低い炸裂音と共に、目標のワーバットはその周りの蝙蝠諸共吹き飛んだ。*
 
-One can only see black dust dancing in the space where the skill exploded.
+Only black dust could be seen swirling in the space where the skill had detonated.
 
 *スキルが炸裂した空間には、黒い塵が舞うのが確認できるだけだ。*
 
@@ -1885,81 +1884,81 @@ And one more thing.
 
 *そしてもう一つ。*
 
-Suzy carefully focused her Ki on a target floating a short distance away and took aim.
+Aiming carefully at a target floating a little further away, Suzy concentrated her "ki" and took aim.
 
 *少し離れた場所に浮かぶ目標に向け、スージィは慎重に『氣』を籠め、狙いを定めた。*
 
 &nbsp;
 
-"Don't bomb... don't bomb..."
+"Explode, will you...?"
 
 *「爆・ぜ・る・な・よぉ～・・・」*
 
 &nbsp;
 
-He squeezed his "Ki" to the very limit and fired at the target.
+With her "ki" finely tuned, she released it toward the target.
 
 *ギリギリまで絞り切った『氣』を籠め、目標に向け撃ち放った。*
 
-The target is crushed only in the lower half of the body as aimed, and falls to the ground with a cone rub.
+The target was blown apart at the lower half, spiraling down to the ground.
 
 *目標は狙い通り下半身だけを粉砕され、錐揉みをしながら地上に落ちて行く。*
 
-He checked it out and was satisfied!　and let the breath fly out of his nose.
+Satisfied, she let out a "yes!" as she exhaled through her nose.
 
 *それを確認して満足げに　よし！　と鼻から息を飛ばした。*
 
-He was satisfied with the exquisite control work of his "Ki".
+She seemed pleased with her exquisite control over her "ki."
 
 *自分の『氣』の、絶妙なコントロールの仕事振りに満足したようだ。*
 
 &nbsp;
 
-Well, now for the most important target! As I was about to move out of the way, I noticed a number of signs coming toward me.
+Now, it was time for the most important target! Just as she was about to move from that spot, she noticed multiple presences approaching her.
 
 *さて、今度は最重要目標だ！と、その場から移動しようとした時、此方に向かって来る幾つもの気配がある事に気が付いた。*
 
 &nbsp;
 
-(Is this... the shadow ghoul I blew up at school earlier? Are they coming straight at me? There are so many of them. Is there another Elder Vampire? Is this the same one that was at the school earlier? Four in all...what the heck! I don't have time to deal with these things!)
+(Is that... the Shadow Ghouls I blew away at the school? They're coming straight for me? There are quite a few... Huh? Are there Elder Vampires too? Are those the ones from the school? Four in total... Seriously! This isn't the time to be dealing with this!!)
 
 *（これは…さっき学校で吹き飛ばしたシャドーグール？真っ直ぐわたしに向かって来てる？随分沢山居るなぁ…アレ？他にもエルダーヴァンパイア？これもさっき学校に居たヤツ？全部で4体か…全く！こんなモン相手にしてる場合じゃないのに！！）*
 
 &nbsp;
 
-Hmmm!　and put his hands on his hips and blew his breath out through his nose.
+Hmph! she thought, placing her hands on her hips and exhaling through her nose.
 
 *ふんむ！　と腰に手を当て鼻から息を飛ばした。*
 
-He swung his sword away with great force, and just as before, the shadow ghouls were dissipated by a shockwave carrying Ki.
+With a swift motion, she swung her sword, dispersing the approaching Shadow Ghouls with a wave of "ki."
 
 *そのまま勢い良く剣を振り払い、先程と同じ様にシャドーグールを、『氣』を載せた衝撃波で霧散消滅させた。*
 
-The vampire is coming towards you, and you will fire your sword at the vampire.
+She then aimed her sword tip at the approaching vampires and unleashed sword energy.
 
 *そのまま剣先を、此方へ向かって来るヴァンパイアに合わせ剣氣を放つ。*
 
-One, two, three. He shot them consecutively and detonated them.
+One, two, three. She shot them down in quick succession.
 
 *1つ、2つ、3つ。連続で撃ち抜き爆ぜさせた。*
 
-The remaining one was close by, so I approached it in one breath and swung my sword at it, causing it to explode and scatter.
+The last one was close enough, so she dashed in and swung her sword, blowing it apart.
 
 *残りの一体は、近くまで来ていたので、一息で接近し剣で振り払い爆ぜ散らせる。*
 
 &nbsp;
 
-All right, that's it! I've spent too much time! I've wasted so much of your time!"
+"Alright, that’s done! Seriously! I wasted extra time on this!"
 
 *「よし終り！全くもー！余計な時間、使っちゃったわよ！」*
 
 &nbsp;
 
-Susie immediately started running. She ran to the location of the final target.
+Suzy immediately started running toward the location of her final targets.
 
 *スージィは直ぐ様走り出した。最終目標達の居る場所へ。*
 
-And I knew it right away.
+And it became clear quickly.
 
 *そして、それは直ぐに判った。*
 
@@ -1967,19 +1966,19 @@ And I knew it right away.
 
 &nbsp;
 
-The closer we got, the more the rustling and rustling sound echoed around us like a huge chorus.
+As she got closer, a rustling sound echoed around her, like a massive chorus.
 
 *近づく程にザワザワ、ワサワサとした音が、巨大な合唱の様に辺りに響いてくる。*
 
-The forest was filled with the smell of a beast that seemed to be swallowing.
+A suffocating stench of beasts filled the forest.
 
 *むせ返る様なの獣の匂いが、森に充満していた。*
 
-It was not enough to stain the surface of the forest black, but it was a huge pulsating black mass, writhing around in multiple layers of black waves, repeatedly spilling out and rising again and again.
+It was not just staining the forest floor black; it was a massive pulsating black mass, overlapping and spilling over, writhing restlessly.
 
 *それは、森の地表を黒く染めるだけでは収まりきれず、所狭しと黒い波が幾重にも重なり、零れ落ちては昇るを繰り返す、脈動する巨大な黒い塊となり蠢いていた。*
 
-And in that mass, a great number of red, flickering lights.
+And within that mass were countless red, flickering lights.
 
 *そしてその塊の中には、夥しい数の赤く揺れる光。*
 
@@ -1989,171 +1988,171 @@ Mad Lemmings.
 
 *マッドレミングス。*
 
-About 30 centimeters long. It is one or two times larger than Algernon.
+About 30 centimeters long. Larger than Algernon by one or two sizes.
 
 *体長およそ30センチ。アルジャーノンより一回りも二回りも大きい。*
 
-It has jet-black fur and red eyes that burn like mad. Its fangs are long and sharp. It could easily eat away at children's leather armor.
+With pitch-black fur and crazily burning red eyes, their fangs were long and sharp. They could easily tear through children's leather armor.
 
 *漆黒の毛皮に、狂った様に燃える紅い目。その牙は長く鋭い。子供達の革鎧程度なら容易く喰い散らかせるだろう。*
 
-The number is about 12,000.
+The number was approximately twelve thousand.
 
 *その数、凡そ一万二千。*
 
-It waits here, wriggling around, waiting for orders so that it can avalanche into the village at any moment.
+They were waiting for orders to avalanche into the village, writhing restlessly.
 
 *それが何時でも村へ雪崩れ込める様に命令を待ち、ザワリザワリと蠢き此処で待機しているのだ。*
 
-And the person who issues the order is.
+And the one giving those orders was...
 
 *そしてその指令を出すのが。*
 
 &nbsp;
 
-(You! Evil Worratt!!!!!!!)
+(You! Evil Wrat!!!)
 
 *（お前だ！イビル・ワーラット！！！）*
 
 &nbsp;
 
-Just when I was about to take on the challenge of that goal.
+Just as she was about to charge at her target.
 
 *その目標に挑みかかろうとしたその時。*
 
 &nbsp;
 
-and the rodent's eyes flailed around in Suzy's clothes.
+Kikikikikyu! The rodent was thrashing around in Suzy's clothes.
 
 *キキキキュキュキューーキキキュキュキュキュキューーーッッ！！！　と齧歯目がスージィの服の中で暴れ回った。*
 
 &nbsp;
 
-Aaan! Hyun! Nnnn! Aaannnnnnnnnnnnnnnnnnn!"
+"Ah! No! Don't move... okay?!"
 
 *「あァン！！！ひゅンん！にゅン！あぁンんん・・・ぅにゅぅぅンんーーーンッ！」*
 
 &nbsp;
 
-Susie's hips shattered and she sat up on the spot.
+Suzie’s legs gave out, and she collapsed to the ground.
 
 *スージィの腰が砕けて、その場で座り込んでしまった。*
 
 &nbsp;
 
-Oh! Oh...silly! Ng! Arjano! Don't move! I said... didn't I? I said...!
+"Ah! Nn… you dummy! Nn!! Algernon, nn! I told you… not to move… didn’t I? Nn!"
 
 *「あっ！ン・・・おバカ！ン！！アルジャーノぅンん！動いちゃダメぇ！ッ・・・て、言った・・・でしょぅぅ！？ン！」*
 
 &nbsp;
 
-
+Kikikikyu?!
 
 *キキキキュキュキュキキューーーーッッ！！*
 
 &nbsp;
 
-I'm not going to let you do it! That's why! Don't expose us...no! ！！！！
+"Th-That’s why! If you move… we’ll get caught!! Nn!!"
 
 *「だ！だからっぁ！アっばれちゃぁあ・・・駄目ぇ！！ッ！！！！」*
 
 &nbsp;
 
-Algernon crawls out from Suzy's chest, who is trembling for some reason, and makes a face, saying "Kikikikyukyuu" as if to say something.
+From Suzie’s trembling chest, Algernon crawled out and poked his head out, chittering “kikikikyu-kyuu” as if trying to convey something.
 
 *何故か身体を震わせているスージィの胸元から、アルジャーノンが這い出て顔を出し　キキキキュキューー　と何事かを訴える。*
 
 &nbsp;
 
-"Oh, no... What? You knew they were here... and you followed them, didn't you? Why are you in such a hurry now?
+"Geez… wait, you knew these guys were here… nn, and you still came along, didn’t you? So why are you panicking now?"
 
 *「ンもぅ・・・え？アンタ、コイツら、居るの分ってて・・・ン、付いて来た、ンんでしょ？何で、今更、慌ててンの？」*
 
 &nbsp;
 
-Susie asks Algernon, her cheeks slightly tinted and her breath uneven.
+Slightly blushing and breathing heavily, Suzie questioned Algernon.
 
 *ほんのり頬を染め、息を乱しながらスージィがアルジャーノンに問いかける。*
 
 &nbsp;
 
-
+"Kikikikyu-kyuuuu… kikyu!"
 
 *キキキキュキュキューーーキキュッ！*
 
 &nbsp;
 
-What? You didn't think there'd be this many of them? You didn't expect this?"
+"Huh? You didn't expect there to be this many? It was beyond your expectations?"
 
 *「え？こんなに、居るとは、思って、無かった？想定外、だって？」*
 
 &nbsp;
 
-Cu-cu-cu-cu-cu-cu-cu-cu-cu-cu-cu-cu-cu-cu-cu-cu-cu!
+Kikikikikyu!!
 
 *キュキュッキキキュキキューーーーーッッ！！！*
 
 &nbsp;
 
-"Too bad? Let's hurry up and get the hell out of here."
+"Too dangerous? You want to hurry and escape with everyone?"
 
 *「ヤバ過ぎ？急いで、皆で、逃げよう、って？」*
 
 &nbsp;
 
-Squeak squeak!
+Kikikikikyu!!
 
 *キュッキュッキューーッ！！*
 
 &nbsp;
 
-I'm here because I'm in trouble! If you're scared, you can go home now!"
+"You came because it was dangerous! If you're scared, go home now!"
 
 *「ヤバいから、来たんだからね！コワイなら、アンタ今から、帰りなさい！」*
 
 &nbsp;
 
-Crikey crikey...
+Kikikikyu!
 
 *キキューーキキューー・・・*
 
 &nbsp;
 
-Then get in there like a big boy! Don't move, okay? You can... come... back... and we can have a nice little playdate, okay?"
+"Then stay quiet and stay inside! Don't move! You can come back and play slowly next time, okay?"
 
 *「なら大人しく、中に入って、なさい！動いちゃ駄目、だからね！そういのは・・・今度・・・ゆっくりと・・・遊びに来れば・・・良いから、ね？」*
 
 &nbsp;
 
-Cicu?
+Kikikyu?
 
 *キキュ？*
 
 &nbsp;
 
-Oh, uh, anyway! Don't move! Can I?"
+"Ah, um... anyway! Don't move! Got it?"
 
 *「あ、あーー、と、とにかく！動いちゃ、駄目！イイ？」*
 
 &nbsp;
 
-cuckoo
+Kikikyu!
 
 *キュキューッ*
 
 &nbsp;
 
-Then I'm going, I'm going!"
+"Then I'm off!"
 
 *「じゃ、行っちゃう、よ！」*
 
 &nbsp;
 
-Suzy stood up and clapped her hands on her chest as if to reiterate.
+Suzy stood up, clapping her hands to reset her focus.
 
 *スージィが立ち上がり、仕切り直しをする様に胸元で　ポン　と一つ手を叩いた。*
 
-Then he gripped the two swords in both hands again and started running toward his target.
+She then gripped her two swords again and started running toward her target.
 
 *そして再び二刀を両手に握り、目標に向かい走り出した。*
 
@@ -2163,609 +2162,609 @@ Then he gripped the two swords in both hands again and started running toward hi
 
 &nbsp;
 
-The 12,000 or so mud lemmings were climbing on top of each other to stay in one place, overlapping each other, forming a blackened heap, and writhing fearlessly.
+The massive number of Mad Lemmings was forming a small mountain of black, climbing over each other, writhing ominously.
 
 *一万二千と云う大量のマッドレミングスは、一か所に留まる為に仲間の上に登り合い、重なり合って、黒々とした小山の様になり、悍ましく蠢いていた。*
 
 &nbsp;
 
-If this horde were to be unleashed on the village, it would be untouchable.
+If this horde were unleashed upon the village, it would be uncontrollable.
 
 *もしこの大群が村に解き放たれたら、もう手が付けられない。*
 
-I can't imagine how long it would take to eradicate them one by one.
+Even if she exterminated them one by one, she couldn't imagine how long it would take.
 
 *一匹ずつ殲滅したとして、どれだけの時間が必要になるのか想像も付かない。*
 
 &nbsp;
 
-Then now is a good time to get it together.
+Now was the perfect opportunity while they were gathered.
 
 *ならば纏まっている今が好機。*
 
-If we just annihilate them, there will be no problem.
+If she could wipe them out now, there would be no problem.
 
 *このまま殲滅すれば何の問題も無い。*
 
-But how powerful would it be to use a ranged skill to destroy such a large number of people? I can't imagine this either.
+However, if she used an area skill to exterminate this many, she couldn't imagine how much power it would unleash.
 
 *だが、これだけの数を殲滅する為の範囲スキルを使用した場合、どれ程の威力が出てしまうのか？コレも想像がつかない。*
 
-Just be sure that the village will definitely be affected.
+She was certain it would definitely affect the village.
 
 *只、間違いなく村にも被害が及ぶのを確信する。*
 
-A picture of a flying mountain range flashed in my mind, and I shivered.
+Images of mountains crumbling flashed in her mind, causing her to shudder.
 
 *脳裏に削れ飛ぶ山脈の画が浮かび、ブルリと震える。*
 
 &nbsp;
 
-No range skills are used!
+She wouldn't use an area skill!
 
 *範囲スキルは使わない！*
 
-But it is still about bringing it all together and eradicating it.
+But the plan to exterminate them remained unchanged.
 
 *だが、纏め上げて殲滅する事は変わらない。*
 
-Let's try to find a place where there will be as little damage to the forest as possible.
+She would handle it in a place that would minimize damage to the forest.
 
 *成るべく、森に出る被害が少なく成る場所で事に当ろう。*
 
-Fortunately, there is a nearby, affordable place.
+Fortunately, there was a suitable location nearby.
 
 *幸い近くに、手頃な場所がある。*
 
-First of all, we have to lead them there.
+First, she would lead them there.
 
 *まずはそこへ、コイツらを誘導するのだ。*
 
 &nbsp;
 
-Suzy accelerated and leaped at once.
+Suzy accelerated and jumped.
 
 *スージィは一気に加速して跳び上がった。*
 
-He jumped over the top of the black mountain and released his skill directly above it.
+She leaped just over the black mountain, and at that moment, she unleashed her skill.
 
 *そのまま黒山の上スレスレを飛び越える様に、そして、その直上でスキルを放った。*
 
 &nbsp;
 
-≪'Spread Hate'.
+≪Spread Hate≫
 
 *≪スプレッド・ヘイト≫*
 
-Skills for the shield position "Sentinel Knight".
+A skill of the shield class "Sentinel Knight."
 
 *盾職『センチネルナイト』のスキル。*
 
-A skill that provokes surrounding enemies and forces them to target you.
+It provokes surrounding enemies, forcing them to target her.
 
 *周囲の敵を挑発して、強制的に自分を狙わせるスキル。*
 
 &nbsp;
 
-Until then, the black mountain had been showing at least steady, if not quiet, movement, but when it was hit by the skill, the whole area rippled as if it were exploding.
+Until then, the black mass had been moving somewhat steadily, but after receiving the skill, it exploded and surged wildly.
 
 *それまでは大人しいとは言い難いが、少なくとも安定した動きを見せていた黒い山だったが、スキルを受けた事で、爆発する様に全体が波打った。*
 
-Suzy further uses another skill against their rulers.
+Suzy used another skill against their commander.
 
 *スージィは更に、彼らの支配者に対してもう一つのスキルを使う。*
 
 &nbsp;
 
-≪'bound with chains'.
+≪Bind with Chain≫
 
 *≪バインド・ウィズ・チェーン≫*
 
-Also a "Sentinel Knight" skill.
+Also a skill of the "Sentinel Knight."
 
 *同じく『センチネルナイト』のスキル。*
 
-The target is drawn to the chain, making himself the target of the attack.
+It draws the target in with chains, making them the target of attacks.
 
 *ターゲットを鎖で引き寄せ、自分を攻撃対象にさせる。*
 
 &nbsp;
 
-Suzy caught the Evil Worratt by the chain and pulled him in just before he landed.
+Just before landing, Suzy captured the Evil Wrat with chains and pulled it toward her.
 
 *スージィは着地寸前に、イビル・ワーラットを鎖で捕まえ引き寄せた。*
 
-He grabs its head carelessly and drags it running.
+She carelessly grabbed its head and began to run.
 
 *その頭を無造作に掴み、引き摺り走る。*
 
-The Evil Worrats are sounding furious, their anger directed at Suzy.
+The Evil Wrat shouted angrily at Suzy.
 
 *イビル・ワーラットは、怒りの声をスージィに向けて激しく発している。*
 
 &nbsp;
 
-Evil Worrats are the commanding force behind Mad Lemmings.
+The Evil Wrat was the commander of the Mad Lemmings.
 
 *イビル・ワーラットはマッドレミングスの司令塔だ。*
 
-If you take this guy's hate, the target of this herd will inevitably turn on you.
+If she took its hate, the targets of this horde would inevitably turn to her.
 
 *コイツのヘイトを取れば、この群れのターゲットは必然的に自分に向く。*
 
-Suzy continued to provoke the warrats by dragging them along and also using "hate" for a single person.
+Suzy continued to provoke the Wrat while dragging it along, using single-target ≪Hate≫.
 
 *スージィはワーラットを引き摺りながら、単体向けの≪ヘイト≫も使い挑発し続けた。*
 
 &nbsp;
 
-Susie ran straight through the forest.
+Suzy ran through the forest like that.
 
 *スージィは、そのまま森の中を走り抜けた。*
 
-Soon after, we arrive at an open area.
+Soon, she arrived at an open area.
 
 *やがて直ぐに、開けた場所へと到着する。*
 
-The space, with a diameter of about 30 meters, is one of the many battle points in the forest, the same place where Suzy and Howard first met.
+A space about 30 meters in diameter spread out before her, the same place where Suzy and Howard had first met, one of the battle points set up in this forest.
 
 *直径で30メートル程の空間が広がるその場所は、嘗てスージィとハワードが初めて出会った場所と同じ、この森に幾つも設置されているバトルポイントの一つだ。*
 
-This is a somewhat larger plaza than others. This is the place to decide.
+This place was a bit larger than others. This is where she would settle things.
 
 *此処は他の場所より幾分大き目の広場だ。此処で決める。*
 
 &nbsp;
 
-With a gussied-up grip on the warrat's head, which is flailing about in an even angrier rage, he leaps from between the trees and glides into the center of the plaza.
+Holding tightly to the wrat's head, she jumped up between the trees and soared into the center of the clearing.
 
 *より一層怒りを露わに暴れ回るワーラットの頭を、ガッシと掴んだまま、木々の間から跳び上がり広場の中心へと滑空する。*
 
-He then used his momentum to reduce Warratt's head to the ground on the landing.
+With that momentum, she slammed the wrat's head into the ground.
 
 *そしてその勢いのまま、着地点にワーラットの頭を地面に減り込ませた。*
 
 &nbsp;
 
-You're buried in there!
+"You will be buried here!!"
 
 *「お前は、ココで、埋まって、な！！」*
 
 &nbsp;
 
-Worlat's head fell to the ground and he panicked, but there was nothing he could do.
+The Wrat's head sank into the ground, struggling in panic but unable to do anything.
 
 *ワーラットは頭を地中に減り込まらせ、慌てもがくがどうする事も出来ない。*
 
-Soon, the black mass rushes in as a tsunami.
+Soon, the black mass surged like a tsunami.
 
 *やがて、黒い塊が津波となって押し寄せてくる。*
 
-When the first group entered the plaza, he once again applied "Spread Hate" to them.
+As the front line entered the clearing, Suzy cast ≪Spread Hate≫ once more.
 
 *その先頭が広場へ入った所で、もう一度≪スプレッド・ヘイト≫を重ね掛けした。*
 
-Black waves pulsed loudly, revealing anger.
+The black wave surged angrily, pulsating wildly.
 
 *黒い波が怒りを露わに、大きく脈打った。*
 
-As if it wanted to crush Susie, it became a huge tsunami and came at her.
+It seemed as if the wave was trying to crush Suzy.
 
 *スージィを覆い潰そうとでも言う様に、巨大な津波になり伸し掛かって来た。*
 
-But Suzy quickly leapt back from the center of the square to the edge.
+But Suzy quickly jumped back from the center of the clearing to the edge.
 
 *だがスージィは、素早く広場の中心から端まで跳び退いた。*
 
-He then continued to wait for the black wave to catch up with him and began to run counterclockwise around the outer perimeter.
+She waited for the black wave to catch up to her and began to run counterclockwise along the outer perimeter.
 
 *そしてそのまま黒い波が自分に追いつくのを待ち、外周部分を反時計回りに走り始めた。*
 
 &nbsp;
 
-Following Suzy, a huge wave begins to circle around the square.
+As Suzy ran, the massive wave chased after her, swirling around the clearing.
 
 *スージィを追い、巨大な波が広場の中を回り始める。*
 
-Suzy goes around the square, adjusting her speed so as not to leave the black wave behind or be overtaken by it.
+Suzy adjusted her speed to avoid being left behind or caught up too quickly.
 
 *スージィは黒波を置き去りにしない様、また追い付かれ過ぎない様に速度を調節しながら広場を回っていく。*
 
-Eventually, it catches up with Kurohami, but continues to circle with a smaller diameter.
+Eventually, the black wave caught up, and she began to shrink the radius of her run.
 
 *やがて黒波に追いつくが、そのまま周回する径を小さくして周って行く。*
 
-Suzy runs further, trampling the mad lemmings that catch up to her.
+As she crushed the Mad Lemmings beneath her feet, Suzy continued to run.
 
 *追い付いたマッドレミングスを踏み潰し、更にスージィは走る。*
 
-Some of them jumped to their feet, but Suzy couldn't even snatch them.
+Some tried to cling to her ankles, but they couldn't even graze her.
 
 *足元に追いすがり跳び付く物も居るが、スージィには掠る事も出来ない。*
 
 &nbsp;
 
-Eventually, by gradually reducing the number of laps run, the square becomes a whirlpool of black waves.
+Eventually, by gradually reducing the running radius, the clearing began to turn into a vortex of black.
 
 *やがて、走る周回を少しずつ小さくして行く事で、広場が黒い波の渦になる。*
 
-Suzy reached the center where the Evil Worrats were buried, where she kicked the ground and leaped into the air.
+Suzy reached the center where the Evil Wrat was buried and kicked off the ground, leaping into the air.
 
 *スージィが、イビル・ワーラットの埋まる中心部へ到達し、そこで地を蹴り上空へ跳び上がった。*
 
-The trampled warrats were crushed along with the heavily caved-in ground.
+The crushed Wrat was buried along with the deeply sunken ground.
 
 *踏みつけられたワーラットは、大きく陥没した地面と一緒に押し潰された。*
 
-The mad lemmings around them are blown away by the impact, creating a doughnut-shaped hole in the black vortex.
+The Mad Lemmings around were blown away by the impact, creating a donut-shaped hole in the black vortex.
 
 *周りに居たマッドレミングス達は、その衝撃で吹き飛ばされ、黒い渦にドーナツ状の穴が開く。*
 
-But soon after, it began chasing Suzy, trampling her friends, running up and climbing, a high whirlpool climbing up.
+But they quickly began to pursue Suzy, climbing over their fallen comrades and ascending, forming a towering vortex.
 
 *だが直ぐ様スージィを追い始め、仲間を踏みつけ駆け上がり登り、高々とした渦が登って行く。*
 
 &nbsp;
 
-The vortex rose like a tornado, trying to catch up to Suzy, who was reaching 3 to 40 meters above.
+As Suzy reached an altitude of 30 to 40 meters, the vortex rose like a tornado.
 
 *上空3～40メートルに達しているスージィに追い縋ろうと、渦が竜巻の様に立ち昇って行った。*
 
-Its appearance is a black tower of Babel.
+It resembled a black Tower of Babel.
 
 *その姿は、宛ら黒いバベルの塔だ。*
 
 &nbsp;
 
-As it nears the point of arrival and its rate of ascent slows, Suzy sees a black vortex below.
+As she neared the peak, her ascent slowed, and Suzy looked down at the black vortex.
 
 *到達点に近付き、上昇速度が落ちて行く中、スージィは下方の黒渦を確認する。*
 
-OK! Almost all of it was contained within the plaza grounds!
+Alright! It’s mostly contained within the clearing!
 
 *よし！殆ど広場敷地内に収まった！*
 
-He pulled out one of his swords with his right hand, gathered magic power, and thrust it toward the center of the vortex.
+She drew one of her swords with her right hand, gathering magic power and pointing it toward the center of the vortex.
 
 *剣を一本右手で引き抜き、そのまま魔力を溜め、渦の中心へ向かい突き付けた。*
 
 &nbsp;
 
-Kelm eigo spero eude." Suzy Cloud, daughter of Cloud, who is a member of Amukam, seeks and appeals to Salamander, the Great Guide of the Fire. With his flame, strike down my enemies! ≪FIRE BREAD!"
+"Kelm Eigo Spero Eude. I, Suzy Cloud, daughter of Howard Cloud and Sonia Cloud, call upon the great fire guide Salamander. With that flame, grant me the power to vanquish my enemies! ≪Fire Bullet≫"
 
 *「ケルム・エイゴ・スペロ・エウデ。アムカムに連なるクラウドの娘スージィ・クラウドが求め、大いなる火の導き手サラマンデルに訴える。その焔を以って我が敵を討ち払い賜え！≪ファイア・ブレッド≫」*
 
 &nbsp;
 
-It is not our own offensive magic, but a celebration of the spirit magic we have learned here.
+This was not her own attack magic but the incantation for the spirit magic she had learned here.
 
 *それは自前の攻撃魔法では無く、此処で覚えた精霊魔法の祝詞だ。*
 
-The magic used is the same magic that Carl used, which shoots out elementary fireballs.
+The magic she used was the same basic fireball spell that Karl had used.
 
 *使うのは、カールが使ったのと同じ、初級の火の玉を撃ち出す魔法。*
 
-However, the amount of magic power used for its use was different. The magic value invoked was off the charts.
+However, the amount of magic power used for this was on a completely different level. The magic power unleashed was extraordinary.
 
 *だが、その使用に用いられた魔力量が違った。発動された魔力値が桁はずれだった。*
 
-The size of the fireball that manifested there was over five meters in diameter.
+The fireball that manifested exceeded five meters in diameter.
 
 *そこに顕現した火球の大きさは、直径5メートルを超えていた。*
 
-A huge mass of dense flame shot out with a roar, instantly burning and scattering the black tower like paper and shooting away the ground.
+With a roar, the dense mass of flames shot forth, instantly incinerating the black tower and sweeping the ground clean.
 
 *轟音と共に撃ち出された密なる焔の大塊は、一瞬で黒い塔を紙の様に燃やし散らせ、地上を撃ち払った。*
 
-The fireball gutted the ground in an area of about 50 meters square and turned it into charcoal.
+The fireball gouged out an area of about 50 meters square, turning it to ashes.
 
 *火球は、地上をおよそ50メートル四方に渡り抉り飛ばし、消し炭に変えた。*
 
 &nbsp;
 
-"・・・・・・・・・・・・・"
+".........................."
 
 *「・・・・・・・・・・・・・」*
 
 &nbsp;
 
-Suzy looks at the ground as she descends, bites her lip inward and breaks out in a grand cold sweat.
+As Suzy descended and looked at the ground, she bit her lip, breaking out in a cold sweat.
 
 *スージィが降下しながら地上を眺め、唇を内側に噛み締めて盛大に冷や汗を流す。*
 
 &nbsp;
 
-Did I... overdo it?
+"Did I... go overboard?"
 
 *「や・・・やり、過ぎ・・・た？」*
 
 &nbsp;
 
-and the rodent's face emerged from Suzy's chest and began to make a commotion, as if excited.
+When she landed on the ground, Algernon popped out of her chest, excitedly chirping, "Kikikikikyu! Kikyu kikyu kikyu!!"
 
 *地上に降り立つと　キキキキキューーーッッ！キキュキキュキキキュキュキューーーーーッッ！！　と、齧歯目が興奮した様に、スージィの胸元から顔を出し騒ぎ出した。*
 
 &nbsp;
 
-Aahhhh! Nyun nyun nyun nyun nyun! So! That's why! Don't let them find out......no! ...tee...baaaah...! Nnnn!
+"Ugh! No! I told you not to move! ...Right?!"
 
 *「ァっン！にゅンんにゅーっっ！だ！だからァっ！アばれちゃぁ・・・ダメっ！・・・て、ばあぁ！ンん！！」*
 
 &nbsp;
 
-Suzy collapses, holding her chest.
+Suzy pressed her chest and collapsed.
 
 *スージィが胸元を抑え崩れ込んでしまう。*
 
 &nbsp;
 
-Kickee! Kikki kikki kikki kikki kikki kikki kikki kikki kikki kikki kikki kikki kikki! Cu-cu-cu-cu-cu-cu-cu-cu! Kikikikyukyukyukyukyukyukyukyukyukyukyukyuk!   squeak squeak squeak squeak squeak squeak squeak squeak squeak!
+"Kikikikikyu! Kikikikikyu! Kikikikikyu! Kikikikikyu! Kikikikikyu! Kikikikikyu! Kikikikikyu! Kikikikikyu!"
 
 *キキューー！キッキキュキュキューキュキュキュッキュキュキュ！キュキュキューキュキュ！キキキュッ！キキキキキュキッキキュキュキューキュキキッキュキキキュー！キキキュキキキキュキュ！キキキュ！！！*
 
-Wow! This many swarms in just one moment? It's too much! Miss! From now on, you can think of me as your brother! I'll follow you! Miss!
+Amazing! That was instantaneous for such a huge horde! You're incredible, Sis! From now on, let me be your little brother! I’ll follow you anywhere, Sis!!!
 
 *すげーー！こんだけの大群一瞬じゃないっすか！凄過ぎだぜ！姐さん！これからはアッシを舎弟と思って下せい！付いて行きヤスぜ！姐さん！！！*
 
 &nbsp;
 
-I don't know, I don't know what you just said, but... you seemed strangely condescending, or was that just my imagination?"
+"What? I didn’t quite catch what you just said... but it felt oddly servile, was that just my imagination?"
 
 *「な、何だか、今ナニ言ったか、良く分んなかったけど・・・妙に、卑屈っぽく、感じたのは、気のせい？」*
 
 &nbsp;
 
-Still breathing a little raggedly, Suzy, her eyebrows raised, looked down at Algernon and muttered, "I'm not sure I'm going to be able to do this.
+Still slightly out of breath, Suzy looked down at Algernon with a frown.
 
 *まだちょっと乱れた息のまま、眉を寄せたスージィがアルジャーノンを見下ろして呟いた。*
 
-Algernon looked up at Suzy with a laughing "kikkikkikkieu.
+Algernon chirped back, "Kikikikikyu!" as if laughing, looking up at Suzy.
 
 *アルジャーノンは　キッキッキッキュー　と笑う様に鳴いて、スージィを見上げ返した。*
 
 &nbsp;
 
-Oh! Oh, no! I've got to get rid of the last one! Algernon! If you're gonna follow me, you'd better behave this time, okay?
+"Oh no! I need to clean up the last bit! There are quite a few dogs and bats scattered throughout the village, so I need to take care of them!"
 
 *「あ！イケナイ！最後の、始末しなきゃ！アルジャーノン！付いて来るなら、今度こそ、大人しく、してなさい、よ？！」*
 
 &nbsp;
 
-Kikyuu!　and rodent eyes that only respond well.
+“Kikyuu!” chirped the eager rodent in response.
 
 *キキュー！　と返事だけは良い齧歯目。*
 
 &nbsp;
 
-Suzy tucked Algernon back into her chest and began to move.
+Suzie tucked Algernon back into her chest and began moving.
 
 *スージィはアルジャーノンを再び胸元に納め、移動を始めた。*
 
-The goal is to get to the main culprit, probably this time the one who shot down and left earlier.
+Her target was likely the main culprit she had shot down and left behind earlier.
 
 *目指すのは、先程撃ち落として放置した恐らくは今回の主犯。*
 
-When I was tagged, I knew this guy was a "True Vampire".
+When she tagged him, she realized he was a "True Vampire."
 
 *タゲった時にソイツは『トゥルーヴァンパイア』だと分かった。*
 
-I think you mean true ancestors?　Susie thinks.
+"I think that means progenitor, right?" Suzie pondered.
 
 *確か真祖って事だっけ？　とスージィは考える。*
 
 &nbsp;
 
-(I'd like to get rid of the infidels who attack this village as soon as possible, but since they're true vampires, they've probably been here for a long time. (I'd like to get rid of the infidels who are attacking our village as soon as possible, but since they are true vampires, they've probably been around for a long time.)
+(I’d love to quickly take down any scoundrel attacking this village, but since he’s a True Vampire, he must have been around a long time. So, I should pull as much information out of him as I can!)
 
 *（この村を襲って来る様な不届き者は、サッサと始末しちゃいたいけど、トゥルーヴァンパイアって事は長く存在してんだろうから。この際だから、聞き出せる事は出来るだけ引き摺り出さないとね！）*
 
 &nbsp;
 
-It was easy to find.
+She was able to find him immediately.
 
 *それは直ぐに見つける事が出来た。*
 
-A sickening presence hangs over the area.
+He was emitting an unsettling aura, spreading it around like sewage from a sprinkler.
 
 *気持ちの悪い気配を辺りに垂れ流している。*
 
-To Susie, it looked like this guy was using a sprinkler to spread the sewage.
+To Suzie, it was as if he were spraying contaminated water everywhere.
 
 *スージィには、ソイツが汚水を散水機で拡散している様にしか思えなかった。*
 
 &nbsp;
 
-Ugh, what a creep."
+"Ugh, that’s so gross."
 
 *「うあ、なんか、キモッ」*
 
 &nbsp;
 
-That was Susie's impression when she found the thing floundering on the ground.
+That was Suzie's reaction when she spotted him writhing on the ground.
 
 *それが、その地面でのたうつモノを見つけた時のスージィの所感だ。*
 
-I don't mean that it looks like it.
+It wasn’t his appearance—
 
 *見た目が、と云う事では無い。*
 
-The atmosphere that it emitted around the area was full of a sense of impurity, as if it was spreading filth.
+it was the aura he emitted, filled with a filthy, defiling sensation, as if spreading garbage around.
 
 *ソレが辺りに放つ気配が、まるで汚物を巻き散らかす様な、不浄感に満ちていたからだ。*
 
 &nbsp;
 
-You're the boss?
+"Are you the ringleader?"
 
 *「お前が、親玉？」*
 
 &nbsp;
 
-Suzy asked with a raised eyebrow as she looked down at Sole at her feet.
+Suzie looked down at him with a frown, her expression twisted with disgust.
 
 *スージィがソレを足元に見降ろしながら、眉根を寄せて問いかけた。*
 
-The presence it emits is so fearless that I feel as if I am looking at excrement and cannot look directly at it.
+His aura was so vile that it felt like looking at waste, making it hard to keep her gaze on him.
 
 *余りにもソレが放つ気配が悍ましく、排泄物でも見ている様な気分になって直視できないのだ。*
 
 &nbsp;
 
-What the hell did you do? What the hell did you do? What did you do with those kids?
+"What the hell are you?! What did you do?! What did you do to those kids?!"
 
 *「何なんだお前はっ？！一体何をしたっ？！！あの子達をどうしたっ！？」*
 
 &nbsp;
 
-The vampire bared his fangs and glared down at Suzy with veins floating in his skin.
+The vampire bared his fangs, veins bulging as he glared up at Suzie.
 
 *そのヴァンパイアが牙を剥き出し、皮膚に血管を浮き上がらせスージィを下から睨みつけた。*
 
 &nbsp;
 
-What did you do? He attacked me, so I just kicked his ass, okay?"
+"What did I do? You attacked, so I just smacked you down, that’s all."
 
 *「何をした？って、襲ってきたから、ブッ飛ばした、だけ、よ？」*
 
 &nbsp;
 
-What is this guy talking about? Suzy replied.
+Suzie responded as if to say, What’s this guy even talking about?
 
 *何を言っているんだコイツは？と言わんばかりにスージィが答えた。*
 
 &nbsp;
 
-I have a question, though.
+"Anyway, I have something I want to ask you."
 
 *「それより、聞きたい事、あるんだ、けど」*
 
 &nbsp;
 
-It doesn't matter, he asked with a wave of his palm.
+She waved her hand dismissively, showing she didn’t care about his grievances.
 
 *そんな事どうでも良い、と掌を振りながら問いかけた。*
 
 &nbsp;
 
-You know what a child eater is, don't you?
+"Do you know something called a Child Eater?"
 
 *「アンタ、チャイルドイーター、って知って、る？」*
 
 &nbsp;
 
-The vampire opens his eyes and looks up at Suzy in surprise.
+The vampire’s eyes widened, looking up at Suzie in shock.
 
 *ヴァンパイアが目を見開き、驚いた様にスージィを見上げてくる。*
 
 &nbsp;
 
-Are you serious?"
+"Are you serious?"
 
 *「お前っ、本気で言ってるのかっ？」*
 
 &nbsp;
 
-Susie raised her eyebrows in disgust.
+Suzie’s brow furrowed in irritation.
 
 *スージィがムッとした様に眉根を寄せた。*
 
 &nbsp;
 
-Do you know? Don't you know? If you don't know, that's okay.
+"So, do you know, or don’t you? If not, then that’s fine."
 
 *「知ってる、の？知らない、の？知らない、なら、別に、良いんだけど」*
 
-I'm Orbet Mash! I am Orbet Mash! I am the noble being you lowly mortals call 'Childeater'!
+"Don’t mock me! I am Orbet Mash! I am the exalted being you lowly humans call the ‘Child Eater’!!"
 
 *「ふざけるなっ！ボクがオルベット・マッシュだっ！ボクがっ、お前ら下賤な人間が『チャイルドイーター』と呼ぶ崇高なる存在だっ！！」*
 
 &nbsp;
 
-Susie raised her eyebrows more and more and looked down at the being that was crawling on the ground and emitting an aura of filth.
+Suzie furrowed her brows even more, looking down at the creature sprawled on the ground, emitting an aura like filth.
 
 *スージィが益々眉根を寄せ、胡散臭げに地に這い蹲い、汚物の様なオーラを発する存在を見下ろした。*
 
 &nbsp;
 
-"Or... bed? Soo-ko? I didn't know your name, but... yeah, you're... you're... you're... you're... you're... you're... you're... you're...
+"Or… bet? Exalted? …Ew… I didn’t know your name… but so, you’re the one… I see."
 
 *「おる・・・ベット？すぅーこぉー？・・・ぅェ・・・名前は、知らなかったけど・・・そう、アンタが・・・そうなの」*
 
-Damn it! What do you mean? Those kids are nowhere to be found! Why? Why can't I get my body back? Damn it! What did you do to me? What the hell did you do to me?
+"Damn it! What’s going on?! Those kids are nowhere to be found! Why won’t my body regenerate?! Damn it! You! What have you done to me?!"
 
 *「ちくしょうっ！どう云う事だっ！あの子達が何処にもいないっ！何故だっ？！何故ボクの身体は元に戻らないっ？！ちくしょうっ！お前っ！一体ボクに何をしたっ？！！」*
 
 &nbsp;
 
-Orbet's lower body, which had been crushed by Suzy, was still crumbling slightly, with white smoke billowing out of it without being repaired.
+Orbet’s lower body, shattered by Suzie, continued to emit wisps of white smoke, crumbling little by little without repair.
 
 *オルベットの下半身は、スージィに打ち砕かれたまま修復される事無く、シューシューと白煙を上げ今も僅かずつ崩れ続けていた。*
 
 &nbsp;
 
-Damn it! Damn it! My body! You human! What have you done to my body? You're nothing but food for us! Know your place! Humans! Damn you!
+"You… damn it! My body! You lowly human! What did you do to me?! You humans are nothing more than our ‘sustenance’! Know your place, you filthy human!! Damn it!"
 
 *「このっ！ちくしょうっ！！ボクの身体がっ！！この人間風情がっ！ボクの身体に何をしたんだっ？！！お前達はっ、ボクらの『糧』でしかないんだからなっ！身の程を知れっ！人間めっ！！ちくしょうっ！」*
 
 &nbsp;
 
-... hmmm."
+"…Hmm."
 
 *「・・・ふ～～～ん」*
 
 &nbsp;
 
-Suzy relaxes her shoulders and holds the two swords down with both hands, and stands swaying, looking down at Orbet coldly with narrowed eyes.
+Suzie relaxed her shoulders, lowering her twin blades as she swayed slightly, narrowing her eyes and gazing coldly at Orbet.
 
 *スージィが肩の力を抜いて二刀を両手で下げ持ち、ユラリと揺れ立ちながらオルベットを目を細めて冷たく見下ろす。*
 
 &nbsp;
 
-What's that look in your eye? You've got to be kidding me! What is it with these villagers? Like that old man, you are a lowly creature! Wait and see! I'll mend your wounds right now, and I'll feed you myself! You should feel honored! Oh, by the way, you have red hair, too? Ha ha! This reminds me of a girl I once had in this village! Satisfy me as much as you did that time! Ha-ha-ha-ha! Then it was the old man! I'm going to rip that old fool to shreds! Ha-ha-ha-ha!
+"What’s with that look? How dare you?! What’s wrong with the people of this village?! First that old man, and now you, acting above your station! Just you wait! I’ll heal this wound right now, and I’ll make you my sustenance myself! Be honored! Oh, and your hair is red too, huh? Haha! Reminds me of a girl I once devoured from this village! You better satisfy me as well as she did! Hahaha! After you, it’ll be that old man! I’ll tear that arrogant old man apart! Ahahaha!"
 
 *「何だその目はっ？ふざけやがってっ！何なのだこの村の人間はっ？！さっきの爺といいっ、下賤な存在の癖にっ！待って居ろっ！今すぐ傷を修復してっ、お前はボク自ら糧にしてやるっ！光栄に思うが良いよっ！そう言えばお前も髪が赤いなっ？ははっ！思い出すよっ、昔この村で頂いた娘をっ！あの時の娘の様に精々ボクを満足させろよっ！はははははっ！その後はあの爺だっ！あのふざけた爺を引き千切ってやるっ！あーはっはっはっはっ！」*
 
 &nbsp;
 
-You're the one who's been confirmed. And now I know you're just as much a pig as I am. And, uh... yeah, Howard, Dad..."
+"So you’re the one, then. And now I’m sure you’re no better than a pig. Also… I see, Howard Papa…"
 
 *「アンタで、確定って、ことね。後、アンタが、豚と、同列なのが、良く分った。それと・・・そか、ハワードパパ・・・」*
 
 &nbsp;
 
-Susie took her gaze away from Orbet and looked into the distance, her eyes narrowed lovingly.
+Suzie took her gaze off Orbet, looking off into the distance with a softened, affectionate expression.
 
 *スージィが視線をオルベットから外し、遠くへ向け愛おしげに目元を細めた。*
 
 &nbsp;
 
-What? Don't play with me! You can't put me together with a pig like you! You trashy worm! Damn you! Why? Why can't I get my body back? Damn you, damn you! What the hell did you do? Is it the priest's technique? What the hell? What are you? I didn't know there was anyone like you! Who are you?
+"W-What?! Don’t mock me! Comparing me to a pig, you worthless insect! Damn it! Why?! Why won’t my body regenerate?! Damn it, damn it! What did you do?! Was it some priest’s spell?! What are you?! I’ve never heard of anyone like you! Who are you?!"
 
 *「なっ？！ふざけるなよっ！ボクを豚風情と一緒にするなどっ！このゴミ虫がっ！畜生っ！何故だっ！何故身体が戻らないんだっ？！！畜生っ畜生っ！一体何をしたっ？！司祭の術かっ？！一体なんだっ？お前は何なんだっ？！お前みたいのが居るなんて聞いていないぞっ！！何者なんだお前はっ？！」*
 
 &nbsp;
 
-Suzy sheathes her sword as she does so.
+As Suzie sheathed her swords,
 
 *スージィが剣を鞘へ納めながら。*
 
 &nbsp;
 
-I'm Suzy Cloud... I'm Suzy Cloud. I am Suzy, daughter of Howard Cloud and Sonia Cloud. Yes... I am Suzy Cloud! Their daughter! Susie Cloud!
+"Me? I am Suzie Cloud… daughter of Howard Cloud and Sonia Cloud. That’s right… I am Suzie Cloud! Their daughter! Suzie Cloud!!"
 
 *「わたし？わたしはスージィ・クラウド・・・。ハワード・クラウドと、ソニア・クラウドの娘の、スージィ。そう・・・わたしはスージィ・クラウド！お二人の娘！スージィ・クラウド！！」*
 
 &nbsp;
 
-Susie announces my name loudly and proudly.
+Suzie proudly declared her name,
 
 *高らかに、誇らしげに我が名を告げるスージィ。*
 
-His face was satisfied, and his smile was full of joy.
+her face filled with joy and satisfaction.
 
 *その顔は満足そうに、喜びに満ちた微笑みを湛えていた。*
 
-Kikyu and Rodent also poked their heads out of their chests and looked up into Suzy's proud face.
+With a kikyuu, the small rodent peeked out from her chest, looking up at her proud expression.
 
 *キキュ　と齧歯目も胸元から顔を出し、スージィの誇らしげな顔を覗き上げる。*
 
@@ -2773,147 +2772,144 @@ Kikyu and Rodent also poked their heads out of their chests and looked up into S
 
 &nbsp;
 
-What the hell is this guy talking about ......?"
+"W-What is she talking about…?"
 
 *「なっ、何を言ってるんだコイツっ……？」*
 
 &nbsp;
 
-Orbet mutters to himself.
+Orbet muttered in confusion.
 
 *そう呟くオルベット。*
 
-He squinted at the orbette and continued, "And then..." He continued, "I've had enough of this.
+Narrowing her eyes at him, Suzie continued, exasperated, as if telling him to finally realize the truth.
 
 *そのオルベットに目を細めながら　それからね　と、いい加減に気付けと呆れた様に続けた。*
 
 &nbsp;
 
-"When people die, they don't come back. A dead person's wounds don't heal, okay?"
+"People don’t come back once they’re dead. Wounds on a dead body… don’t heal, you know?"
 
 *「人は、死んだら、戻らない。死んだ人間の、傷は、治らないの、よ？」*
 
 &nbsp;
 
-Didn't you know?　Suzy tells Orbet.
+"Didn’t you know that?" Suzie informed Orbet.
 
 *知らなかったの？　とスージィはオルベットに告げる。*
 
 &nbsp;
 
-What? What are you saying? I am immortal! I am an immortal being who has transcended death! I am the ruler of the dark night! I am the master of the dark night!
+"W-What are you saying?! I am undead! An immortal who has transcended death! Such trivial human notions are beneath me! I am the ruler of the night!"
 
 *「なっ？何を言っているっ？！！ボクは不死者だっ！死を超越した不滅の存在だっ！そんな人間共の常識などっ！！ボクは闇夜の支配者なんだぞっ！！」*
 
 &nbsp;
 
-Suzy cowered her shoulders in disgust and exhaled.
+Suzie shrugged, letting out a sigh of disbelief.
 
 *スージィが呆れた様に肩を竦め　フゥ　と息を吐く。*
 
 &nbsp;
 
-"Right? I'm just following the natural order, right? Besides..."
+"Oh, really? You’re just following the laws of nature, aren’t you? Besides…"
 
 *「そ？自然の摂理に、従っているだけで、しょ？それに・・・」*
 
 &nbsp;
 
-He pointed his finger in the distance as if trying to gauge the distance and muttered, "That way," and then he ran to Orbette and ...... her body.
+She pointed off into the distance, saying, "Over there," then dashed toward Orbet, and with all her might…
 
 *そう言って目測を図る様に指を遠くに指し示し　あっちね　と呟くと、トットットッと小走りにオルベットに駆け寄り、その身体を……。*
 
 &nbsp;
 
-thud
+Bam!
 
 *ドッゴォォォン*
 
 &nbsp;
 
-I kicked him as hard as I could.
+She kicked him, sending his body flying in an arc into the forest.
 
 *思い切りけり飛ばした。*
 
 &nbsp;
 
-"Bokyabobo ！！！！"
+"G-Guh!!"
 
 *「ボきゃぶぼォっ！！！！」*
 
 &nbsp;
 
-Orbet's body arcs and flies beyond the forest.
+Orbet’s body traced an arc and disappeared into the forest beyond.
 
 *オルベットの身体が弧を描き、森の彼方へ飛んで行く。*
 
 &nbsp;
 
-I don't care how good you are. I can't picture you beating Howard Dad, not even for a second!
+"No matter how strong you think you are, I can’t imagine you standing a chance against Howard Papa! Not even for a second!"
 
 *「アンタがどんだけ、万全だろうと。ハワードパパに、勝てるイメージが、1ミリも浮かばない、わよ！」*
 
 &nbsp;
 
-He put his hands on his hips and turned his mouth into a grunt and said to Orbet, who was no longer there.
+With her hands on her hips and a defiant frown, she declared to the now-absent Orbet.
 
 *腰に手を当て口をへの字にして、最早そこには居ないオルベットに向け言い放った。*
 
 &nbsp;
 
-Well," he said! We have to clean up! There are dogs and bats scattered all over the village, so we have to clean up!
+"Alright! Time to clean up! There are dogs and bats scattered all over the village, so we’ll need to deal with that!"
 
 *「さて！後片付け、しないと！村の中、結構広範囲に、犬と蝙蝠が、散ってるから、片付けしないと、ね！」*
 
 &nbsp;
 
-With his hands on his hips, he looked backward and muttered.
+With her hands on her hips, she turned back and murmured.
 
 *腰に手を当てたまま、後方を振り返り呟いた。*
 
-The rodent's eyes, which poke out from the chest, also answer with a kikku.
+The rodent peeked out from her chest and chirped in agreement.
 
 *胸元から顔を出す齧歯目も　キキュッ　と答える。*
 
 &nbsp;
 
-By the time I'm done cleaning up, Howard's dad will be done, so I'm going to have to give him a workout!"
+"By the time I finish cleaning up, Howard Dad should be done too, so I need to reward him!"
 
 *「片付け、終わる頃には、ハワードパパの方も、済んでるだろうから、労いをして、差し上げないと、ね！」*
 
 &nbsp;
 
-Cicu!
+Kikikyu!
 
 *キキュ！*
 
 &nbsp;
 
-Then go back to school, to your friends! Algernon!
+"Then we’ll return to school and everyone’s place, Algernon!"
 
 *「そしたら、学校に、皆のトコロ、戻ろ！アルジャーノン！」*
 
 &nbsp;
 
-Kikikikyuu! and the rodent's eyes squealing happily.
+Algernon chirped happily.
 
 *キキキキューッ！と嬉しげに鳴く齧歯目。*
 
-Suzy ran straight through the forest and back into the village.
+Suzy dashed out of the forest and back into the village.
 
 *スージィはそのまま森を抜け、村の中へと走り戻って行った。*
-
-
 
 &nbsp;
 
 ----------------
 
-I'll bring flowers tomorrow.
+Tomorrow, I’ll bring flowers.
 
 *明日、花を持って行こう。*
 
-Next "Flowers for Lavinia Cloud"
+Next time: "A Bouquet for Lavinia Cloud"
 
 *次回「ラヴィニア・クラウドに花束を」*
-

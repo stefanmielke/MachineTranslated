@@ -1,120 +1,120 @@
-# 26 - Suzy Cloud stands in.
+# Episode 26: Suzy Cloud's Match
 
 ## 26話　スージィ・クラウド立ち合いをする
 
-Sue. Come to the training ground today."
+"Su, you should come to the training ground today."
 
 *「スー。今日こそは修練場へおいでよ」*
 
 &nbsp;
 
-At lunch, Kara told me abruptly.
+It was suddenly said by Carla during lunch.
 
 *昼食時、唐突にカーラに言われた。*
 
 &nbsp;
 
-I'll still be here for the summer, but it's the only day we can do hand-to-hand combat at school, right? I'll still be here for the summer, but we can only have our hand-to-hand combat at school today, right?"
+"Well, we graduate tomorrow. We'll still be here during the summer, but today is the only day we can practice together at school, right?"
 
 *「もうワタシ達、明日で卒業だしね。夏の間はまだコッチに居るけど、学校での手合わせは今日しかできないでしょ？」*
 
 &nbsp;
 
-Last week we took five days to complete the contract for all the attributes.
+Last week, we completed contracts for all attributes over five days.
 
 *先週は五日間かけて、全属性の契約を済ませた。*
 
-Yesterday, at the beginning of the week, under the guidance of a priest, we conducted a trial of each of the attributes.
+Yesterday, under the guidance of the priest, we conducted trials for each attribute.
 
 *週初めの昨日は神官指導の下、それぞれの属性の試行を行った。*
 
 &nbsp;
 
-Is it a break in the magic study?
+Is it a milestone in studying magic?
 
 *魔法の勉強の区切りと言えば区切りかな？*
 
 &nbsp;
 
-Suzy was thinking as she munched on a clubhouse sandwich made with thick roast beef.　Ah, the combination of beef and mustard makes my happiness flow in....
+Suzy thought while chewing on a thick roast beef clubhouse sandwich. Ah, the combination of beef and mustard brings happiness flowing in...
 
 *とスージィは分厚いローストビーフを使ったクラブハウスサンドをモキュッモキュと咀嚼しながら考えていた。　あぁビーフとマスタードが合わさって幸せが流れ込んでくりゅ…。*
 
 &nbsp;
 
-Not that it's my last memory, but how about ......?"
+"It's not like it's the last memory or anything... what do you think?"
 
 *「最後の思い出って訳でもないけど……どう？」*
 
 &nbsp;
 
-As a matter of fact, Suzy's skill at holding back had improved after dealing with Stefan for the past few days.
+In fact, Suzy's skill in holding back had improved over the past few days from sparring with Stefan.
 
 *実の所、ここ数日ステファンを相手にしていた事でスージィの手加減スキルは上がっていた。*
 
-By softly clad in "Ki", he has gained confidence in his ability to stand without injuring his opponents.
+By softly wrapping her "ki," she had gained confidence in her ability to move without injuring her opponent.
 
 *柔らかく『氣』を纏う事で、相手を怪我させない立ち回りに自信が付いて来たのだ。*
 
 &nbsp;
 
-Named "Friendly Fingers".
+She named it "Friendly Finger."
 
 *名付けて『フレンドリー・フィンガー』*
 
-I don't think this will hurt them by mistake! I think this will not hurt them by mistake!
+With this, I don't think I'll accidentally hurt my opponent! she thought, snorting inwardly.
 
 *これなら、間違って相手を怪我をさせる事無いと思うんだ！と、心の内で鼻息を飛ばす。*
 
 &nbsp;
 
-Yes...okay...today...I'm going...today!
+"Okay... I understand... I'll go... today!"
 
 *「はい・・・わかりました・・・きょうは・・・いきます・・・です！」*
 
-Really? Yay! I'm soooo happy! I'm so happy!
+"Really!? Yayyy! Su! I'm so happyyy!!"
 
 *「ホント！？やったーーー！スー！うれしいよーーー！！」*
 
 &nbsp;
 
-And for some reason, Dana hugged me.
+For some reason, Dana hugged her.
 
 *と何故がダーナが抱き付いて来た。*
 
 &nbsp;
 
-Mooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo!"
+"Mogimyu!"
 
 *「もぎゅみゅっ！」*
 
-What?" Sue-chan, you're going? Then I have to go too! I have to watch her! I have to watch over you!
+"Huh? Su-chan is going? Then I have to go too! Yes! I have to watch over you properly!"
 
 *「え？スーちゃん行くの？ならわたしも行かないと！うん！ちゃんと見ていてあげないと！」*
 
-You're totally Sue's protector!"
+"You're totally Su's guardian now, huh?"
 
 *「なんかアンタ、すっかりスーの保護者ね！」*
 
-Then I might as well go and see what's going on."
+"If that's the case, I might as well go watch too."
 
 *「それなら、せっかくだし私も見に行こうかな」*
 
-What?" You're all going? I'm going, too. Bibi, are you coming?"
+"Huh? Everyone's going? Then I'll go too. Vivi, aren't you coming?"
 
 *「え？みんな行くの？それじゃ私も行こーー。ビビ、アンタは来ないの？」*
 
-Yes, let's go! I'm going anyway! I'm going! See? Algernon!
+"I-I'm going! I have to anyway! I'm going! Right, Algernon!"
 
 *「い、行くわよ！どうせですもの！行くわ！ね？アルジャーノン！」*
 
 &nbsp;
 
-Kikikyu! The rodent answers, "I'm sorry.
+Kikikyu! replied the rodent.
 
 *キキキュ！と答える齧歯目。*
 
-It looks like all the girls are going to the training center today.
+It seems all the girls are going to the training ground today.
 
 *今日は女子は全員修練場へ行く様だ。*
 
@@ -136,45 +136,45 @@ It looks like all the girls are going to the training center today.
 
 &nbsp;
 
-What? Susie's coming over here today? Yay!
+"Huh? Suzy is coming here today? Yayyy!!"
 
 *「え？スージィ今日はコッチに来んの？やったぁっ！！」*
 
 &nbsp;
 
-Irving came up to Suzy on his way to the training ground looking very happy.
+Irvin approached Suzy, who was heading to the training ground, looking unusually happy.
 
 *アーヴィンが、やたら嬉しそうに修練場に向かうスージィの傍へ寄って来た。*
 
 &nbsp;
 
-Irving? I think you're a little too close!"
+"Irvin? I think you're a bit too close!"
 
 *「アーヴィン？ちょっと近すぎると思うんだけど！」*
 
-What? Bibi? Why is Bibi even here?"
+"Huh? Vivi? Why are you here too?"
 
 *「え？ビビ？なんでビビまでいんの？」*
 
-I'm not allowed to go!"
+"Am I not allowed to go!?"
 
 *「アタシは行っちゃいけないの！？」*
 
-No, no! No, it's not like that! I was just wondering if it was unusual..."
+"N-No! It's not that! I just thought it was unusual..."
 
 *「い、いや！そんな事無いけど！珍しいかな～って…」*
 
-Don't worry, Irving! I'll show you the way!"
+"Don't worry, Irvin! I'll guide you!"
 
 *「大丈夫だよアーヴィン！案内はあたしがするからさ！」*
 
-Dana! Dana! Hey, hey!
+"Wha! Dana! W-Wait!!"
 
 *「うぇ！ダーナ！ちょ、ちょっと！！」*
 
 &nbsp;
 
-Irving hurriedly chases after Suzy, who is surrounded by Dana and the other girls and taken away.
+Irvin hurriedly chased after Suzy, who was being taken away by the girls.
 
 *ダーナ達女子に囲まれて連れて行かれるスージィを、アーヴィンが慌てて追いかける。*
 
@@ -182,57 +182,57 @@ Irving hurriedly chases after Suzy, who is surrounded by Dana and the other girl
 
 &nbsp;
 
-The training hall was made of logs like a log house, and looked like a small gymnasium about 20 meters on each side.
+The training ground was like a log cabin, a small gym about 20 meters on each side.
 
 *修練場の作りはログハウスの様な丸太作りで、一辺が20メートル程の小さな体育館の様だった。*
 
-Suzy commented that the floor was just the same as the hardened ground, like a big sumo training ground.
+The floor was just packed earth, resembling a large sumo practice area, Suzy thought.
 
 *床は固められた地面がそのままで　大きな相撲の稽古場みたいだな　とはスージィの感想。*
 
 &nbsp;
 
-We'll change, but Sue, you don't have a change of clothes, do you?"
+"We'll change, but... Su, you don't have a change of clothes, do you?"
 
 *「ワタシ達は着替えるけど…スー、あんた着替え持って無いでしょ？」*
 
 &nbsp;
 
-Carla asked.
+Carla asked her.
 
 *とカーラに聞かれた。*
 
 &nbsp;
 
-(Change of clothes? Like gym clothes? I don't want to get my clothes dirty, but as long as I don't get my butt on the ground or anything?)
+(Change of clothes? Something like gym clothes? Hmm, what should I do? I didn't bring any... I don't want to get my clothes dirty, but I guess as long as I don't sit on the ground, it should be fine?)
 
 *（着替え？体育着みたいなもんかな？んーどしよ、持って来てないな…、服は汚したくないけど、地面にお尻着くとかしなきゃいいかな？）*
 
 &nbsp;
 
-No change... but... I'm... going... to... life... as... well... as... it... is... as... it... is!
+"I don't have... a change... but... I'll be fine... like this!"
 
 *「きがえ・・・ない・・・けど・・・このまま・・・へいき・・・です！」*
 
-No, no, no! You'll get it dirty. I'll lend you mine!"
+"No way! You'll get dirty! I'll lend you mine!"
 
 *「ダメダメ！汚れちゃうよ？アタシの貸してあげるから！」*
 
 &nbsp;
 
-Alicia came to me and said.　Huh? I guess it's not the right size.　Suzy said.
+Alicia said. "Huh? Won't it be too big for me?" Suzy replied.
 
 *とアリシアが言って来た。　え？サイズ合わないんじゃないかな？　とスージィが言うと。*
 
 &nbsp;
 
-Daijobu, Daijobu! Come here! Let me get you dressed!"
+"Don't worry, don't worry! Come on! I'll help you change!"
 
 *「ダイジョブ、ダイジョブ！おいで！着替えさせてあげる！」*
 
 &nbsp;
 
-He happily pulled Suzy into the changing room.
+She cheerfully pulled Suzy to the changing room.
 
 *と嬉しそうにスージィを更衣室へ引っ張って行った。*
 
@@ -240,39 +240,39 @@ He happily pulled Suzy into the changing room.
 
 &nbsp;
 
-The clothes I was given were a white sleeveless T-shirt and light yellow wide pants.
+The clothes she was made to wear were a white sleeveless T-shirt and light yellow wide pants.
 
 *着せられた服は白い袖なしTシャツと、薄黄色のワイドパンツだった。*
 
-The T-shirt is a little big, almost too big on the shoulders.
+The T-shirt was a bit big and looked like it might slip off her shoulders.
 
 *Tシャツは少し大きめで肩が出そうだ。*
 
-The pants are hemmed together with multiple folds.
+The pants were folded multiple times to adjust the length.
 
 *パンツは幾重にも折り曲げて裾を合わせている。*
 
 &nbsp;
 
-I'm sure you'll be fine! You're okay, right? Look! You're so cute!"
+"See! It's fine, right? Look! You look pretty cute!"
 
 *「ホラ！大丈夫でしょ？見て！中々可愛いわよ！」*
 
 &nbsp;
 
-Alicia proudly pushed her way in front of the other girls.
+Alicia proudly pushed her in front of the other girls.
 
 *とアリシアが自慢げに他の女子たちの前へ押し出した。*
 
 &nbsp;
 
-I see! I see...the image will change.... I guess we've decided what we're going to do this summer!"
+"I see! It really changes your image... Looks like we know what to do this summer!"
 
 *「なるほど！イメージ変わるわねェ…。これはこの夏やる事決まったね！」*
 
 &nbsp;
 
-Suzy felt a slight shiver when she saw the ladies laughing at her.
+Suzy felt a bit of dread from the giggling older girls.
 
 *ウフフフフ…と笑うお姉さま方に、幾分戦慄を感じるスージィだった。*
 
@@ -280,31 +280,31 @@ Suzy felt a slight shiver when she saw the ladies laughing at her.
 
 &nbsp;
 
-In the end, Alicia and I ended up wearing matching outfits.
+In the end, she ended up in matching outfits with Alicia.
 
 *結局アリシアと御揃いの格好になった。*
 
 &nbsp;
 
-'Huh, we're like sisters, aren't we? Hey!"
+"Hehe, we look like sisters, right? Right?!"
 
 *「フフ、姉妹みたいでしょ？ねー！」*
 
 &nbsp;
 
-Alicia hugs my shoulder and rubs her cheek against me.
+Alicia said, wrapping her arm around Suzy and rubbing her cheek against hers.
 
 *と、肩を抱き頬を摺り寄せてくるアリシア。*
 
 &nbsp;
 
-Oh! That's zoolooooooooooooooooooooooooooooooooooooooooooooooooo!"
+"Ah! That's so unfair!"
 
 *「あ！それズッルーーい！」*
 
 &nbsp;
 
-and Kara. The guise of this Kara is....
+Carla exclaimed. And Carla's outfit was...
 
 *とカーラ。そのカーラの装いは…。*
 
@@ -312,267 +312,267 @@ and Kara. The guise of this Kara is....
 
 &nbsp;
 
-(Huh? Kara-san, is that black costume different from a ninja costume? You're wearing shorts, but you look like a ninja. You even put on a forehead patch! You're a ninja, aren't you? Don't ask me what his name is! Are you a ninja?)
+(Huh? Carla, that black outfit looks like a ninja costume, doesn't it? It's shorts, but it only looks like a ninja! Even has a forehead protector! Is she a stealthy person? Don't ask for a name, huh??!)
 
 *（あれ？カーラさんその黒い衣装、忍者装束と違います？短パンだけどソレ忍者にしか見えませんが？額当てまで付けて！忍びの者ですよソレ？人よ名を問うなかれ！な人ですかぁ？？！）*
 
 &nbsp;
 
-I thought it was a strange mix of different cultures. Suzy was a bit taken back.
+Suzy felt a bit taken aback by the strange cultural mix.
 
 *なんか異文化がおかしな具合に入り込んでね？と若干引き気味になるスージィだった。*
 
 &nbsp;
 
-When I finished dressing and came out of the changing room, the children had already finished gathering and the adults from the village who were assigned to teach them had also entered the training hall.
+After changing, when she came out of the changing room, the kids had already gathered, and the village adults responsible for guidance had entered the training ground.
 
 *着替えを終え更衣室から出てくると、既に子供達も集まり終え、指導に当たる村の大人も修練場に入って来ていた。*
 
 &nbsp;
 
-At the training center, village adults take turns teaching.
+The village adults took turns guiding the children at the training ground.
 
 *修練場では村の大人が交代で指導に当たっている。*
 
 &nbsp;
 
-Ryder Haggard is here today.
+Today, it was Ryder Haggard.
 
 *今日来ているのはライダー・ハッガード。*
 
-He is one of Irving's older brothers.
+He was Irvin's older brother.
 
 *アーヴィンの一つ上の兄だ。*
 
 &nbsp;
 
-Ryder is 24 years old this year, and until last year, he served four years in a military role in the Knights of the King's Landing, a very talented group.
+Ryder was 24 this year and had served four years in the knight's order in the royal capital until last year.
 
 *ライダーは今年で24歳、去年まで王都の騎士団で軍役を4年間務めた実力派だ。*
 
 &nbsp;
 
-Rider looked around at the children in the training hall and saw Suzy, whom he had never seen before, .......
+Looking over the children in the training ground, Ryder spotted Suzy, whom he had never seen before...
 
 *修練場に居る子供たちを見渡し、その中に初めて見るスージィを確認したライダーは……。*
 
 &nbsp;
 
-I'm going to go to "...... what? Ravi? ...Ravi! ...... na."
+"...Huh? Ravi? ...Ravi! ...No way..."
 
 *「……え？ラヴィ？…ラヴィ！……な」*
 
 &nbsp;
 
-I opened my eyes wide and gulped.
+His eyes widened in surprise, and he gasped.
 
 *大きく目を見開き、息を飲んだ。*
 
-The image of a vivacious girl overlaps with Suzy in the eyes of the rider.
+The lively figure of a girl overlapped with Suzy in Ryder's eyes.
 
 *ライダーの眼に快活な少女の姿がスージィと重なる。*
 
 &nbsp;
 
-Anita: "Anita, it's Suzy! It's Suzy, from Mr. Cloud's place! She's training over here today!"
+"Big brother! This is Suzy, from Cloud's place! She's going to train here today!"
 
 *「アニキ！スージィだよ、クラウドさんの所の！今日はこっちで修練するんだって！」*
 
 &nbsp;
 
-Irving's words brought me back to myself.
+Ryder snapped back to reality at Irvin's words.
 
 *アーヴィンの言葉で我に返る。*
 
 &nbsp;
 
-I'm sorry, I didn't know you were a Suzy! ...I know...right...you're, you're Suzy, right? I hear you. I hope you're an inspiration to all of us!"
+"I-I see! ...Right... So you are Suzy! I've heard about you. I hope you can inspire everyone!"
 
 *「そ、そうか！…そうだよな…、君が、君がスージィか！話は聞いてる。君が皆に刺激を与えてくれる事を期待しているよ！」*
 
 &nbsp;
 
-Suzy is asked to shake hands with the rider, to which she responds.
+Ryder reached out for a handshake, and Suzy responded.
 
 *ライダーに握手を求められ、それに応えるスージィ。*
 
 &nbsp;
 
-I'll do my best!
+"Y-Yes... I'll do my best!"
 
 *「は、はい・・・がんばる・・・です！」*
 
-So, what are you good at? I've heard you can handle a sword..."
+"What are you good at? I've heard you can handle a sword..."
 
 *「それで、君は何が得意なのかな？一応剣が扱えるとは聞いているが…」*
 
-I'm the one who uses it the most.
+"Ah... yes... I use... two swords... I'm most... accustomed to that..."
 
 *「あ・・・はい・・・にとう・・・つかう・・・いちばん・・・なれて・・・ます」*
 
-"Nito?"
+"Two swords?"
 
 *「にとう？」*
 
-One...at...a...time...with...each...one...of...them!
+"Ah... I hold... one in each hand!"
 
 *「あ・・・いっぽん・・・づつ・・・もつ・・・です！」*
 
-Oh! You're a two-sword user! Well, then, you should choose one of those sword stands over there that's easy to use."
+"Oh! A dual-wielder! Then you should choose something easy to use from that sword rack over there."
 
 *「ああ！二刀使いか！それなら、そこの剣立てから使いやすい物を選ぶと良いよ」*
 
 &nbsp;
 
-When I looked in the direction Ryder pointed, I saw several boxes on the wall with swords randomly propped up in them.
+When Suzy looked in the direction Ryder pointed, she saw several boxes lined up against the wall, with swords haphazardly stuck in them.
 
 *ライダーが指差した方を見ると、壁際に幾つかの箱が置かれ、その中に無造作に剣が突き立てられていた。*
 
 &nbsp;
 
-(It looks like an umbrella stand. Oh, I saw a kendo club room once where shinai (bamboo swords) were stuck like this.
+(That looks like a stand for umbrellas. Oh, I remember seeing a kendo club's room with bamboo swords stuck like this.)
 
 *（なんか傘立てみたいだ。あ、昔見た剣道部の部室で竹刀がこんな風に刺さってたな）*
 
 &nbsp;
 
-A wooden sword was held up on the right side, and an iron object with a drawn blade was held up on the left side.
+On the right side were wooden swords, and on the left were blunted iron ones.
 
 *右の方には木刀が、左の方には刃引きした鉄製の物が差し立てられていた。*
 
 &nbsp;
 
-(Is the wooden sword for younger children? (Is it practical to have them use a wooden sword with a drawn blade?)
+(A wooden sword is probably for younger kids? Using a blunted one is quite practical, isn't it?)
 
 *（木刀は年少用かな？刃引きした物使わせるとか、やっぱ実践的？）*
 
 &nbsp;
 
-I looked through the left-most box to find a length that would be easy to use.
+Thinking this, she picked out a sword that looked easy to handle from the leftmost box.
 
 *などと考えながら、一番左端の箱から使い易そうな長さの物を見繕ってみた。*
 
 &nbsp;
 
-Oh, that's just pretending. ......
+"Ah, that's for practice swings..."
 
 *「あ、そこは素振りよ……」*
 
 &nbsp;
 
-The rider who was watching him tried to tell him that there was only a heavier weight for swinging....
+Ryder, who had been watching, was about to say that only heavier ones for practice swings were in that box...
 
 *それを見ていたライダーが　そこは素振り用の重さを増した物しかないから　と言おうとしたが…。*
 
 &nbsp;
 
-Susie lightly pulled the two swords out of the box with a swoosh of her fingertips.
+But Suzy effortlessly pulled out two swords with her fingertips, juggling them a few times to test their weight.
 
 *スージィは軽々と指先で、二本の剣をスッスッと箱から抜き取っていた。*
 
 &nbsp;
 
-As if juggling, he spun the sword from side to side several times to check its weight.
+Just like juggling, he spun the swords in each hand several times, catching them and testing their weight.
 
 *そのままジャグリングでもする様に、左右の剣を数回クルクルと回しては受け止め、重さを確かめていた。*
 
 &nbsp;
 
-He then swung both swords up and down several times as if to check the swing.
+Then, she swung both swords up and down a few times to check their balance.
 
 *その後、振り具合を確かめる様に数回、両手の剣を上下に振り動かした。*
 
 &nbsp;
 
-The sound of the wind rushing through the air! and the sound of the wind cutting through the air.
+The sound of slicing through the air echoed.
 
 *ゴウッ！と風を切る音が響く。*
 
 &nbsp;
 
-Wow! Haya!"
+"Wow! So fast!"
 
 *「うわ！はや！」*
 
-That's great, Suu-chan.
+"That's amazing, Su-chan!"
 
 *「すっごいねぇスーちゃん」*
 
-I can't believe she can swing that fast.
+"Really, to swing that fast, Su is incredible!"
 
 *「ホント、あんなに速く振れるなんて、スーってやっぱり凄いのね」*
 
-No. That's not fast or great! That thing is not fast or great! Irving! Did you see that?"
+"No way! That's not just fast or amazing! Irvin! Did you see that?"
 
 *「いや！アレは速いとか凄いとか言う次元じゃないだろ！アーヴィン！見たか？」*
 
-"Oh! Three...no, four times, he's swung down four times!"
+"Yeah! Three... no, four times! She swung down four times!"
 
 *「ああ！3…いや4回か！4回振り下ろしてる！」*
 
-Four times! Bullshit! I thought you only raised and lowered it once!"
+"Four times!? No way! Didn't she just lift and lower them once?!"
 
 *「4回！？うそ！一回上げ下ろししただけじゃないの！？」*
 
-Not only that," he said, "the sword is all the same. "Not only that, but the sword is all in the same line. I've never seen anything like that before.
+"Not just that, her blade trajectory was all the same. Not a single wobble. I've never seen anything like that."
 
 *「それだけじゃないよ、太刀筋が全部一緒だ。全くブレて無い。ワタシもあんなの初めて見た」*
 
-Chick-show! What's up? Can I go first? First to go, in that order?"
+"Damn! Can I go first? Since it's in the order we met?"
 
 *「チックショ！な？オレ最初に行かせてもらっていいか？最初に会った順って事でさ？」*
 
-Yes! Then I'm not the last! ...... Well, that's okay. Irving, can you do it?"
+"Eh! Then I won't be last! ...Well, fine. Irvin, can you do it?"
 
 *「えぇ！それじゃアタシが最後じゃない！……ま、良いけどさ。アーヴィン、アンタやれんの？」*
 
-I can do it, I can do it, I can do it! I wanna do ......!"
+"Of course! ...I want to do it!!"
 
 *「やれるも何も！……やりてぇじゃねぇかよ！！」*
 
-I'm sure you're right! Go ahead, Irving! And now it's my turn!
+"That's right! Go for it, Irvin! And then it's my turn!"
 
 *「そりゃそうだ！行っといでアーヴィン！んで次はあたしの番だ！」*
 
-Oh! Big brother! I'll go first!
+"Yeah! Big brother! I'm going first!"
 
 *「おう！アニキ！オレからだ！」*
 
 &nbsp;
 
-After telling Ryder this, Irving proceeds to the center.
+Irvin told Ryder and stepped into the center.
 
 *ライダーにそう告げ、アーヴィンは中央に進む。*
 
 &nbsp;
 
-I don't know, Irving, you've got a man's face now!
+"...Irvin has really grown into a man, hasn't he?"
 
 *「…なんだか、アーヴィンてば男の顔になっちゃったわね！」*
 
-Vivi, are you falling in love with me all over again?"
+"Vivi, have you fallen for him again?"
 
 *「ビビちゃん、惚れ直しちゃった？」*
 
-Chi! Chi! It's not like that!
+"N-No! That's not it!!"
 
 *「ち！ちが！そんなんじゃないし！！」*
 
 &nbsp;
 
-In the center of the training hall, the rider turns to Suzy....
+In the center of the training ground, Ryder faced Suzy.
 
 *修練場の中央ではライダーがスージィに向かい…。*
 
 &nbsp;
 
-I'm sorry, Susie. It's for swinging and has more weight than the other ones. If it hits you, you'll be in big trouble. Can you pick another one from the box next to it?"
+"I'm sorry, Suzy. That's for practice swings, and it's heavier than the others. If that hits you, it won't be a joke. Can you choose from the box next to it?"
 
 *「すまないスージィ。それは素振り用で他の物よりウェイトがあるんだ。それが当たるとシャレに成らなくなる。その隣の箱から選び直してもらえるか？」*
 
 &nbsp;
 
-Huh! and Suzy hurriedly begins to re-select the blade-drawing sword.
+Suzy hurriedly began to choose a blunted sword instead.
 
 *はぅぅ！とスージィが慌てて刃引き剣を選び直し始める。*
 
@@ -580,101 +580,101 @@ Huh! and Suzy hurriedly begins to re-select the blade-drawing sword.
 
 &nbsp;
 
-Where's Irving's armor?"
+"Irvin, what about armor?"
 
 *「アーヴィン防具は？」*
 
-I don't want it."
+"I don't need it."
 
 *「いらない」*
 
-That was more than I had heard. You're going to lose a bone or two."
+"That was more than I heard. You could lose a bone or two."
 
 *「あれは話に聞いていた以上だ。骨の1～2本はいかれるぞ」*
 
-Oh! If it's bones, I'll take over immediately! Don't worry, I'll take over!"
+"Oh! If it's a bone, I'll fix it right away! Don't worry about it!"
 
 *「あ！骨なら私が直ぐに継いであげる！安心してやられなさい！」*
 
 &nbsp;
 
-Jessica raised her hand and happily announced.
+Jessica raised her hand and said cheerfully.
 
 *とジェシカが手を挙げて嬉しそうに告げた。*
 
 &nbsp;
 
-That's right.
+"That's what she said."
 
 *「だそうだ」*
 
-Dear! I'm good!"
+"Well! That's fine!"
 
 *「へ！上等だよ！」*
 
-I'm fine! ... I'm not here..! I'll take care of it!
+"Don't worry! ...I won't... ...leave it to me!!"
 
 *「だいじょぶ！・・・おらない・・・です！・・・おまかせ・・・です！！」*
 
 &nbsp;
 
-I'm not sure I want to do this! and Suzy holds her hand and lets out a snort.
+Suzy clenched her fist and snorted.
 
 *ふんぬ！と手を握り鼻息を飛ばすスージィ。*
 
 &nbsp;
 
-She's kind of acting like she's on a mission! She's acting all weird!"
+"Is that girl acting a bit too eager?!"
 
 *「な、なんかあの子！変な張り切り方してない！？」*
 
-You've got a confident look on your face.
+"She looks really confident."
 
 *「なんか自信満々の顔ねぇ」*
 
 &nbsp;
 
-Suzy and Irvin face each other in the center.
+In the center, Suzy and Irvin faced each other.
 
 *中央でスージィとアーヴィンが向かい合う。*
 
 &nbsp;
 
-'Huh? Just one one-handed sword?"
+"Huh? Is one sword enough?"
 
 *「あれ？片手剣1本でいいのか？」*
 
-"Well... if it's a combination... this... is... good... for me."
+"Yeah... for sparring... this should... be fine..."
 
 *「うん・・・てあわせなら・・・これが・・・いいかな・・・て」*
 
-Well, good luck with that.
+"Okay, I'll rely on you."
 
 *「そか、よろしく頼むな」*
 
-Yeah! Nice to meet you! Irving!
+"Yeah! ...Nice to meet you! ...Irvin!"
 
 *「うん！・・・よろしくね！・・・アーヴィン！」*
 
 &nbsp;
 
-He replies to Irving with a big smile.
+She replied with a big smile.
 
 *と満面の笑みでアーヴィンに答える。*
 
 &nbsp;
 
-"! So..., that smile... is bad. ......"
+"Th-That smile... is bad..."
 
 *「だ！だから…、その笑顔は…まずいって……」*
 
 &nbsp;
 
-Hmm? Suzy tilts her head.
+Suzy tilted her head slightly.
 
 *ン？と小首を傾げるスージィ。*
 
-Irving sees this and turns red as he looks at it.
+Seeing that, Irvin's face turned red.
 
 *それを見てアーヴィンは見る見る赤くなっていく。*
 
@@ -682,15 +682,15 @@ Irving sees this and turns red as he looks at it.
 
 &nbsp;
 
-And again! Irving, you're growing a nose!"
+"Again! Irvin is getting all flustered!!"
 
 *「また！アーヴィン直ぐ鼻の下伸ばす！！」*
 
-Don't be jealous, Vivi, okay?"
+"Vivi, don't get jealous, okay?"
 
 *「ビビちゃん、妬いちゃダメよ？」*
 
-So! That's why! That's not what I said!
+"Th-That's not it!!"
 
 *「だ！だから！そうじゃないってばっ！！」*
 
@@ -698,67 +698,67 @@ So! That's why! That's not what I said!
 
 &nbsp;
 
-Ryder approaches Irving.
+Ryder approached Irvin.
 
 *ライダーがアーヴィンに近づく。*
 
 &nbsp;
 
-Irving. Should I stop?"
+"Irvin. Are you sure you want to do this?"
 
 *「アーヴィン。やめておくか？」*
 
 &nbsp;
 
-He asked Irving in a cold voice.
+He asked in a cold voice.
 
 *冷めた声でアーヴィンに問いかけた。*
 
-It is useless from the end in such a floating state. That's what that voice says.
+In such a cheerful state, it would be pointless. His tone conveyed that.
 
 *そんな浮かれた状態では端から無駄だ。その声はそう言っている。*
 
 &nbsp;
 
-I will do it! I'll do it!
+"I will! I will do it!!"
 
 *「やる！やるさ！！」*
 
 &nbsp;
 
-Irving slapped himself repeatedly on the cheek to get into the swing of things.
+Irvin slapped his cheeks several times to pump himself up.
 
 *アーヴィンは自らの頬を何度も叩き気合を入れた。*
 
 &nbsp;
 
-I'm going to go to the gym and try to get some sleep! Way to go, Aniki!"
+"Alright!! I'm ready, big brother!!"
 
 *「よっしゃ！！いいぜアニキ！！」*
 
-You can do this, right?"
+"You're sure you can do it?"
 
 *「やれるんだな？」*
 
-A man in Haggard would never back down in the face of an opponent! You know that!"
+"The Haggard men never back down in front of an opponent! Right?"
 
 *「ハッガードの男は、相手を前にしたら絶対引かねェ！そうだろ！」*
 
-That's right! All right! Come and borrow my chest!
+"That's right! Alright! Come at me with your best shot!!"
 
 *「その通りだ！よし！胸を借りて来い！！」*
 
-Oh!
+"Yeah!!"
 
 *「おう！！」*
 
 &nbsp;
 
-The rider stands in the center of the room, gives them both a visual confirmation, and lowers his high raised hand.
+Ryder stood in the center, confirmed with the two of them, and lowered his raised hand.
 
 *ライダーが中央に立ち、二人に目で確認を取り高く上げた手を降ろす。*
 
-Start! is the signal.
+The signal to start!
 
 *始め！の合図だ。*
 
@@ -766,61 +766,61 @@ Start! is the signal.
 
 &nbsp;
 
-Irving's weapon of choice is a longsword.
+Irvin's weapon was a longsword.
 
 *アーヴィンの武器はロングソードだ。*
 
-He jumps out of the way as if carrying it on his right shoulder and closes the gap with a single step.
+He charged forward, shouldering it, closing the distance in a single leap.
 
 *それを右肩に担ぐ様にして飛びだし、一足飛びに間を詰める。*
 
-We don't try to see what the other side will do.
+He didn't hesitate to gauge his opponent's reaction.
 
 *相手の出方を覗う様な事はしない。*
 
-He is aware that he is a lower-ranked player and is ready to take the plunge, even if it means taking a sword.
+He recognized he was the underdog and charged in with the resolve to land even a single hit.
 
 *自分が格下だと自覚し、一太刀でも入れるという覚悟での飛び出しだ。*
 
 &nbsp;
 
-Suzy, on the other hand, holds her sword in her left hand and stands with her hands hanging slack-jawed and lolling.
+Suzy, on the other hand, held her sword in her left hand, arms relaxed, standing calmly.
 
 *対するスージィは左手で剣を持ち、両手をだらりと垂らしてユラリと立っている。*
 
-His gaze is straight ahead and his expression is very calm.
+Her gaze was straight ahead, and her expression was very peaceful.
 
 *その視線は真っ直ぐ正面を向き、表情はとても穏やかだ。*
 
 &nbsp;
 
-Sue's vibe has changed."
+"Su's aura has changed."
 
 *「スーの雰囲気が変わったな」*
 
-"Yeah, that's scary. I wouldn't touch that if I were you."
+"Yeah, that's scary. I wouldn't dare to make a move."
 
 *「うん、ありゃコワイね、アタシだったら手を出せないな」*
 
 &nbsp;
 
-Kara and Alicia have such a conversation.
+Carla and Alicia exchanged such comments.
 
 *カーラとアリシアがそんな会話を交わす。*
 
 &nbsp;
 
-What?" Is that so? It just looks like you're standing there to me?"
+"Huh? Is that so? To me, she just looks like she's standing still?"
 
 *「え？そうなの？私にはただ立ってる様にしか見えないけど？」*
 
-There's no gap. I'm just standing there and there's no place to catch it because no matter where I hit it, it's going to be returned. Still! I'd go in there, too!"
+"There's no opening. Even though she's just standing there, it feels like no matter where I strike, it'll be countered. Still! I would charge in!"
 
 *「隙が無いんだよ。ただ立ってるだけなのに、どこに打っても返されそうで捉え所が無い。それでも！あたしも突っ込むけどね！」*
 
 &nbsp;
 
-Carla answered Colin's question in a carefree manner.
+Carla answered Colin's question without hesitation.
 
 *コリンの問いかけに、カーラが屈託なく答えていた。*
 
@@ -828,95 +828,95 @@ Carla answered Colin's question in a carefree manner.
 
 &nbsp;
 
-Irving is trying to do only one thing.
+What Irvin was trying to do was simple.
 
 *アーヴィンがやろうとしている事はたった一つだ。*
 
-You just have to deliver the best blow you have at the fastest speed.
+He just needed to unleash his best strike as fast as possible.
 
 *最速で自分の持つ最高の一撃を放つだけだ。*
 
-The sword is swung down in a kesa shape with a weighted blow from the right side.
+He swung down his sword from the right, putting his weight into it.
 
 *右側から体重をかけた一撃を袈裟形に剣を振り下ろす。*
 
-If you can catch it, don't kill the momentum, wind it up and cut it up from below!
+If it was blocked, he would continue the momentum and slice upward from below!
 
 *受けられたなら勢いを殺さず巻いて下から斬り上げる！*
 
 &nbsp;
 
-The blow released from the force of his own rush and the momentum of releasing his twisted body is right in front of Suzy's eyes.
+His thrust, propelled by his own momentum and the twisting of his body, rushed toward Suzy.
 
 *自らの突進力と捻った身体を開放する勢いから放つ一撃は、スージィの目前に迫る。*
 
 &nbsp;
 
-But Suzy shook herself slightly and struck the left side of Irving's sword with its hilt, without taking it on the sword's blade.
+However, Suzy slightly shifted her body, and without receiving the blade, she struck the left side of Irvin's sword with the pommel of her own.
 
 *しかしスージィは僅かに身体を揺らし、剣のブレードで受ける事無く、その柄頭でアーヴィンの剣の左側面を叩いた。*
 
 &nbsp;
 
-The impact of being struck from the side with the sword was unexpectedly large, and Irving was shaken to his torso, causing him to fall forward and stomp his foot on his foot bellows.
+The impact from being struck from the side was surprisingly strong, causing Irvin to lose his balance and stumble forward.
 
 *剣を横から叩かれた衝撃は存外に大きく、アーヴィンはそのまま体幹まで揺らされ、前のめりに踏鞴を踏んでしまう。*
 
 &nbsp;
 
-Half-open, Susie moved out of Irving's direction of travel and stood next to Irving's face.
+With her body angled, Suzy moved out of Irvin's path and stood next to his face.
 
 *半身を開いたスージィは、アーヴィンの進行方向から外れ、アーヴィンの顔の横に立った。*
 
 &nbsp;
 
-From that position, he placed his right finger on Irving's temple and popped it with a thump. Irving's face was thrown back and he was sent flying to the wall at a tremendous speed.
+From that position, she tapped her right finger against Irvin's temple, flicking it lightly, sending him flying toward the wall with incredible force.
 
 *その位置からアーヴィンのこめかみに右の指を当て、トンッと弾くと、アーヴィンは顔を仰け反らせ、物凄い勢いで壁まで飛ばされた。*
 
 &nbsp;
 
-Gah hah!!!?"
+"Gahhh!!?"
 
 *「がぁっはっっ！！？」*
 
 &nbsp;
 
-His back slams into the wall and the air in his lungs is squeezed out.
+He crashed into the wall, the air forced out of his lungs.
 
 *背中から壁に激突し、肺の中の空気が絞り出される。*
 
 &nbsp;
 
-（My head hurts so much! What is this? What happened? Why did I get blown up?　(What the hell happened?)
+(My head hurts like hell! What the hell? What just happened!? Why did I get blown away!?)
 
 *（頭がメッチャ痛ェ！なんだコレ？何が起きた！？何でオレは吹っ飛んだんだ！？　）*
 
 &nbsp;
 
-Irving finally rises to his feet and tries to check the situation.
+Struggling to get up, Irvin tried to assess the situation.
 
 *やっとの思いで体を起こし、状況を確認しようとするアーヴィン。*
 
 &nbsp;
 
-Irving, are you finished?"
+"Irvin, are you done?"
 
 *「アーヴィン、もう終わるか？」*
 
 &nbsp;
 
-（What are you talking about? What are you talking about? It's not over!)
+(What is he saying? There's no way it can be over!!)
 
 *（何言ってんだ？アニキは！終わりなワケ無ェだろが！！）*
 
 &nbsp;
 
-I can still do it! One more!"
+"I'm still good! One more time!"
 
 *「まだやれる！もう一本だ！」*
 
-"Okay! Ready!"
+"Alright! Get ready!"
 
 *「よし！構えろ！」*
 
@@ -928,111 +928,111 @@ I can still do it! One more!"
 
 &nbsp;
 
-In the end, Irving ended up hitting his back on the ground four times after that.
+In the end, Irvin was thrown to the ground four more times.
 
 *結局その後4度、アーヴィンは地に背を打ち付ける事になった。*
 
-Cutting up, clearing, and stabbing. They were all dodged and passed over.
+Slashes, parries, thrusts. All were dodged and countered.
 
 *斬り上げ、払い、刺突。悉く躱され、往なされた。*
 
 &nbsp;
 
-Irving, that's enough.
+"Irvin, that's enough."
 
 *「アーヴィン、そこまでだ」*
 
-Well, not yet! ...can ......"
+"Wait, wait! ...I can still..."
 
 *「ま、まだ！…でき……」*
 
-Take your shift. Get some rest.
+"It's time to switch. Rest."
 
 *「交代だ、休んでろ」*
 
 &nbsp;
 
-He tried to stand up, but his limbs would not listen to him and he fell down to the ground in a heap.
+He tried to stand up, but his limbs wouldn't cooperate, and he collapsed flat on his back.
 
 *立ち上がろうとしたが、手足が言う事を聞かず、そのまま大の字に倒れ込んでしまう。*
 
 &nbsp;
 
-Ha! ...... Ha! ...... ha! ...... ha! ......"
+"Ha! ...Ha! ...Ha! ...Ha! ..."
 
 *「はっ！……はっ！……はっ！……はっ！……」*
 
-Irving, are you okay?"
+"Are you okay, Irvin?"
 
 *「アーヴィン大丈夫？」*
 
 &nbsp;
 
-As I lay on my back, breathing heavily and trying to regain my strength, Beatrice approached me with concern.
+As he lay on his back, breathing heavily to recover his stamina, Beatrice asked with concern.
 
 *呼吸が荒いまま、仰向けで体力の回復を図っていると、ベアトリスが心配そうに声をかけてきた。*
 
 &nbsp;
 
-'Damn! Just... just a few rounds, just a few rounds of hitting each other... or ...... hitting each other... or ...... this is how it is!"
+"Damn it! Just... just a few exchanges, and... I didn't even... get to exchange blows..."
 
 *「くそっ！たった…、たった数合、打ち合っただけで……打ち合っても…ないか、……このざまだ！」*
 
-...... Irving."
+"....Irvin."
 
 *「……アーヴィン」*
 
-"Totally ...... ridiculous... that's a foul!"
+"Seriously... that's insane... that's totally unfair."
 
 *「まったく……とんでもねぇなっ…、ありゃ反則だろ」*
 
-Yeah, she's full of magic and bullshit!"
+"Yeah, that kid's magic power is ridiculous!"
 
 *「そうね、あの子魔力もデタラメだもの！」*
 
-'Damn it! ......I've seen the difference in power. ......"
+"Damn it! After seeing such a gap in strength..."
 
 *「ちくしょうめ！……こんだけ力の差を見せつけられたんじゃ……」*
 
-I can't not burn!" I know!"
+"There's no way we can't get fired up!"
 
 *「「「燃えない訳にはいかない」っての！」わよね！」*
 
 &nbsp;
 
-They look at each other and can't help laughing.
+They exchanged glances and couldn't help but laugh.
 
 *顔を見合わせ思わず笑ってしまう。*
 
 &nbsp;
 
-What the hell, Bibi too?"
+"What? Vivi too?"
 
 *「なんだよビビもか？」*
 
-That's right! You can't help but be stunned when you're shown that much magic! Even ......!"
+"Of course! After seeing that kind of magic power, all I can do is be amazed! ...But!"
 
 *「そりゃね！あんだけの魔力見せつけられたら呆れるしか無いじゃない！……でも！」*
 
-There is no one in this village who would lose their nerve after being shown the difference in power!
+"Anyone who gets demotivated after seeing such a gap in strength isn't in this village!"
 
 *「力の差見せつけられて、それで気概無くす様な奴ぁ、この村には居ねェ！」*
 
-It's rather like the village of Amkam where you can't help but be challenged!"
+"Rather, it's the kind of village where you can't help but want to challenge!"
 
 *「むしろ挑まずには居られなくなるのがアムカムの村ってものよね！」*
 
-That's right!"
+"Exactly!"
 
 *「その通りだ！」*
 
 &nbsp;
 
-They laugh at each other.
+Hahaha, heehee, the two laughed together.
 
 *ハハハ　フフフ　と二人が笑いあう。*
 
-Over there, Mia is muttering, "Bibi, you made up.
+Over there, Mia murmured, "Looks like Vivi made up with her."
 
 *向こうでミアが　ビビちゃん仲直りしたのね　と呟いている。*
 
@@ -1040,61 +1040,61 @@ Over there, Mia is muttering, "Bibi, you made up.
 
 &nbsp;
 
-I can finally do it! Sue!"
+"Finally, we can do this, Su!"
 
 *「やっとやれるね！スー！」*
 
-"Nn...! Dana... is that... a spear?
+"Mm! ...Dana... are you... going to do that?"
 
 *「ン！・・・ダーナ・・・それ・・・やり？」*
 
 &nbsp;
 
-（It's only about my height. I thought it was a club, but is it a spear? Is it a short spear? (I thought it was a spear, but it's a spear? Dana's outfit looks like a Chinese dress...or maybe an ao dai since she has pants...)
+(It's about my height. I thought it was a staff, but is it a spear? A short spear? Since it's short, will it be used like a staff? Dana's outfit looks kind of like a Chinese dress... no, it has pants, so maybe it's an ao dai?)
 
 *（わたしの身長位しか無いな。棍かと思ったけど槍？短槍ってヤツ？短いから棍術みたいな使い方するのかな？ダーナの格好もチャイナ服っぽいし…いやズボンあるしアオザイか）*
 
 &nbsp;
 
-Spear! Spear! I'm not very dexterous either. I'll go at once!"
+"Yes! A spear! I'm not that skilled either, so I'll go all out!"
 
 *「そ！槍！あたしも器用な方じゃ無いからね。一気に行くよ！」*
 
 &nbsp;
 
-The first one! Dana jumped out with the signal "Start!
+With the signal to start, Dana dashed forward.
 
 *始め！の合図とともにダーナが飛び出した。*
 
-The spearhead, with more centrifugal force and speed, swings out from the right, as if to reap a cleave.
+She spun the spear behind her back, adding centrifugal force and speed, then swung it from the right in a sweeping motion.
 
 *背中から槍を回転させ更に自身も回る勢いで、より遠心力とスピードを乗せた槍頭を、右から薙ぎ払う様に振り切って来る。*
 
 &nbsp;
 
-But Suzy leapt it up from below with a short sword.
+However, Suzy deflected it upward with her short sword.
 
 *しかしそれを、スージィは下からショートソードで跳ね上げた。*
 
-The centrifugal force of the spear bounces upward, taking the arm along with it, and Dana's side is raised.
+The spear was sent flying upward with the momentum, and Dana's arm was pulled along with it, raising her side.
 
 *遠心力の乗った勢いそのまま上に跳ね上げられ、槍と一緒に腕も持って行かれ、ダーナの脇が上がる。*
 
 &nbsp;
 
-By the time Dana realized it, Suzy's fingertips were already touching Dana's side.
+By the time Dana realized, Suzy's fingertips were already touching her side.
 
 *ダーナが気付いた時には、既にスージィの指先がダーナの脇腹に触れていた。*
 
 &nbsp;
 
-Geez!"
+"Gyahh!!"
 
 *「ぎゃんっ！！」*
 
 &nbsp;
 
-Dana is blown up to the wall and rolls over.
+She was blown against the wall and rolled down.
 
 *壁際まで吹き飛ばされ転がるダーナ。*
 
@@ -1102,105 +1102,105 @@ Dana is blown up to the wall and rolls over.
 
 &nbsp;
 
-"Wow, ......, this... sure is a tough one, even for ......!"
+"Ugh... this is... definitely tough... but!"
 
 *「くぁっ……これは…確かにきっついな……でも！」*
 
 &nbsp;
 
-Dana held her sides, raised her body in anguish, and looked at the center with a snap.
+Dana held her side, a pained expression on her face, but she managed to sit up and glared at the center.
 
 *ダーナが脇を抑え、苦悶の表情を浮かべながら身体を起こし、キッと中央を見据えた。*
 
 &nbsp;
 
-I'm not done yet! I can go!
+"I'm not done yet! I can still go!!"
 
 *「まだまだぁっ！行けるよっ！！」*
 
 &nbsp;
 
-Holding the midpoint of the spear, he turns it in a figure of eight in front of his body and lunges at Suzy.
+Holding the spear in the middle, she charged toward Suzy, spinning it in an eight shape in front of her.
 
 *槍の中程を持ち、身体の正面で八の字を描く様に回しながらスージィに突っ込んで行く。*
 
-However, even the spear tip, which approaches at high speed from both sides, cannot catch Suzy.
+But even with the spear tips approaching at high speed from both sides, she couldn't catch Suzy.
 
 *しかし、左右から高速回転で迫る槍先でもスージィを捉えられない。*
 
 &nbsp;
 
-Dana continues to circle around Suzy, and then she launches a series of random thrusts and dispersals.
+Dana circled around Suzy, launching a series of thrusts and sweeps randomly.
 
 *ダーナはそのままスージィの周りを回り、連続で突きと払いランダムに繰り出して行く。*
 
 &nbsp;
 
-However, it is always lost and dealt with.
+However, all of them were dodged and deflected.
 
 *だが、やはり悉く躱され捌かれてしまう。*
 
-Occasionally, the weight of the spear is about to take it away, but he finally manages to pull it back and add it to the next attack without killing it.
+Occasionally, the weight of the spear would almost pull her off balance, but she managed to keep it from losing momentum and added it to her next attack.
 
 *時折、払われた重さで槍が持って行かれそうになるが、やっとの思いでその重さを殺さず引き戻し次の攻撃に上乗せして行く。*
 
 &nbsp;
 
-The tip of the spear was thrust into his face.
+The spear tip was thrust toward Suzy's face.
 
 *顔面に向け、槍先が突き込まれた。*
 
-Suzy ducked the blow by tilting her head to the right and struck the spearhead that was being drawn back with the sword's hilt.
+Suzy tilted her head to the right to dodge it and struck the returning spear with the pommel of her sword.
 
 *その一撃をスージィは頭を右に傾けて躱し、剣の柄頭で引き戻される槍頭を叩いた。*
 
-Unable to restrain the spear, which came back with unexpected force, Dana's body was thrown back.
+Unable to control the unexpected force of the returning spear, Dana's body leaned back.
 
 *思わぬ勢いで戻って来た槍を抑えきれず、ダーナは身体を仰け反らせてしまう。*
 
 &nbsp;
 
-Suzy reaches into her bosom and places her fingertips softly on Dana's chest.
+Suzy slipped into her guard and gently placed her fingertips on Dana's chest.
 
 *スージィはその懐に入り、ダーナの胸元に指先をソッと添える。*
 
 &nbsp;
 
-Gee whiz!"
+"Gyab!"
 
 *「ぎゃぶ！」*
 
 &nbsp;
 
-Dana was blown up and slammed into the wall again.
+Dana was blown back against the wall again.
 
 *吹き飛んだダーナが、再び壁に叩き付けられた。*
 
 &nbsp;
 
-Oh..! ...... Kaka...Kahaha! ...... haag!"
+"Ah! ...Cough... cough! ...Hah!"
 
 *「あっ！……かっ…かはぁっ！……はっぐ！」*
 
 &nbsp;
 
-The air was squeezed out of my lungs and I could barely catch my choked breath.
+She struggled to catch her breath after having the air squeezed out of her lungs.
 
 *肺から空気を搾り取られ、詰まった息をやっとの事で整えた。*
 
-Rise up again, using the spear as a support. ......
+Using the spear for support, she stood up again...
 
 *槍を支えにして再び立ち上がり……。*
 
 &nbsp;
 
-One more!
+"One more time!!"
 
 *「もう一本ーーーー！！」*
 
 &nbsp;
 
-Dana rushes toward Suzy three times.
+Dana charged at Suzy again.
 
 *ダーナは三度スージィに向かい突進して行く。*
 
@@ -1208,63 +1208,63 @@ Dana rushes toward Suzy three times.
 
 &nbsp;
 
-In the end, Dana was also struck down five times for convenience.
+In the end, Dana was knocked down five times.
 
 *結局ダーナも都合5回打ち倒された。*
 
 &nbsp;
 
-Good work.
+"Good job."
 
 *「…お疲れ様」*
 
-Hah! ...Hah! ......, hah..."
+"Ha! ...Ha! ...Ha! ..."
 
 *「はぁっ！…はぁっ！……、はぁっ…」*
 
 &nbsp;
 
-Colin quietly called out to Dana, who was sitting on the ground, leaning her body against the wall and clinging to her spear.
+Colin quietly spoke to Dana, who was leaning against the wall, sitting on the ground while clinging to her spear.
 
 *壁に身体を預け、槍に縋り付く様にして地面に座り込むダーナに、コリンが静かに声をかけた。*
 
 &nbsp;
 
-"How's it going? Did it meet your expectations?"
+"How was it? Just as you expected?"
 
 *「どう？期待通りだった？」*
 
-Hah...hah...ah! It's ...... more than I expected...! ...... hah....hah..., he's a hell of a....boy."
+"Ha! ...Ha... yes! ...Even better than I expected... ha! ...what an incredible... kid."
 
 *「はぁっ…はぁ…、あぁ！……期待以上…だよ！……はぁっ…はぁ…、とんでもない…子だよ」*
 
-I've never seen Dana so out of touch."
+"I've never seen Dana so helpless before."
 
 *「ダーナがこんなに手も足も出ないなんて、初めて見た」*
 
-"Ha...dimension...different thing...ha...ha...I told you...ha...ha...ha...ha...ha...ha...ha...ha...ha...ha...ha! I'm a ...... expert...!"
+"Ha... the level is... different... I told you, right? ...She's a master!"
 
 *「はぁ…次元が…違うモノ、…はぁ…言ったろ？…はぁ……達人だ…って！」*
 
-"Hmm, you look kind of happy."
+"Fufu, you seem happy."
 
 *「ふふ、何だか嬉しそう」*
 
-Hehehe....umm...that's...nice to see you! ...Such a ...... amazing girl is so close to me! I'm excited every day! And she's so cute! I'm crazy about Sue!
+"Hehe... of course I'm happy! ...Such an amazing... amazing kid is so close! Every day is exciting! Plus... she's super cute! ...I'm totally in love with Su!"
 
 *「へへ…ウンそりゃ…嬉しいよ！…こんな……こんな凄い子がこんな近くに居る！も…毎日がワクワクだよ！しかも…、メチャメチャ可愛くてさ！…あたしは、スーにゾッコンなんだから！！」*
 
-I know! I'm crazy about Sue too! Hmph."
+"I know! I'm in love with Su too! Hehe."
 
 *「知ってるーー。私だってスーにゾッコンだもん！フフ」*
 
 &nbsp;
 
-Hahaha, ugh, Dana and Colin are laughing at each other.
+Ahaha, uhuhu, Dana and Colin laughed together.
 
 *アハハ、ウフフとダーナとコリンが笑い合っている。*
 
-Mia, who was watching this, said, "I'm more attracted to you than you are to me!　Mia's cheeks puffed out.
+Watching them, Mia puffed her cheeks, thinking, "I'm more in love!"
 
 *それを見ているミアが　わたしの方がゾッコンだもん！　と頬を膨らませた。*
 
@@ -1276,159 +1276,159 @@ Mia, who was watching this, said, "I'm more attracted to you than you are to me!
 
 &nbsp;
 
-You're a rock, Sue. You're even better than I imagined!"
+"Just as expected, Su. You're beyond my imagination!"
 
 *「流石だねスー。想像以上だよ！」*
 
 &nbsp;
 
-Kara's weapon of choice is a single-edged sword with a blade of about 30 cm in length and no brim.
+Carla's weapon was a single-edged sword without a guard, about 30 centimeters long.
 
 *カーラの武器は、刃渡り30センチ程の鍔の無い片刃剣だ。*
 
 &nbsp;
 
-With it in its sheath at his waist, he turns his arm to hide it behind his back, changes its trajectory erratically to the left and right, and slides into the ground as if crawling.
+She kept it in her waist sheath while twisting her arm behind her back, changing her trajectory erratically, sliding in low.
 
 *それを腰の鞘に収めたまま腕を後ろに隠す様に廻して、右に左に不規則に軌道を変え、地を這う様に滑り込んで来る。*
 
 &nbsp;
 
-(Isn't that a dagger? I knew it was a ninja! If it is a shapeshifting dagger, is it a K-sumi-kiri?)
+(Isn't that a dagger?! So she really is a stealthy person! Could it be that she's using a technique like 'Shifting Blade K'?!)
 
 *（それ短刀じゃないですか？！やっぱり忍びの者の人だったぁーー！もしや変移ばっ刀Ｋスみ斬りでつかぁ！？）*
 
 &nbsp;
 
-Kara ran past Suzy's side and slid her blade through her, but her blade was repelled by Suzy's sword.
+Carla ran past Suzy, sliding her blade, but it was deflected by Suzy's sword.
 
 *カーラは、スージィの脇を抜ける様に走り抜き刃を滑り込ませるが、その刃をスージィの剣で弾かれてしまった。*
 
-At the moment he is hit, he jumps backward to cushion the powerful impact, spinning backward several times in mid-air and landing on his arms and legs.
+As she was deflected, she jumped back, spinning in the air a few times before landing on her feet.
 
 *弾かれた瞬間、その強烈な衝撃を緩和しようと、そのまま後方へ飛び退き、空中で数回後方回転し手足を着いて着地する。*
 
 &nbsp;
 
-"It's great, my hand is zinging..."
+"Wow, my hand is tingling from that impact..."
 
 *「凄いよ、受けた手がジンジンしてる…」*
 
 &nbsp;
 
-He returned to his posture, swinging his hand that was holding the dagger durably, and with a thump and a light leap on the spot....
+She shook her hand, which was holding the dagger, and regained her posture, lightly bouncing in place.
 
 *短刀を握っていた手をブラブラと揺らしながら姿勢を戻し、トントンとその場で軽く跳躍しながら…。*
 
 &nbsp;
 
-I'm going for real! I think I can get through to Sue!"
+"I'm going for real! I think I can take you on, Su!"
 
 *「本気で行くよ！スーになら通じそうだ！」*
 
 &nbsp;
 
-With that, he started running toward Suzy again.
+Saying that, she ran toward Suzy again.
 
 *そう言って再びスージィに向かい走り出した。*
 
-Once again, it swings from side to side.
+She swayed left and right once more.
 
 *もう一度左右に揺れる。*
 
-But this time, it is even bigger, more three-dimensional, and...
+But this time, it was even bigger, more three-dimensional, and then...
 
 *だが今度は更に大きく、より立体的に、そして…。*
 
 &nbsp;
 
-The Phantom Quartet
+"Phantom Quartet!"
 
 *『幻影四重奏』*
 
 &nbsp;
 
-Kara's figure splits.
+Carla's figure split into four.
 
 *カーラの姿が分裂する。*
 
 &nbsp;
 
-"Whoa...! ...Bunshin... no jutsu?
+"Whoa! ...Shadow Clone Technique!?"
 
 *「ふぉ！・・・ぶんしん・・・のじゅつ！？」*
 
 &nbsp;
 
-(I see, you are dividing the consciousness of action into several parts and directing them toward us. I wonder if this will be more effective if the opponent is able to read our presence.... I guess Kara can manipulate Ki as well. Compared to Irving and Dana, the Ki in her sword is much stronger. But...! (Still not as good as Howard Papa, though!)
+(I see, she's splitting her consciousness into multiple actions to come at me. The more I can read her presence, the more effective it is... So Carla can manipulate 'ki' too. Compared to Irvin and Dana, her 'ki' wrapped around the sword is quite solid. But! She's still not on Howard Papa's level!)
 
 *（なるほど行動意識を複数に分けてこちらに向かわせてるか。これは気配が読める相手であればあるほど効果が出るかな…。やっぱりカーラも『氣』の操作ができるのか。アーヴィンやダーナと比べても剣に纏う『氣』が随分しっかりしてるし。けど！まだまだハワードパパには及ばないけどね！）*
 
 &nbsp;
 
-Four kalas close in on Suzy.
+The four Carlas approached Suzy.
 
 *4体のカーラがスージィに迫る。*
 
 &nbsp;
 
-At about the same time that the phantom makes contact with Suzy, Kara's blade approaches from behind Suzy.
+Just as the phantoms were about to make contact with Suzy, Carla's blade approached from behind her.
 
 *ファントムがスージィに接触するのとほゞ同時に、スージィの後方からカーラの刃が迫る。*
 
 &nbsp;
 
-But just before the blade hit, the edge of Suzy's sword, which was turned from below to her back, caught it.
+But just before the blade could hit, Suzy's sword edge, which had been wrapped around her back, intercepted it.
 
 *だが刃が当たる寸前、下から背中へ回されたスージィの剣のエッジが、それを受け止めた。*
 
 &nbsp;
 
-Kara's eyes widen and she stops moving for a moment when she sees the tip of a knife strike from a blind spot without looking at her.
+Seeing her thrust from a blind spot stopped without even looking, Carla froze for a moment.
 
 *死角から打ち込んだ切っ先を、此方を見もせず止められた事に目を開き、カーラは一瞬動きを止めてしまう。*
 
-With that momentary jolt, the phantom also vanishes.
+That moment of hesitation caused the phantoms to vanish.
 
 *その一瞬の動揺で、ファントムも消失する。*
 
 &nbsp;
 
-Suzy turned around and traced and slid her sword as if she were paying off Kara's sword, and pressed the belly of the sword's tip against the hand in which Kara was holding the dagger.
+Suzy, still facing away, slid her sword to brush Carla's blade aside and pressed the blade's belly against Carla's hand holding the dagger.
 
 *スージィは後ろを向いたままカーラの刀を払う様に剣でなぞり滑らせ、カーラが短刀を握っている手に剣先の腹を押し当てた。*
 
 &nbsp;
 
-Using the position of the hand as a fulcrum, Suzy turns the sword and Kara's legs come up to spin away from the ground.
+Using that hand's position as a pivot, Suzy spun her sword, lifting Carla's leg off the ground.
 
 *その手の位置を支点にし、そのままスージィが剣を回すとカーラの脚が地から離れ回るように上がって行く。*
 
 &nbsp;
 
-Sh...shh!
+"Uh-oh!"
 
 *「…し、しまっ！」*
 
 &nbsp;
 
-Kara's body turns to adhere to Suzy's body.
+Carla's body spun, coming into close contact with Suzy.
 
 *そのままカーラの身体は、スージィの身体に密着する様に回る。*
 
-And just where Suzy's left elbow touched Kara's water moon.
+And just as Suzy's left elbow touched Carla's water moon point...
 
 *そして丁度、スージィの左ひじがカーラの水月に触れた所で。*
 
 &nbsp;
 
-Hahaha!"
+"Ughhh!!"
 
 *「かはぁっっ！！」*
 
 &nbsp;
 
-Kara was blown backward and crashed into a wall, crumpling to the floor.
+Carla was blown back and crashed into the wall, collapsing to the floor.
 
 *カーラは後方へ吹き飛ばされ、そのまま壁に激突し床へ崩れ落ちた。*
 
@@ -1446,103 +1446,103 @@ Alicia was unarmed and wearing protective gear.
 
 *アリシアは武器を持たず防具を着けていた。*
 
-He is wearing gloves, elbows, insteps, knees on shins, and a meaty supporter, and he is bouncing around in place, thumping and bouncing in small circles.
+She had gloves, elbow and knee pads, shin guards, and thick support pads, lightly bouncing in place.
 
 *グローブに、肘、足の甲、脛に膝、肉厚のサポーターを装着し、その場でトントンッと小さく跳ねている。*
 
 &nbsp;
 
-(Fighting? And the gloves look like something a karate guy would wear.... Huh? But he wears a knife-like thing on his waist. Could it be a commando who punches and kicks you and then stabs you with a knife to stop you? The most vicious one by any chance?)
+(Is it martial arts? The gloves look like something a karate practitioner would wear... Oh? But she has something like a knife at her waist. Could it be that after punching and kicking, she finishes with a knife? Is she the most dangerous one??)
 
 *（格闘かな？グローブが空手やってる人が付けてる感じの物だしな…。あ？でも腰にナイフっぽいのつけてる。もしかして殴る蹴るした後ナイフで止め刺してくるナントカコマンドー的な？ひょっとして一番凶悪な人？？）*
 
 &nbsp;
 
-"Well! I'm the last one. We're all dressed alike, so it looks like we're sisters, doesn't it?"
+"Alright! I'm the last one! Since we're in matching outfits, it feels like a sister duel, right?"
 
 *「さて！アタシが最後ね。お揃いの格好だから姉妹対決みたいね？」*
 
 &nbsp;
 
-Alicia smiles at me, but when I realize that she is a fighter, I start to see her as a Nantouka hermit in her street clothes.
+Alicia said cheerfully, but realizing she was a martial artist made her look like some kind of martial arts sage.
 
 *とにこやかに言うアリシアだが、格闘の人だと分かるとナントカ仙人の道着に見えてきた。*
 
 &nbsp;
 
-"Okay, I'm off! I'm off!
+"Okay! Here I go!"
 
 *「じゃ！行っくね！」*
 
 &nbsp;
 
-At the signal to begin, Alicia launched her attack.
+With the signal to start, Alicia began her attack.
 
 *始めの合図と共にアリシアは攻撃を開始した。*
 
 &nbsp;
 
-He starts with a left backward kick, then connects with a right backward kick, and then delivers a series of kicks as if he were dancing in a dance.
+She started with a left roundhouse kick, transitioning into a right roundhouse kick, executing a series of elegant kicks like a dance.
 
 *左の裏回し蹴りから始まり右の回し蹴りへと繋ぎ、次々と連続でダンスをする様に華麗に蹴りを繰り出して行く。*
 
 &nbsp;
 
-Suzy, however, easily avoided all of them.
+However, Suzy easily dodged all of them.
 
 *しかしスージィはそれを全て難なく躱して行く。*
 
 &nbsp;
 
-Eventually, Alicia flips her body and spins around while supporting her body with her hands in an inverted position, and the centrifugal force of her movement and legs spins her kick at high speed to close in on Suzy.　Oooh! Spinning 0-do kick!
+Eventually, Alicia flipped her body, supporting herself with her hands in a handstand while spinning, using the centrifugal force of her legs to launch a rapid kick at Suzy. Whoa! A spinning kick!?
 
 *やがてアリシアは体を反転させ、逆立ち状態で身体を手で支えながら回転し、その動きと脚の遠心力で蹴りを高速回転させてスージィに迫る。　うお！スピニング〇ードキック！？*
 
 &nbsp;
 
-Suzy played the approaching leg with the back of her right hand.
+Suzy deflected Alicia's approaching leg with the back of her right hand.
 
 *スージィが迫る脚を右手の甲で弾いた。*
 
-Alicia, as if to catch the momentum of being flung away, goes backward, spins in the opposite direction, adjusts her stance, and kicks the ground again to close the gap between the two.
+Alicia used the momentum of being deflected to flow backward, spinning in the opposite direction to regain her stance, then kicked off the ground to close the distance again.
 
 *アリシアは弾き飛ばされた勢いを受け流す様にそのまま後ろに下り、逆方向に回転しながら体勢を整え、再び地を蹴り間を詰めて行く。*
 
 &nbsp;
 
-Alicia drew a knife from her waist and attacked in rapid succession, combining kicks, elbows, and knees without pause.
+Alicia drew her knife from her waist, combining punches, kicks, elbows, and knees in a relentless series of high-speed attacks.
 
 *アリシアは腰のナイフを引き抜き、蹴りや肘、膝のコンビネーションを組み合わせ間断無く高速で連続攻撃を仕掛けて行った。*
 
 &nbsp;
 
-And when Suzy lifted her heel, leaving her right toe on the floor and brought it down with a light thump, the impact spread to the floor and Alicia was swallowed by the wave, nearly losing her balance.
+Just then, Suzy lightly tapped the floor with her heel while keeping her right toes on the ground, sending a shockwave through the floor that nearly knocked Alicia off balance.
 
 *と、スージィが右の爪先を残したまま踵を上げ軽くトンと床に降ろすと、衝撃が床に広がりアリシアが波に飲まれバランスを崩しかけた。*
 
-Susie quickly approaches.
+Immediately, Suzy closed in.
 
 *すかさずそこへスージィが迫る。*
 
-Alicia quickly set up a guard with her arm.
+Alicia instinctively raised her arms to guard.
 
 *アリシアは咄嗟に腕でガードを構えた。*
 
 &nbsp;
 
-Susie gently hits her right palm on the guard of that arm... and Alicia's body was sent flying as it was, enveloped by the impact.
+Suzy gently placed her right palm on top of Alicia's guard... and Alicia's body was engulfed in shock, sending her flying.
 
 *その腕のガードの上にスージィは右の掌をそっと当てる…と、アリシアの身体が衝撃に包まれ、そのまま飛ばされた。*
 
 &nbsp;
 
-"Gghh, 'Tetsushi'? Gahaha!
+"Guhh! Is that 'Pierce'!? Gahh!!"
 
 *「ぐぅっ『徹し』か！？がはっ！！」*
 
 &nbsp;
 
-Alicia crashes into a wall and collapses, as does Kara.
+Alicia crashed into the wall and collapsed to the floor, just like Carla.
 
 *アリシアは壁に激突し、カーラと同じ様に崩れ落ちてしまう。*
 
@@ -1550,47 +1550,47 @@ Alicia crashes into a wall and collapses, as does Kara.
 
 &nbsp;
 
-Apparently, you graduates didn't get much of a break, unlike the two below you, did you?"
+"It seems you graduates didn't get much leeway compared to the two below you."
 
 *「どうやらアンタ達卒業生は、下の二人と違ってあまり手加減して貰えなかったみたいね？」*
 
 &nbsp;
 
-I'm not sure I've ever seen anything like it," said Jessica amusedly, after Kara's treatment.
+Jessica, who had finished treating Carla, said with amusement.
 
 *とカーラの治療を終えたジェシカが面白そうに言った。*
 
 &nbsp;
 
-"Haha, I don't know if I'm happy or frustrated..."
+"Haha, I don't know whether to be happy or frustrated..."
 
 *「ハハ、嬉しいんだか悔しいんだか…」*
 
 &nbsp;
 
-and Kara giggles as she sits on the floor by the wall.
+Carla said with a wry smile while sitting on the floor against the wall.
 
 *と壁際で床に座りながらカーラが苦笑する。*
 
 &nbsp;
 
-But I'm still frustrated! I had such a great time with Sue, and now I'm graduating!"
+"Ahh, but I think I'm more frustrated! Just when I finally got to play with Su, and now I'm graduating!"
 
 *「あーー、でもやっぱり悔しいかな！折角スーと遊べたのにもう卒業なんてさー」*
 
-We still have the whole summer together, so why not?"
+"Well, you'll still be together during the summer, so that's good."
 
 *「まだ夏の間は一緒に居られるんだから良いじゃない」*
 
-I know, but... I wish I could have met you sooner! I wish I could have met you sooner!"
+"That's true, but... ahh, I wish I could have met her sooner!"
 
 *「そうなんだけどさーー。あーーもう！もっと早く会いたかったなー！」*
 
-'Huh, sounds like a spoiled brat. Well, I'll have to check on Alicia! I wonder if one of her ribs is gone..."
+"Fufu, you sound like a spoiled child. Now, I need to check on Alicia! I hope she didn't break a rib or anything♪"
 
 *「フフ、駄々っ子みたい。さて、アリシアも診てあげないと！肋骨の一つも逝ってないかなぁ♪」*
 
-Why do you look so happy? I'm scared!
+"Why do you look so happy? That's scary!!"
 
 *「なんでアンタは嬉しそうなの？コワイよ！！」*
 
@@ -1602,51 +1602,51 @@ Why do you look so happy? I'm scared!
 
 &nbsp;
 
-After standing with the upperclassmen, I also dealt with the underclassmen.
+After finishing the matches with the upperclassmen, Suzy also faced the underclassmen.
 
 *上級生たちとの立ち合いが済んだ後は、下級生たちの相手もした。*
 
 &nbsp;
 
-In a one-on-one group standoff, the kids were trying their best to get a bite out of Suzy.
+In one-on-one matches against a group, the kids were doing their best to try to get a hit on Suzy.
 
 *１対集団での立ち合いで、子供達はなんとかスージィに喰らい付こうと頑張っていた。*
 
 &nbsp;
 
-Among them, Stefan and Helena Slater of the 6th floor put up a moderate effort.
+Among them, Stefan and sixth grader Helena Slater showed considerable effort.
 
 *中でもステファンと、６位階のヘレナ・スレイターは中々の奮闘を見せた。*
 
 &nbsp;
 
-Most of the children lose their will to fight with Suzy's "Friendly Finger" at the first try, but Stefan has received it many times every day, so he challenges it again and again, as if it were a new challenge.
+Most kids lost their fighting spirit after one hit from Suzy's "Friendly Finger," but Stefan kept challenging her, as he had experienced it many times.
 
 *スージィの『フレンドリー・フィンガー』で大体の子は一度で戦意を失うのだが、ステファンは毎日何度も頂いている物なので、今更と言わんばかりに何度も挑んでくる。*
 
-The movement seems to have improved somewhat, perhaps as a result of the past week's preparation.
+His movements seemed to have improved somewhat over the past week.
 
 *動きもここ一週間の仕込みの成果か、幾分良くなっている様だ。*
 
 &nbsp;
 
-Helena was the only person who had a negative attitude toward her when Suzy first joined the school.
+Helena was the only one who had a negative attitude toward Suzy when she first enrolled.
 
 *ヘレナはスージィの入校当初、唯一彼女に否定的な態度を取った相手だ。*
 
 &nbsp;
 
-I don't approve of you!
+"I will not acknowledge you!!"
 
 *「ワタシ、貴女の事は認めませんから！！」*
 
 &nbsp;
 
-It was my second day at school.
+That was on her second day of enrollment.
 
 *入校二日目の事だ。*
 
-Suzy was a little hurt by the sudden denial.
+Suzy felt a bit hurt by the sudden denial.
 
 *突然の否定の言葉に少し傷心になったスージィだった。*
 
@@ -1654,27 +1654,27 @@ Suzy was a little hurt by the sudden denial.
 
 &nbsp;
 
-After all, hers was a jealousy born of Dana's infatuation with Suzy, whom she adored....
+In the end, her attitude stemmed from jealousy over her admiration for Dana becoming infatuated with Suzy...
 
 *結局彼女のそれは、憧れのダーナがスージィに夢中になる事で生まれた嫉妬心だったのだが…。*
 
 &nbsp;
 
-Now, that dana that I admired so much is out of reach and I can't even touch myself as I am challenging him.
+Now, the admired Dana couldn't even touch Suzy, who was untouchable.
 
 *今、その憧れたダーナが手も足も出ず、挑んでいる自分も触れる事すらできない。*
 
-The pain that resonates in my core every time it is played on me makes me teary-eyed, but I get up again and again.
+Each time she was deflected, the pain resonated through her body, and she stood up again with tears in her eyes.
 
 *弾かれる度に体の芯に響く痛みに、涙目になりながらも何度も立ち上がる。*
 
 &nbsp;
 
-Now I think I know why Dana is so crazy about this guy....
+Now, she felt she understood why Dana was so infatuated with this person...
 
 *今ならダーナが何故この人に夢中になっているのか分かる気がする…。*
 
-Helena was also a daughter of Amcam.
+Helena was also a daughter of Amukam.
 
 *ヘレナもまたアムカムの娘だった。*
 
@@ -1684,73 +1684,72 @@ Helena was also a daughter of Amcam.
 
 &nbsp;
 
-Thank you for all your hard work. You've been a great inspiration to all of us."
+"Thank you for your hard work. It seems everyone got a good stimulus."
 
 *「お疲れ様、ありがとう。皆にはいい刺激に成った様だ」*
 
-I am also ... thank you ... for your help! Thank you very much.
+"Thank you... very much! ...It was... fun!"
 
 *「こちらこそ・・・ありがと・・・でした！・・・たのしかた・・・です！」*
 
-I'm glad to hear that! I'd ask for a move from you too if I could, but I don't think I'll be able to make it today. I'll definitely ask for one soon!"
+"That's great! If possible, I'd like to ask for a match too, but... it seems impossible today. Let's definitely arrange it soon!"
 
 *「それは良かった！出来れば俺も一手お願いしたい所だが…今日は無理そうだな。近い内に是非お願いするよ！」*
 
-Yes! Yes, by all means! It's a pleasure to meet you!
+"Yes! ...Absolutely! ...Thank you... very much!"
 
 *「はい！・・・ぜひ！・・・こちらこそ・・・よろしく・・・です！」*
 
 &nbsp;
 
-Susie and Ryder shook hands and promised to meet in person.
+Suzy and Ryder shook hands, exchanging promises for a future match.
 
 *スージィとライダーが握手をしながら手合せの約束を交わした。*
 
 &nbsp;
 
-Can I... ask you... a question?
+"Um... can I ask you one thing?"
 
 *「あの・・・ひとつ・・・きいても・・・いいです・・・か？」*
 
-What's up? Ask me anything you know.
+"What is it? Ask me anything I can answer."
 
 *「なんだい？俺に判る事なら何でも聞いてくれ」*
 
-Who... is... Ravi...?
+"Um... who is Ravi?"
 
 *「あの・・・ラヴィ・・・って・・・どなた・・・です・・・か？」*
 
 &nbsp;
 
-The rider's face instantly became tense.
+Ryder's face suddenly stiffened.
 
 *ライダーの顔が途端に強張った。*
 
 &nbsp;
 
-"Oh ...... yeah, I... yeah ......"
+"Ah... right, I... well..."
 
 *「あ……そうだ、俺は…そう……」*
 
 &nbsp;
 
-The image and voice of a girl he had once known well came back to Ryder's mind.
+The image and voice of a girl he once knew well resurfaced in Ryder's mind.
 
 *ライダーの脳裏に、嘗て良く知っていた少女の姿と声が甦る。*
 
 &nbsp;
 
-"I'm sorry ......, ...I can't, ...I can't answer for me.... Forgive me and give me ......."
+"...I'm sorry... I can't... I can't answer that... Please forgive me..."
 
 *「……済まない、…俺には、…俺には答えられない…。許して……くれ」*
 
 &nbsp;
 
-The rider grips his own chest and his face contorts as if he is enduring pain.
+Ryder clutched his chest, his expression twisting as he endured the pain.
 
 *ライダーが自らの胸元を掴み、痛みを耐える様に表情を歪めて行く。*
 
-Suzy could only stare silently at such a rider.
+Suzy could only quietly watch Ryder's figure.
 
 *スージィには、そんなライダーの姿を静かに見つめる事しか出来なかった。*
-

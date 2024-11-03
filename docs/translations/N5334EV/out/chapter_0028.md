@@ -1,41 +1,40 @@
-# 28 Summer Vacation in Amkam, Part 2
+# Episode 28: Amukamu's Summer Vacation Part 2
 
 ## 28話　アムカムの夏休み　その２
 
-There is a yuri flavor. Please be careful if you do not like it.
+There is a yuri flavor. Please be cautious if you are not fond of it.
 
 *百合風味がございます。苦手な方はご注意くださいませ。*
-
 
 ----------------
 
 &nbsp;
 
-So, it's a summer afternoon, and I'm usually kidnapped by Mia, who arrives when I've finished cleaning up for lunch.
+So, on a summer afternoon, I get abducted by Mia around the time I finish cleaning up after lunch.
 
 *で、夏休みの午後なんだけど、大体お昼の片付けを済ませた頃にやって来るミアに拉致られる。*
 
 &nbsp;
 
-On sunny days, he takes me outside as a matter of course, but even on rainy days, we spend time together in my room, so there really isn't a day that goes by that I don't see him.
+On sunny days, I am naturally taken outside, but even on rainy days, we spend time together in my room, so there really isn't a day we don't meet.
 
 *晴れている日は当然の様に外を連れ回されるが、雨の日でもわたしの部屋で一緒に過ごすので本当に会って居ない日が無い。*
 
 &nbsp;
 
-My mom Sonia and dad Howard seem to be really happy that I get along with the village kids, and they always make Mia feel very welcome.
+My Sonia Mama and Howard Papa seem really happy that I get along with the village kids, and they always welcome Mia very warmly.
 
 *ウチのソニアママもハワードパパも、わたしが村の子達と仲良くするのが本当に嬉しいらしくて、いつもミアの事をとても歓迎してくれる。*
 
 &nbsp;
 
-During the first half of such a summer vacation, I was often taken around by Mia while being further abducted by Kara and her sisters.
+During the first half of summer vacation, I was often taken around by Mia, but I was also frequently abducted by Carla and the older girls.
 
 *そんな夏休みの前半は、ミアに連れ回されながらもカーラ達お姉さま方に更に拉致られる事が多かった。*
 
 &nbsp;
 
-I wonder if they know where Mia and I are going? They usually catch us where we're going!
+I wonder if those people know where Mia and I are going? We usually get caught at our destination!
 
 *あの人達わたしとミアが何処に行くか把握してるんじゃないかな？大体行く先で捕まるのよね！*
 
@@ -43,25 +42,25 @@ I wonder if they know where Mia and I are going? They usually catch us where we'
 
 &nbsp;
 
-Bibi is always with me when he shows me around the village.
+Whenever they guide me around the village, Bibi is always with us.
 
 *村の中を案内してくれる時は決まってビビが一緒だ。*
 
 &nbsp;
 
-She is very dependable, greeting villagers wherever she goes and explaining the facilities to them. I probably trust her the most.
+She properly greets the villagers and explains the facilities, making her very reliable. I probably trust her the most.
 
 *行く先々で村の人達への挨拶や施設の説明とか、本当にちゃんとしていてとても頼りになる。多分わたしはこの子の事を一番信頼している。*
 
 &nbsp;
 
-Mia, by the way, is the most healing point for me.
+By the way, Mia is my number one source of comfort.
 
 *因みにミアはわたしにとって一番の癒しポイントだ。*
 
 &nbsp;
 
-Even if I have a light panic, I can calm down easily with this girl. Especially the chest, breasts, and corrupted flesh...my inner Osan goes into a joyful state!
+Even if I lightly panic, I calm down immediately when she's around. Especially her chest... my inner self revels in joy!
 
 *軽くパニくりがあってもこの子が居ればすぐ落ち着く。特に胸部とか胸とか堕肉とか…わたしの中のオサンが愉悦に浸って行くのですよっ！*
 
@@ -69,23 +68,23 @@ Even if I have a light panic, I can calm down easily with this girl. Especially 
 
 &nbsp;
 
-The first time I was abducted by Carla and her friends, they took me straight to someone's home.
+At first, when I was abducted by Carla and the others, I was taken straight to someone's house.
 
 *カーラ達に拉致られた最初の頃は、そのまま誰かの自宅へ連れて行かれてた。*
 
 &nbsp;
 
-And so begins the dress-up game.
+And then the dress-up game begins.
 
 *そして始まる着せ替えゴッコ。*
 
 &nbsp;
 
-At first, when they took off my clothes and made me wear only my underwear, I was so embarrassed that I shrank back with tears in my eyes.
+At first, when I was stripped down to just my underwear, I felt so embarrassed that I shrank back with teary eyes.
 
 *初めは服を脱がされて下着だけにさせられると、とても恥ずかしくって涙目で縮こまってしまってた。*
 
-Well, even in such a situation, Mia's chest would help me get back on my feet right away!
+Well, even at such times, if I have Mia's chest, I can recover quickly!
 
 *まぁそんな時でもミアの胸部があれば直ぐに立ち直るんですけどね！*
 
@@ -93,125 +92,125 @@ Well, even in such a situation, Mia's chest would help me get back on my feet ri
 
 &nbsp;
 
-I feel that my sense of shame and girlishness has grown since I came here.
+I feel like my sense of shame and girlish feelings have grown significantly since coming here.
 
 *やっぱりココに来て、わたしの中の羞恥心とか娘心的なモノは大きくなっている気がする。*
 
-If I had been a man, I wouldn't have gotten all teary-eyed and shrunken, even if I had been embarrassed.
+If I were a boy, I wouldn't have shrunk back with teary eyes, even if I felt embarrassed.
 
 *男だったなら恥ずかしかったとしても涙目になって縮こまるとか、ありえなかったんだけどね。*
 
 &nbsp;
 
-After they are eventually stripped of their clothes, they are changed one by one into costumes brought by the three of us.
+In the end, after being stripped of my clothes, I was dressed up in outfits that the three of them brought one after another.
 
 *結局服を剥ぎ取られた後は、三人が持ち寄った衣装に次々と着せ替えられるんですよね。*
 
 &nbsp;
 
-From the normal cute to the boyish, from the teal to the funky.
+From cute outfits to boyish ones, silly ones, and funky ones.
 
 *普通に可愛らしい物からボーイッシュな物、お茶らけた物やファンキーな物まで。*
 
-The ladies were cackling with delight and laughing hysterically. If I had a smart phone, I'm sure I'd be snapping pictures all over the place!
+The older girls were delighted and laughed a lot. If we had smartphones, they would definitely be taking tons of pictures!
 
 *お姉さま方はキャッキャと喜んだり大ウケしたり。これスマホとかあったら絶対パシャパシャ撮りまくってるよね！*
 
 &nbsp;
 
-Especially Alicia! I don't know if she likes this kind of thing or not, but she always comes up with things that make me want to say, "Where did you get that from? I was so impressed with her, I wanted to say, "Where did you get that from?
+Especially Alicia! I want to ask where she gets all those things she brings that are so fitting for this kind of situation.
 
 *特にアリシア！この人こう云うのが好きなのか何処から持って来たの？って言いたくなる様なの物をやたら用意してくる。*
 
 &nbsp;
 
-Gothic Lolita-ish is still good.
+The goth-loli style is still fine.
 
 *ゴスロリっぽいのはまだ良い。*
 
-Punk-like leather with lots of belts is also good because it's cool, even though it smells like the kitchen, right?
+The punk style with lots of belts is a bit cringy but looks cool, right?!
 
 *レザーでベルトが沢山着いたパンクっぽいのも厨二臭いけど格好いいから良いよ？！*
 
-But even if it is the same leather, where did you get this outfit that is torn off here and there and almost reveals the important parts of the body, whether it is bondage or end-of-the-century champions!
+But the same leather... where did she get that bondage outfit that looks like it's been ripped apart and is almost exposing important parts!?
 
 *でも同じレザーでも、このあちこち引き千切ぎられて大事な所まで見えそうになってるボンデージなのか世紀末覇者なのか分んない衣装は何処から用意したの！？*
 
 &nbsp;
 
-But one thing I do know.
+But I've realized one thing.
 
 *でも、一つ分った事がある。*
 
-A tiered skirt with big ribbons attached and layers of layers of big bulges.
+With a big ribbon attached, the tiered skirt that is layered and puffed out.
 
 *おっきなリボン付けられて、幾重にも重なって大きく膨らんだティアードスカート。*
 
-This is the biggest outfit I've ever worn with lots of frills.
+The outfit with the biggest and most frills I've ever worn.
 
 *今まで着た中で一番フリルが大きくて沢山着いた衣装。*
 
 &nbsp;
 
-Yes, the princess in the story or the Takarazuka! When I was made to dress like a princess in a story or a Takarazuka!
+Yes, when I was dressed up like a princess or a Takarazuka performer.
 
 *そう、お話に出てくるお姫様か宝塚か！？みたいな恰好にさせられた時。*
 
-I was so excited that I knew it myself!
+I could feel my excitement skyrocketing!
 
 *自分でも分るくらい、テンションがダダ上がりになってしまったのだ！*
 
 &nbsp;
 
-I realized that I like this kind of thing!　I realized.
+Ah, I've realized I like this kind of thing!
 
 *あぁ、わたしってばこういうのが好きなんだ！　という事を自覚した。*
 
 &nbsp;
 
-I couldn't help but review my reflection in the mirror over and over again from various angles.
+I couldn't help but check myself in the mirror from various angles.
 
 *思わず鏡に映った自分を色んな角度から何度も見直してた。*
 
-I enjoyed watching the skirt of light cherry fabric reflect the light as it spun around and spread out, scattering beautiful rose pink light in a flutter. ...... I posed by myself as I spun around and around in front of the mirror over and over again.
+When I twirled around, the light pink skirt reflected the light, spreading beautiful rose-pink light as it fluttered, and I enjoyed spinning in front of the mirror, posing alone...
 
 *クルクルと回ると薄桜の生地のスカートが光を反射して、綺麗なローズピンクの光をヒラヒラと撒き散らしながら広がるのが楽しくって、何度も鏡の前で回っては一人ポーズを取っていたら……。*
 
 &nbsp;
 
-Before I knew it, the sisters were thrashing around like they were about to die in agony.
+Before I knew it, the older girls were rolling around, looking like they were about to faint.
 
 *いつの間にかお姉様方が悶死しそうな様相でのた打ち回ってた。*
 
-It was a little scary to see Mia with a red face, huffing and puffing and calling my name over and over... even Bibi, who came with me that day, blushed and pulled a face.
+It was a bit scary when Mia was calling my name repeatedly with a red face... but that day, even Bibi, who came with us, was blushing and trembling.
 
 *ミアが赤い顔してハァハァしながら何度もわたしの名前を呼んでいたのはちょっと怖かったけど…その日は一緒に来たビビまで顔を赤らめプルプルしてた。*
 
 &nbsp;
 
-I came to my senses and felt extremely embarrassed, and since I was at Jessica's house that day, I crawled into her bed with a yelp!　I screamed and dove into her bed.
+Suddenly, I snapped back to reality and felt extremely embarrassed, and since that day we were at Jessica's house, I dove into her bed while shouting "Uunyahhh!!"
 
 *ハタッと我に返りむっちゃクチャ恥ずかしくなって、その日はジェシカの家だったから、彼女のベッドへ　うにゃぁぁぁぁ！！　と叫びながら潜り込んでしまった。*
 
 &nbsp;
 
-Immediately after that, I was forcibly dragged out of bed, and my sisters and Mia were making a mess of me to the hilt.
+Right after that, I was forcibly dragged out of bed and thoroughly messed around by the older girls and Mia.
 
 *その後直ぐにベッドから無理クリ引き摺り出され、お姉様方とミアに思い切り滅茶苦茶捏ね繰り回される事になる。*
 
 &nbsp;
 
-My eyeballs are rolling around in my head as I'm being sandwiched between the elasticity of various types of soft flesh, and I'm touching various parts of my body in this state... including the very hardest parts! The hand that is touching all over my body in this state! It's Mia's hand, isn't it? I just noticed it recently! Oh my God!
+I was surrounded by various soft, bouncy bodies, and my eyes were spinning, but those hands were touching various parts of my body... including some very sensitive areas! Those were Mia's hands, right?! I just realized that recently! No way!!
 
 *色んな柔らかい肉の弾力に挟まれ回されて目玉グルグルになってますが、こんなん状態のわたしの身体の様々な場所を…、それはもう大変なトコロも含む！を触りまくってる手！ミアの手でしょ？！最近気づいたんだからね！もう！！*
 
-...... Well, I can't complain because I'm also a sucker for depraved meat...
+...Well, I can't complain since I'm also groping soft flesh...
 
 *……まぁわたしも堕肉を揉みしだき捲くってるから文句は言えないのだけれどね…。*
 
 &nbsp;
 
-The first half of the summer vacation passed with these fornicating days.
+Those noisy days passed, and the first half of summer vacation went by.
 
 *そんな姦しい日々を過ごし、夏休みの前半は過ぎて行ったのだ。*
 
@@ -225,41 +224,41 @@ The first half of the summer vacation passed with these fornicating days.
 
 &nbsp;
 
-In the latter half of the summer vacation, Kara and her family had to prepare for their higher education, so they were not able to see each other as often as before.
+As summer vacation entered its second half, on the 4th of the Red Moon, Carla and the others had various preparations for advancing to the next grade, so we couldn't meet as often as before.
 
 *夏休みも後半、4の紅月になるとカーラ達は進学の準備が色々あるので、それまで程頻繁には会えなくなった。*
 
 &nbsp;
 
-Still, we all went swimming in the early part of the month, and when the time was right, we did some standing and hunting.
+Still, in the early part of the month, we all went to the beach, and when we had time, we also did some hunting.
 
 *それでも月の上旬にはみんなで海水浴にも行ったし、時間が合う時は立ち合いもやったし狩りもした。*
 
 &nbsp;
 
-About halfway through the month, Kara suggested that we all go for a picnic to the high ground northwest of the village, as it was probably the last time we would all go together.
+Around the middle of that month, Carla suggested that since this might be our last chance, we should all go on a picnic to a high place northwest of the village.
 
 *そんな月も半ばを過ぎた頃、多分これで最後だから、村の北西にある高台へ皆でピクニックへ行きたいとカーラが言い出した。*
 
 &nbsp;
 
-There is a small lake with a spring, and the lakeside is supposed to be a flower garden this time of year, with colorful flowers in full bloom. It is Carla's wish that we all go there at the end of the trip, as it offers a panoramic view of the village.
+There is a spring there, and a small lake, and at this time of year, colorful flowers should be blooming all around, turning it into a flower field. Since we can see the whole village from there, Carla wanted to go one last time together.
 
 *そこは湧水も出ていてちょっとした湖があり、湖畔には今の時期色とりどりな花が咲き誇って一面花畑になっている筈だ。村も一望できるので最後に皆で行きたいというカーラの希望なのだ。*
 
 &nbsp;
 
-I would love to go there because it is my first time there, too! I took Carla's suggestion.
+Since it was my first time going to that place, I eagerly agreed to Carla's suggestion!
 
 *わたしも初めての場所なので是非行ってみたい！とカーラの提案に乗っかった。*
 
-Mia, Dana and Colin too, as a matter of course. I can't help it! and Bibi, too.
+Naturally, Mia, Dana, and Colin also joined. Bibi said, "I can't help it!"
 
 *当然の様にミアもダーナとコリンも。しょうがないわね！とビビも。*
 
 &nbsp;
 
-In the end, all eight girls decided to participate, so the temple was also excused on that day, and we all met at my house around 9:00 a.m. to depart together.
+In the end, all eight girls participated, so on the day of the picnic, we took a break from the temple and gathered at my house around 9 o'clock to set off together.
 
 *結局やっぱり女子8人全員参加になったので当日は神殿もお暇させて貰い、9時ごろにわたしの家に集合して皆で出発する事になった。*
 
@@ -267,85 +266,85 @@ In the end, all eight girls decided to participate, so the temple was also excus
 
 &nbsp;
 
-The distance is about 5 km from our house, and the elevation difference is about 200 meters.
+The distance is about 5 kilometers from my house, with an elevation difference of about 200 meters.
 
 *距離はウチからおよそ5キロ、標高差は200メートルくらいなのかな？*
 
-We would walk there at a leisurely pace and have lunch while looking at the lakeside flower garden.
+We would walk leisurely, having lunch while looking at the flower fields by the lakeside.
 
 *それをのんびり歩いて行って、湖畔のお花畑を見ながらお昼にするのだ。*
 
 &nbsp;
 
-I was excited from the very beginning.
+I felt excited right from the start, and I was already in a good mood.
 
 *何だかスタートからワックワクしちゃって、最初から興奮気味だ。*
 
 &nbsp;
 
-I was like, "Oh, by the way, is this the first time you've all been together for a picnic? Oh, my God!
+"By the way, is this the first time we're all together for a picnic? ...It is!"
 
 *「そう言えば、みんな揃って、ピクニックって、はじめて？・・・なの！」*
 
-'Yes, this is the first and last time Sue and I will have a picnic like this.
+"That's right, this is the first and last time I'll be having a picnic with Sue like this."
 
 *「そうだよ、スーとこうしてピクニックするのは最初で最後なんだよね」*
 
 &nbsp;
 
-Carla says something that makes me a little sad.
+Carla said something a bit sentimental.
 
 *カーラがちょっとしんみりする様な事を言い出す。*
 
 &nbsp;
 
-Not the last! Things! Things I'll do again!"
+"It's not the last! We'll do it again...!"
 
 *「最後じゃない！もの！また・・・するもの！」*
 
 &nbsp;
 
-When I denied that I wanted him to say such a thing, he said, "I don't want you to say such a thing.
+When I denied it, not wanting her to say such things.
 
 *わたしがそんな事言わないで欲しいと否定すると。*
 
 &nbsp;
 
-I can't stop loving Sue! Sue's cuteness just won't stop~!"
+"Ugh! Sue's cuteness is unstoppable!!"
 
 *「も～～～！スーの可愛さが止まんないーー！」*
 
 &nbsp;
 
-and Alicia comes over to hug me.
+Alicia hugged me.
 
 *とアリシアが抱き付いて来る。*
 
 &nbsp;
 
-"Fumigism."
+"Fumigyu!"
 
 *「ふみゅぎゅ」*
 
-Aaaaahhh! No hugging alone~!"
+"Ahhh! No hugging alone!!"
 
 *「あーーっ！一人で抱き着くの禁止～～！」*
 
 &nbsp;
 
-and Jessica also had her hands around my waist from behind and hugged me.
+Jessica also wrapped her arms around my waist from behind and hugged me.
 
 *とジェシカにも後ろから腰回りに手を回され抱き付かれた。*
 
 &nbsp;
 
-"Aahhhh! Jae, Jessica! I've been gagged... I've been gagged...!"
+"Ahh! Je-Jessica! That's ticklish...!"
 
 *「ぁひゃン！ジェ、ジェシカ！くしゅぐった・・・い！」*
 
 &nbsp;
 
-Everyone enjoyed the hiking trip with such stable and pet-like treatment as usual.
+With such stable treatment as a beloved pet, we all enjoyed the hiking trail together.
 
 *そんないつもと変わらぬ安定の愛玩動物的扱いで、皆ではしゃぎながらハイキングの道中を楽しんで行った。*
 
@@ -359,63 +358,63 @@ Today's hat is a large straw hat.
 
 &nbsp;
 
-The ribbons, wrapped thickly around the head and spread out like large roses on the side of the head, dazzle white in the sunlight.
+It has a thick wrap around the head, and a big ribbon braided like a rose on the side shines white in the sunlight.
 
 *頭周りを太く巻き、側頭部で大きなバラの様に編み広げられたリボンが陽の光で白く眩しい。*
 
-Today, the hair style is pigtail, which has been completely registered as a favorite.
+Today, my hairstyle is a pig tail that has been completely registered as my favorite.
 
 *今日も髪型はすっかりお気に入りに登録されたピッグテール。*
 
 &nbsp;
 
-The sleeveless, amorpha-colored dress is very cool with the white of the ruffles.
+The sleeveless forget-me-not colored dress is very refreshing, especially with the white frills.
 
 *ノースリーブで勿忘草色のワンピースはフリルの白さと相まってとても涼しげだ。*
 
-The fabric is light and the skirt is above the knee, so one must be careful of the wind on high ground coming up from below.
+The fabric is light, and the skirt is above the knee, so I need to be careful of the wind coming up from below at the high place.
 
 *生地も軽くスカートの丈は膝上なので、下から上がって来る高台での風には注意が必要なのだ。*
 
 &nbsp;
 
-Once when a strong wind blew up, it was a close call!
+When a strong wind blew up, it was dangerous!
 
 *一度強い風が吹き上げて来た時は危なかった！*
 
-I held my hat with my right hand and my skirt with the other hand to prevent it from being blown away, but the wind was whipping it up to my thighs, nearly exposing the fabric inside!
+I pressed my hat down with my right hand and held my skirt down with the other, but the wind lifted it up to my thighs, almost exposing the fabric underneath!
 
 *飛ばされない様右手で帽子を押え、もう片方の手でスカートを押えたのだけれど、巻き上がる風で太腿まで捲れ上がり、危うく中の布地が晒される所だった！*
 
 &nbsp;
 
-Until recently, I didn't think anything of being skirted up and having my underwear seen, so what's the big deal now? You may think, "What's the big deal?
+Not long ago, I wouldn't have thought anything of my skirt being lifted and my underwear being seen, but now... I might be thought of as someone who is suddenly shy!
 
 *ちょっと前まで、スカート捲られパンツを見られても何とも思わなかったのに何を今更！と思われてしまうかもしれませんが…。*
 
-
+Um, how should I put it... since I became aware that I am a "pubescent girl"?
 
 *えーと、何と言いますか、その……自分が『思春期の女子』であると自覚する様になってからですかね？*
 
-It seems that the shameful things are growing bigger and bigger!
+My sense of modesty seems to be growing rapidly!
 
 *どんどん恥じらい的な物も大きく育って来てるっぽいのですよ！*
 
-It is as if they are saying, "Hurry up and grow up into something appropriate for your age! rapidly, as if to say, "Hurry up and grow up!
+As if to say, "Hurry up and grow up to something appropriate for your age!"
 
 *まるで年相応な物に早く大きくなれ！と言わんばかりに急速にっ！*
 
 &nbsp;
 
-So! Now I am absolutely defending my underwear!
+So!! Right now, I absolutely must protect my underwear!
 
 *な・の・で！！今のわたしはパンツは絶対死守なのです！*
 
-Skirt flipping! No, no, no, no! No!
+No lifting skirts! No way! Absolutely!!
 
 *スカートめくり！ダメ！ゼッタイ！！*
 
-This story is not meant to affirm or promote molestation or sexual harassment!
+This story does not condone or promote sexual harassment or indecent acts!!
 
 *この物語は痴漢行為やセクハラを肯定増長するものではございませんっ！！*
 
@@ -423,35 +422,35 @@ This story is not meant to affirm or promote molestation or sexual harassment!
 
 &nbsp;
 
-On the way up, we took a short break to dip our feet in the water at a small waterfall and stream.
+On the way up, we took a short break by dipping our feet in a small waterfall and stream.
 
 *登りの途中で、小さな滝と沢で水に足を浸して小休止を取った。*
 
-The water in the stream felt so good on our bodies, which were burning from the strong sun, that we all sat side by side and kicked up the water to play with it.
+The cool water felt great on our sun-heated bodies, and we all sat in a line, splashing water and playing.
 
 *沢の水は強い日差しで火照った体にはとても気持ち良くて、皆で並んで座ってバシャバシャと水を蹴り上げて遊んでしまう。*
 
 &nbsp;
 
-When the water kicked up by the children comes on their bodies, the water splashing starts without anyone's knowledge!
+As the splashed water hit our bodies, a water fight began without anyone saying anything!
 
 *蹴り上げた水が体にかかってくると、誰とはなしに始まる水のひっかけっこ！*
 
-Countless droplets of water dance in the air by the water's edge, echoing with cackling yellow voices.
+We squealed and laughed, and countless droplets danced in the air by the water's edge.
 
 *キャーキャーと黄色い声を響かせて、水辺で無数の水滴が宙に舞い踊る。*
 
 &nbsp;
 
-After playing for a while, we left the waterfront.
+After playing for a while, we left the water's edge.
 
 *ひとしきり遊んだ後、水辺を後にした。*
 
-The high lake is just around the corner, he said.
+The lake on the high ground should be just ahead.
 
 *高台の湖はもう直ぐだそうだ。*
 
-Everyone's clothes were a little wet and see-through in various places, but they would dry quickly as long as they walked in this sunshine.
+Although everyone's clothes were a bit wet and some parts were see-through, they would dry quickly while walking in this sunlight.
 
 *多少皆の服が濡れて色んなとこ透けているけど、この日差しの中を歩いていれば直ぐに乾いてしまう。*
 
@@ -459,55 +458,55 @@ Everyone's clothes were a little wet and see-through in various places, but they
 
 &nbsp;
 
-As we proceeded along the mountain path, which was flanked by hardwood trees and made of log stairs in long spans, we saw a break in the trees a little further ahead and a space opened up.
+As we walked along the mountain path, which was made with logs in a long span between broadleaf trees, we saw a clearing ahead where the trees parted.
 
 *広葉樹に挟まれ、長いスパンで丸太を使った階段が作られている山道を進んで行くと、ちょっと先に木々が途切れて空間が広がっているのが見えてきた。*
 
 &nbsp;
 
-You see? Over there? Is there a lake up there?
+"Hey? Over there? Beyond that, is there a lake...?"
 
 *「ね？あそこ？あの先に、湖ある・・・の？」*
 
 &nbsp;
 
-I pointed ahead and asked Kara.
+I pointed ahead and asked Carla.
 
 *と先を指差してカーラに聞いてみた。*
 
 &nbsp;
 
-Yes! It's just over there. If you go that way, you will see the lake soon!"
+"Yes! It's just beyond there. If we go there, we'll see the lake right away!"
 
 *「そう！あそこの先にあるよ。あそこまで行けば直ぐ湖が見えて来る！」*
 
-Yay! Isogo! Let's go quickly! Mia! Bibi! Come on!
+"Yay! Let's hurry! Mia! Bibi! Hurry up!!"
 
 *「やったーー！いそご！早く行こう！ミア！ビビ！早く！！」*
 
 &nbsp;
 
-With that said, he grabs their hands and pulls them along.
+Saying that, I grabbed both of their hands and pulled them along.
 
 *そう言って二人の手を掴んで引っ張って行く。*
 
 &nbsp;
 
-Oh! Wait, Sue! Don't be rash! I'm not going to jump! Sue-chan, you're fast! You're fast!
+"Ah! Wait, Sue-chan! Be careful! Don't fall! Sue-chan is fast! So fast!!"
 
 *「あ！待ってよスーちゃん！あぶな！あびない！スーちゃん速い！速いよ～～！！」*
 
-Wait for me! Sue! You're fast! I'm fast! You're fast! Wait for me!
+"Wait up! Sue! You're too fast! Slow down!!"
 
 *「待ちなさいってば！スー！アンタ速いんだから！速い！速いから！待ちなさいーー！！」*
 
 &nbsp;
 
-He took hold of their hands and half-heartedly dragged them up the mountain path, asking them to stop.
+I held the hands of the two who were asking me to stop and half-dragged them up the mountain path.
 
 *と制止を求める二人の手を持ち、半ば強引に引き摺って山道を登って行く。*
 
-I'm fine, okay? I'm watching your balance so you don't fall down! Mmm-hmm...
+Don't worry! I'm making sure not to trip! Hehe♪
 
 *大丈夫よ？ちゃんと転ばない様にバランス見てるもの！フフン♪*
 
@@ -515,121 +514,121 @@ I'm fine, okay? I'm watching your balance so you don't fall down! Mmm-hmm...
 
 &nbsp;
 
-I'm feeling it from around the break in the trees. The scent is wafting all the way up here!
+I could feel it from the moment I saw the gap in the trees. The fragrance was wafting all the way here!
 
 *樹木の切れ目が見えた辺りから感じている。ここまで香りが漂って来ているんだもの！*
 
 &nbsp;
 
-As I walked through the trees and out into the open space, the sight before me took my breath away.
+As we passed through the trees and entered the open space, I gasped at the sight before me.
 
 *木々の間を抜け、開けた空間へ出ると思わず目の前の光景に息を飲んでしまった。*
 
-The yellow flowers spread out all over the area swayed and waved like the surface of the water.
+A sea of yellow flowers swayed and danced, rippling like the surface of water.
 
 *一面に広がる黄色い花々は揺れそよぎ、まるで水面の様に大きく波打ちうねっている。*
 
-I jumped into the midst of it, and my whole body was enveloped in the intoxicating scent of flowers.
+Without thinking, I jumped right into the middle of it, and the overwhelming scent of flowers enveloped me.
 
 *思わずその只中に飛び込むと、むせ返る様な花々の香りに全身が包まれた。*
 
 &nbsp;
 
-The yellow flowers that fill the area are up to my waist in height.
+The yellow flowers surrounding us were taller than my waist.
 
 *辺りを埋めている黄色い花は、草丈がわたしの腰の上まである。*
 
-Some of them extend close to the face!
+Some even reached close to my face!
 
 *中には顔の近くにまで伸びている物も！*
 
-Each flower was small and numerous, like an upside-down bunch of grapes at the end of a single stem.
+Each flower was small, with many blooms resembling a bunch of grapes hanging upside down at the end of a single stem.
 
 *一つ一つの花は小さくて、一本の茎の先にブドウの房を逆さにした様な感じで沢山の花をつけていた。*
 
-When you walk into the crowd, it is as if you are in the middle of a yellow wave!
+As I entered the cluster, it felt like I was in the middle of a yellow wave!
 
 *群生の中へ入り込むと、黄色の波間の只中に居るみたいになる！*
 
 &nbsp;
 
-I think it's a picture plane of the "konjiki no ino ori tatsubeshi" style!
+It was like a scene from a painting that says, "This is where the golden fragrance descends!"
 
 *そのもの…こんじきののにおりたつべし　的な絵面だと思うんですよ！！*
 
-Ah! What you're wearing is also light but blue!
+Oh! And my clothes are light blue!
 
 *あ！着てる物も薄目だけど青系だ！*
 
 &nbsp;
 
-I couldn't help but run through the yellow clumps with my arms outstretched!
+I couldn't help but spread my arms and run around in the sea of yellow flowers!
 
 *思わず両手を広げて黄色い群生の中を走り回ってしまった！*
 
-I was having some fun, and before I knew it, laughter was escaping from my mouth.
+I felt so happy that laughter escaped my lips without me realizing it.
 
 *なんか楽しくなって、いつの間にか口元から笑い声も漏れちゃってた。*
 
 &nbsp;
 
-After running around for a while, I went back to everyone and the sisters looked like they were about to die in agony again.
+After running around for a while, when I returned to everyone, the older girls had looks on their faces as if they were about to faint.
 
 *ひとしきり走り回ってから皆の元へ戻ったら、またお姉様方が悶死しそうな顔してた。*
 
-Huh? And Dana? Mia is... oh, this is normal, I've recently found out. Duh.
+Huh? Dana too? Mia... oh, this is just her usual self, I realized recently. Yup.
 
 *あれ？ダーナも？ミアは…あ、これは平常運転よね、最近判ったわ。ウン。*
 
 &nbsp;
 
-So, one approached me, Colin.
+Then, Colin approached me.
 
 *で、1人近づいて来たコリンが。*
 
 &nbsp;
 
-It has anti-inflammatory properties, so it can be used as a wound remedy, and if you boil it, it can be used as a cold remedy. So the dried herb tea has a nice aroma and is also good for preventing colds. I'll pick some up for you later as a souvenir.
+"This flower is called 'Golden Staff.' It has anti-inflammatory properties, so it can be used as a wound remedy, and if you boil it down, it can also be used as a cold medicine. So dried herbal tea made from it smells good and helps prevent colds. Let's pick some for souvenirs later."
 
 *「これは『黄金の杖』と呼ばれている花なの、消炎作用があるから傷薬として使えるし煎じて煮詰めれば風邪薬にもなるの。だから乾燥させたハーブティーは香りも良いけど風邪予防にもなるのよ。あとでお土産に摘んで行きましょうね」*
 
 &nbsp;
 
-Smiling, he told me about this flower.
+She smiled and told me about the flower.
 
 *ニコリと微笑みながらこの花について教えてくれた。*
 
-Colin is indeed an honor student who knows things! It's always nice to be able to rely on someone who can calmly and dispassionately look around and analyze situations, isn't it?
+As expected of the knowledgeable honor student Colin! It's so reassuring to have someone who can calmly analyze the situation!
 
 *さすが物知りな優等生コリン！いつでも沈着冷静に周りを見て状況分析出来る人って頼りになるよね！*
 
-But what? Are your tangerine eyes a little droopier than usual?
+But wait? Is her expression a bit droopy compared to usual?
 
 *でもあれ？ちょっとミカン目がいつもより垂れ気味？*
 
-Your glasses are slipping down a little. Your mouth is also a little bit clammy, like you're trying to hold something back...hmmm?
+Her glasses are slightly slipping down! And her mouth seems to be twitching as if she's trying to hold something back... huh?
 
 *メガネ少しずり落ちてるよ？口元も何か我慢するみたいにモゴッモゴッっとするし…ん？*
 
 &nbsp;
 
-Come to think of it, what happened to the other one, Bibi, who is always supposed to be calm? I looked for her with my eyes and found her beside Mia.
+Speaking of which, where's Bibi, who is usually so calm? When I looked around, she was next to Mia.
 
 *そういえば、もう一人のいつも冷静な筈のビビはどうした？と目で探すとミアの横に居た。*
 
-When our eyes met, he turned his head the day after tomorrow! Why? I thought her face was red, but... why did she look away, Bear? I don't get it!
+When our eyes met, she turned away, looking in a completely different direction! Why!? I thought I saw her face turn red... but why is she avoiding my gaze, Bear-chan!? I don't understand!!
 
 *目が合うとプイっと明後日の方を向いてしまったゾ！何故！？顔が赤かった気がしたけど…何で目を逸らすのよベア子！？解せん！！*
 
 &nbsp;
 
-'Oh, Sue's been a steady angel today, too ......, but she's skipping too far! Aah!"
+"Ah, Sue looks like a stable angel today... but you're going overboard! Hah!"
 
 *「あぁ、今日のスーも安定の天使ぶりだわ……でも飛ばし過ぎよ！はぅぅ！」*
 
 &nbsp;
 
-I think I heard Alicia muttering to herself.
+I think I heard Alicia muttering that.
 
 *とアリシアの呟きが聞こえて来た気がする。*
 
@@ -637,101 +636,101 @@ I think I heard Alicia muttering to herself.
 
 &nbsp;
 
-Beyond the cluster of "golden canes" stretched the surface of the water.
+At the end of the cluster of 'Golden Staff' flowers, the surface of the water spread out.
 
 *『黄金の杖』の群生している先には水面が広がっていた。*
 
-It is much smaller than the highland lakes seen before.
+Compared to the highland lake I saw before, it was much smaller.
 
 *前に見た高原湖と比べると随分小さい。*
 
-But it is bigger than Hodgson's pond and the clarity of the water is just amazing.
+But it's bigger than Hodgeson's Pond, and the clarity of the water is incredible.
 
 *でもホジスンの池よりは大きく水の透明感がとにかく凄い。*
 
-The water is emerald green in color, as if gems were laid out on the bottom of the lake!
+The water is emerald green, as if jewels are strewn across the lakebed!
 
 *水の色がエメラルドグリーンで、まるで宝石が湖底に敷き詰められているみたいだ！*
 
 &nbsp;
 
-Coniferous trees growing in the sky, clustered in places in the green area around the lake.
+Around the lake, there are patches of greenery, with coniferous trees reaching up to the sky in places.
 
 *湖の周りの緑地に、所々纏まって空に伸びている針葉樹。*
 
-In addition to the yellow flowers on Coco, the lakeside was filled with colorful white, red and purple flowers.
+Besides the yellow flowers blooming here, there are also various flowers in white and red-purple colors blooming all around.
 
 *湖畔にはココに咲いている黄色い花以外にも、白や赤紫の色とりどりの花々が咲き乱れていた。*
 
 &nbsp;
 
-Several kinds of waterfowl are drifting on the surface of the water.
+Various water birds drifted on the surface of the water.
 
 *水面には幾種類もの水鳥が漂っている。*
 
-There are fish that occasionally leap up from the surface of the water, and I wonder if that's what they're after.
+Occasionally, fish jumped out of the water, perhaps aiming for them?
 
 *時折水面から跳ね上がる魚が居るのでそれを狙っているのかな？*
 
-A pleasant breeze blew by as I stood by the lakeside and watched the lake.
+Standing by the lakeside and watching the scene, a pleasant breeze blew by.
 
 *湖畔に立ちそんな湖の様子を眺めていると心地よい風が吹き抜けて行く。*
 
-The wind chilled by the lake gently caresses her cheeks and the hem of her skirt flutters.
+The wind, cooled by the lake, gently caressed my cheeks, and the hem of my skirt fluttered.
 
 *湖面で冷やされた風に優しく頬を撫でられ、スカートの裾もフワリと広がる。*
 
 &nbsp;
 
-As I was relaxing in the comfort of the wind, Kara came up behind me.
+As I surrendered to the pleasantness of the wind, Carla came up from behind.
 
 *風の心地良さに身を任せていると後ろからカーラが来た。*
 
 &nbsp;
 
-"Sue, come here and take a look. This is the best place to see it."
+"Sue, come here and look. This is the best view here."
 
 *「スー、こっち来てご覧。ココで一番の見所だよ」*
 
 &nbsp;
 
-As Carla led me by the hand, we came to a place where the view toward the village widened.
+As Carla led me, we arrived at a spot where the view opened up towards the village.
 
 *カーラに手を引かれて行くと村方面へ視界が広がる場所に出た。*
 
-The railing is attached with logs.
+There was a railing made of logs.
 
 *丸太で手すりが添えつけられている。*
 
-Beyond the railing, there are few trees, and a gentle slope leads downward.
+Beyond the railing, there were almost no trees, and a gentle slope led downwards.
 
 *手すりから先は樹木が殆ど無くて、緩い勾配が下へと向かっている。*
 
-There were rocks jutting out in places on the slope, but almost the entire area was covered with small flowers like blue-purple grass cherry blossoms.
+On that slope, there were rocks protruding here and there, but mostly it was covered with small blue-purple flowers like phlox.
 
 *その斜面には所々に岩が突き出てるけど、殆ど一面を青紫の芝桜の様な小さな花で埋め尽くされてた。*
 
 &nbsp;
 
-A sigh escaped me.
+A sigh escaped my lips.
 
 *溜め息が漏れた。*
 
-Carpet. A blue-purple carpet spread all the way to the village.
+It looked like a carpet. A blue-purple carpet spread out all the way to the village.
 
 *絨毯だ。青紫色の絨毯が敷き詰められて村まで広がっている。*
 
-It looked that way.
+That's how it appeared.
 
 *そんな風に見えた。*
 
 &nbsp;
 
-He takes off his hat, holds it by his chest, and gazes at the landscape below.
+I took off my hat, holding it against my chest, and gazed at the scenery below.
 
 *帽子を取り、胸元で押え持って眼下の景観に見入ってしまう。*
 
-You can see the whole village from here....
+From here, I could see the entire village...
 
 *ココからは村が一望できるんだ…。*
 
@@ -739,41 +738,41 @@ You can see the whole village from here....
 
 &nbsp;
 
-The wheat fields, which I was so impressed to see on the day I first came to Amkam, are now neatly hunted and striped with a dead color, and straw rolls can be seen lying in some places.
+I could see the wheat fields that had moved me when I first came to Amukamu, now beautifully harvested, with brown stripes spreading out and straw rolls scattered here and there.
 
 *初めてアムカムに来た日に見て感動した麦畑も、今は綺麗に狩り取られ枯色の縞模様が広がり、所々に麦わらロールが転がっているのが見える。*
 
 &nbsp;
 
-On the left hand side, is it to the east when viewed from here? You can see our house, though it is small.
+To my left, which would be east from this viewpoint, I could see my house, small but visible.
 
 *左手の方、ココから見ると東になるのかな？小さいけれど我が家が見える。*
 
-The glimmering white stuff must be the washed sheets that I couldn't help Mr. Elrose with this morning.
+The white things I see are probably the sheets that I couldn't help Elrose with this morning.
 
 *チラチラと白い物が見えるのは今朝はエルローズさんを手伝えなかった洗濯したシーツだろう。*
 
-I'll take it in when I get back, so wait for me.
+I'll take them in when I get back, so please wait for me.
 
 *帰ったらわたしが取り込むから待っててね。*
 
 &nbsp;
 
-To its right is the temple, a white building.
+To the right, there is the white building of the temple.
 
 *その右手には白い建物の神殿だ。*
 
 &nbsp;
 
-The village hall of Amkam is also well understood.
+I can also see the Amukamu village office clearly.
 
 *アムカムの村役場も良く分る。*
 
-This is indeed the former residence of the Amkham frontier count! You can see its majesty even from here.
+As expected of the former Amukamu border lord's castle! Even from here, I can see its grandeur.
 
 *さすが元アムカム辺境伯居城！ココからでもその荘厳さが見て取れる。*
 
-The slate roof is clearly visible shining in black.
+I can clearly see the slate roof shining black.
 
 *スレート葺きの屋根が黒く輝いているのが良く分る。*
 
@@ -781,17 +780,17 @@ The slate roof is clearly visible shining in black.
 
 &nbsp;
 
-Much farther to the east is probably the ocean where we all went last month, although it is not visible from here.
+Further east, although I can't see it from here, there should be the sea we all went to last month.
 
 *もっとずっと東には、ここからは見えないけど先月皆で行った海があるのだろう。*
 
 &nbsp;
 
-The Amkam forest stretches to the north, and the Deipala Mountains are supposed to rise beyond it, but ...... I can't see anything!
+To the north, the Amukamu forest spreads out, and beyond that, the Deipara mountain range should be towering... but... I can't see anything!
 
 *北にはアムカムの森が広がり、その先にはデイパーラ山脈が聳えている筈・だ・が……わたしには何も見えない！*
 
-Mainly for my own mental health!
+Mainly due to my mental health issues!!
 
 *主に自分の精神衛生上の問題で！！*
 
@@ -799,33 +798,33 @@ Mainly for my own mental health!
 
 &nbsp;
 
-What do you think? Isn't this a great location? I wanted to come here with you guys before I left the village."
+"How is it? It's a great location, right? I wanted to come here with everyone before leaving the village."
 
 *「どう？いいロケーションでしょ？ワタシ、村を離れる前に皆と一緒に此処へ来たかったんだ」*
 
-Yeah! It's great, Kara! I'm so glad I got to come with you guys!"
+"Yeah! It's amazing, Carla! I'm really glad to be here with everyone!"
 
 *「うん！凄いよカーラ！わたしも、皆と来れて、良かった！」*
 
-Thank you Sue. Don't forget about us when you say goodbye. I don't want you to forget us.
+"Thank you, Sue. Even after we part, please don't forget about us. I don't want you to forget."
 
 *「ありがとうスー。お別れしてもワタシ達の事忘れないでね。忘れちゃ嫌だよ？」*
 
 &nbsp;
 
-I can feel the strength in Kara's gripped hand.
+I could feel Carla's grip tightening on my hand.
 
 *カーラの握っている手に力が入るのが分る。*
 
 &nbsp;
 
-I won't forget! I'm not going to forget! I don't want to say goodbye.
+"I won't forget! There's no way I could forget...! I don't want to... say goodbye!"
 
 *「忘れない！忘れるワケ無い・・・モン！お別れなんて・・・いうの・・・やだ！」*
 
 &nbsp;
 
-I grabbed Kara's hand back with both hands and screamed, as she said something that made my teary eyes go loose.
+I shouted back, holding her hand tightly as she started to say something that would loosen her tear ducts.
 
 *涙腺が緩む様な事を言い出すカーラの手を、両手で握り返し叫んでしまった。*
 
@@ -833,41 +832,41 @@ I grabbed Kara's hand back with both hands and screamed, as she said something t
 
 &nbsp;
 
-Then another hand now held his shoulder from behind, and in his ear.
+Then, suddenly, another hand came from behind, wrapped around my shoulder, and whispered in my ear.
 
 *すると今度は別の手が後ろから肩を抱き、耳元で*
 
 &nbsp;
 
-Thank you, I'll never forget you. My sweet baby."
+"Thank you, I will never forget either. My cute little baby."
 
 *「ありがとう、ボクも決して忘れないよ。可愛いボクのベイビィ」*
 
 &nbsp;
 
-My hair stood up on end and Kara's corkscrews were diminishing at about the same time.
+I felt my hair stand on end, and Carla's corkscrew curls seemed to shrink at the same time.
 
 *わたしの総毛が逆立つのとカーラのコークスクリューが減り込むのは、ほゞ同時だった。*
 
 &nbsp;
 
-The "Soretto" was sent flying backward with a sound like something being crushed.
+With a squelching sound, something was crushed, and "it" was sent flying backward.
 
 *プギュルッ　と何かが潰れる様な音を出して『ソレ』は後方へ飛ばされて行った。*
 
 &nbsp;
 
-Where did you come from...how did you come from? Where... how did you come from?
+"Who are you?! Where did you come from?!!"
 
 *「アンタ！！どっから…どうやって湧いたぁっ？！！」*
 
 &nbsp;
 
-Kara takes a stance and asks "Sole" with a sharp look in her eyes.
+Carla took a stance and glared at "it" with sharp eyes.
 
 *構えを取り、鋭い目つきで『ソレ』に問いかけるカーラ。*
 
-They are fully prepared for battle.
+She was completely in battle mode.
 
 *完全に戦闘態勢に入ってる。*
 
@@ -875,19 +874,19 @@ They are fully prepared for battle.
 
 &nbsp;
 
-Sole coolly brushed her beautiful platinum blonde hair as if nothing had happened.
+"It" casually brushed back its beautiful platinum blonde hair as if nothing had happened.
 
 *ソレは何事も無かった様に涼しげに、綺麗なプラチナブロンドの髪をかき上げ。*
 
 &nbsp;
 
-Oyoyoshiyoko, distance and place are irrelevant to us, as we are in love. Where are you from? What kind of meaningless question is that?
+"Come on, distance or location doesn't matter for us who love each other. Asking where I'm from is a meaningless question, don't you think?"
 
 *「およしよ、愛し合う僕達に距離や場所など関係ない。何処から？なんて意味が無い質問だろ？」*
 
 &nbsp;
 
-You're talking about imitative things with your eyes down in a huff, but your nose is bleeding like a pig.
+While looking down, "it" spoke nonsensical words, but there was a steady flow of nosebleed coming out!
 
 *フッと目を伏せながらイミフな事語ってるけど、鼻血がダラダラピュッピュと出てますよ？*
 
@@ -899,107 +898,107 @@ Hearing the commotion, everyone gathered around.
 
 &nbsp;
 
-"Victor! How did you get here?
+"Victor!? What are you doing here!?"
 
 *「ヴィクター！？どうしてここに！？」*
 
-What do you mean? Why are you here?
+"What do you mean!? Why are you here?!"
 
 *「どう云う事！？何故アナタが此処に居るの？！」*
 
 &nbsp;
 
-Victor is like answering Alicia and Jessica's question....
+Victor answered Alicia and Jessica's questions.
 
 *ヴィクターは、アリシアとジェシカの問いに答える様に…。*
 
 &nbsp;
 
-You don't need a reason to go see someone you love, okay? The time you don't see them nurtures your love. Lil' girl."
+"There's no need for a reason to meet the one I love. The time apart nurtures love. My little girl."
 
 *「愛する人に逢いに行くのに理由などいらないよ？逢えない時間が愛を育てるのだからね。リルガール」*
 
 &nbsp;
 
-I think I've heard that line somewhere before...but it came back to me from behind Dana's back.
+I feel like I've heard that line somewhere before... but he returned it from behind Dana.
 
 *どっかで聞いた事あるセリフな気がするが…、そんな台詞をダーナの後ろから返してきた。*
 
 &nbsp;
 
-I was close to Dana's back and gently held her left wrist with my left hand, and then I put my right hand around her waist from behind as if I was crawling on her back... and then I put my chin on her right shoulder and blew in her ear.
+He pressed himself against Dana's back, gently holding her left wrist with his left hand, and slid his right hand around her waist from behind... then rested his chin on Dana's right shoulder while blowing softly into her ear.
 
 *ダーナの背中に密着し左手でダーナの左手首をそっと持ち、右手を這わせる様に後ろから腰に回し…、そのままダーナの右肩に顎を乗せながら、耳にフッと息を吹きかけた。*
 
 &nbsp;
 
-Miiigyaaaaahhhh!"
+"Meegyaaaahhh!!!"
 
 *「みぃぎゃやあぁぁぁぁっっーーーー！！」*
 
 &nbsp;
 
-Oh, I could clearly see that Dana was also grossly overstuffed.
+Oh, I could clearly see Dana's hair standing on end.
 
 *あ、ダーナも総毛立ったのが良く分った。*
 
 &nbsp;
 
-Immediately afterward, Dana swung down a stick-shaped object that she had taken out of somewhere with great force.
+Immediately after, Dana swung down a stick-like object she had taken out from somewhere with great force.
 
 *直後、ダーナは何処からか取り出した棒状の物を勢い良く振り下ろす。*
 
-It slid out like a folding baton and became a short spear! It slid and extended like a folding baton and became a short spear!
+It slid out like a folding baton and became a short spear!
 
 *それは折り畳み式の警棒の様に　ジャココンッ！とスライドして伸び、短槍になった！*
 
 &nbsp;
 
-Dana turned his short spear quickly and swung it into Victor's side, striking him in the side.
+Dana quickly spun the spear and struck it into Victor's side.
 
 *ダーナはその短槍を素早く回し、ヴィクターの脇腹へ振り抜き叩き込んだ。*
 
 &nbsp;
 
-Mekyobakki!
+Crunch, crack!!
 
 *メキョバキッ！！*
 
 &nbsp;
 
-The sound of something shattering or breaking is heard, and Victor's body bends into a "ku" shape and is blown away.
+With a cracking sound, something broke or crumbled, and Victor's body bent into a "k" shape and was sent flying.
 
 *と何かが砕けたり折れたりする音を響かせ、ヴィクターの身体が『くの字』に曲がり吹き飛ばされて行く。*
 
-The large tree ahead of the bush made a sound as if something had hit it, and it shook greatly.
+He crashed into the nearby bushes, and something hit a large tree, making a loud noise and shaking it.
 
 *そのまま先にあったブッシュに飛び込み、その先に在った大木が何かが当った様な音を響かせ、大きく揺れた。*
 
 &nbsp;
 
-Everybody brace yourselves! This thing is not over!"
+"Everyone, stay alert! That wasn't the end of it!"
 
 *「皆気を引き締めて！アレはこの位じゃ終わらない！」*
 
 &nbsp;
 
-Jessica calls out to everyone and flies instructions.
+Jessica called out to everyone, giving instructions.
 
 *ジェシカが皆に声をかけ指示を飛ばす。*
 
 &nbsp;
 
-Dana! Stay alert on the north side where the thing flew away! Kara! Kara, take the south at that spot! Alicia! You take the west! Colin, you take Dana! Bibi for Alicia! I'll take Kara! Auxiliary and alert, respectively! Mia! You stay close to Sue! It's definitely aiming for Sue!
+"Dana! Keep an eye on the north where it flew off! Carla! You watch the south from that spot! Alicia! You take the west! Colin, stick with Dana! Bibi, stick with Alicia! I'll be with Carla! Each of you provide support and watch! Mia! Don't leave Sue's side! Its target is definitely Sue!!!"
 
 *「ダーナ！アレが飛んで行った北側をそのまま警戒して！カーラ！カーラはその場所で南を！アリシア！貴女は西を！コリンはダーナを！ビビはアリシア！私はカーラに！それぞれ補助と警戒を！ミア！アンタはスーから離れるな！アレの狙いは間違いなくスーだ！！！」*
 
 &nbsp;
 
-I mean, the level of enthusiasm, the sense of tension, the teamwork, etc., is more focused than when we all went hunting in the shallow layer of the forest at the beginning of the month, isn't it?
+W-What is this intense focus and tension, like a team working together? It's more intense than when we all went hunting in the forest at the beginning of the month!
 
 *な、なんだか気合の入り方って言うか、緊張感とかチーム連携とかが、月頭に皆で森の浅層に狩りに行った時より集中度合上がってね？*
 
-You all have scary eyes, don't you?
+Everyone's eyes are scary!
 
 *みなさん目が怖くてよ？*
 
@@ -1007,335 +1006,335 @@ You all have scary eyes, don't you?
 
 &nbsp;
 
-What's going on? I don't understand why you're suddenly popping up in a place like this, ......!
+"What the hell! Why did it suddenly show up here... I don't get it!"
 
 *「なんなんだよ！イキナリこんなトコで湧くとか……、意味ワカンネェ！」*
 
 &nbsp;
 
-Dana mutters to herself, wary of her surroundings....
+Dana muttered while keeping an eye on the surroundings...
 
 *ダーナが周囲を警戒しながら呟くと…。*
 
 &nbsp;
 
-Well, it was just a coincidence, really. I came here to make memories of my sisters after a short break, and there they are all together. Don't you think it's fate? Don't you think? My Lil' Girl."
+"Well, it really was a coincidence. I came here to make memories with my sisters before parting, and then I found my honey gathered together. Don't you think that's fate? Hey? My little girl."
 
 *「まぁ本当にたまたまなんだけどね。妹たちと暫しの別れの思い出作りに此処へ訪れたらマイハニー達が揃っているのだもの。これってもう運命だと思わないかい？ねェ？マイリルガール」*
 
 &nbsp;
 
-Victor spoke up as he held Dana by the waist.
+Victor began to speak while hugging Dana's waist.
 
 *ダーナの腰を抱き寄せながらヴィクターが語り出した。*
 
-Dana looks at Victor with a surprised look in her eyes.
+Dana's eyes widened in surprise as she looked at Victor.
 
 *ダーナが驚いた顔で目を見開きヴィクターを見る。*
 
-Ahh! Now Victor's hand caressed Dana's ass!
+Oh no! I just saw Victor's hand stroke Dana's bottom!
 
 *あぁ！今ヴィクターの手がダーナのお尻を撫でた！*
 
 &nbsp;
 
-Yeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee ！！！！！！"
+"Yaaaahhh!!!"
 
 *「いぃやぁあああああぁぁぁぁああぁぁーーーーーーーーーーーー！！！！！！」*
 
 &nbsp;
 
-Wow! A rare girlish scream came out of Dana's mouth!
+Wow! For once, a girlish scream came from Dana's mouth!!
 
 *わぁ！珍しくダーナの口から女子っぽい悲鳴が出た！！*
 
 &nbsp;
 
-Dana gets teary-eyed and swings her short spear out at high speed, but the spear cuts through the air in vain.
+Dana's eyes filled with tears as she swung the short spear rapidly, but the spear cut through the air uselessly.
 
 *ダーナが涙目になって短槍を高速で振り抜くが、槍は虚しく空を切る。*
 
-Victor is already not there.
+Victor was already gone.
 
 *ヴィクターは既にそこには居ない。*
 
 &nbsp;
 
-What we need is not to fight. We need to love each other. Don't you think so? My darling.
+"What we need is not to fight, but to love each other. Don't you think so, my darling?"
 
 *「ボク達に必要なのは争う事じゃない。愛し合う事だ。そうは思わないかい？マイダーリン」*
 
 &nbsp;
 
-She grabs Alicia's arm as she runs to Dana to check on Victor, and as she pulls him into a hug, Victor mutters something like some love warriors.
+While confirming Victor's whereabouts, he pulled Alicia's arm from behind, hugging her as he whispered something like a love warrior.
 
 *ヴィクターを確認してダーナの元へ走るアリシアの腕を後から掴み、引き寄せ抱きながらヴィクターがどっかの愛の戦士たちみたいな事を呟く。*
 
 &nbsp;
 
-What you need is rigorous and direct physical and verbal pedagogical instruction!
+"What you need is a direct and educational guidance through physical language!!!"
 
 *「アンタに必要なのは肉体言語による剛直且つ直接的な教育的指導よ！！！」*
 
 &nbsp;
 
-Alicia puts her elbow on Victor's neck and pulls him straight down to the right.
+Alicia hooked her elbow around Victor's neck and pulled him down to the right.
 
 *アリシアがヴィクターの首に肘をかけそのまま右へ引き倒す。*
 
-At the same time, the legs are paid outward and Victor's body is turned around and toppled to the right.
+At the same time, she swept his legs out from under him, flipping him over to the right.
 
 *と同時に外側へ脚を払い、ヴィクターの身体をグルリと右方向へ回し倒す。*
 
 &nbsp;
 
-But before his body reaches the ground, Victor is already gone.
+However, before his body hit the ground, Victor was already gone.
 
 *しかしその身体が地に着く前に既にヴィクターの姿は無い。*
 
 &nbsp;
 
-As if sensing something, Carla climbed up to the top of a nearby tall coniferous tree, twirling around the trunk and branches.
+Carla seemed to sense something and climbed up the tall coniferous tree nearby, twisting around the trunk and branches.
 
 *カーラが何かを察した様に、近くに立つ高い針葉樹の上へ幹や枝をクルクルと回る様にして登って行った。*
 
-He's on a branch about 15 meters off the ground, looking around on the ground, alert.
+She stood on a branch about 15 meters above the ground, carefully scanning the area below.
 
 *地上から15メートル程の枝に乗り、油断なく地上を見回してる。*
 
 &nbsp;
 
-'If we're going to speak the same words, let's speak words of love as we put those lovely lips together. My Sweetheart."
+"If you're going to speak the same words, let's share those lovely lips while speaking words of love. My sweet heart."
 
 *「同じ言葉を語るなら、その愛らしい唇を合わせながら愛の言葉を語ろうよ。マイスイートハート」*
 
 &nbsp;
 
-Victor holds Carla from behind and talks further in her sleep with his mouth on her lips!
+Victor hugged Carla from behind, leaning his mouth closer to hers while continuing to speak nonsense!
 
 *ヴィクターがカーラを後ろから抱き、カーラの唇に自分の口元を寄せながら更に寝言を語っていりゅ！*
 
 &nbsp;
 
-Kara slips out of Viktor's arms and goes behind him, hugging his arms and restraining him.
+Carla slipped out of Victor's arms, circled around behind him, and wrapped her arms around him to restrain him.
 
 *カーラはスルリとヴィクターの腕から逃れ、その後ろに周り込み両腕を抱き付き拘束する。*
 
-Then, as if doing a suplex, he fell headfirst to the ground!
+Then, in a suplex-like manner, she dropped him headfirst toward the ground!!
 
 *そしてそのままスープレックスをする様に、頭から地上へ向けて落下した！！*
 
 &nbsp;
 
-Aah! That, that's the Ninpo I rope drop! Kara! That technique is not something you do with a skirt!
+Ahhh! No, that's the Ninja Technique "I-Tsunagi Drop!" Carla! That technique shouldn't be used while wearing a skirt!!!
 
 *あぁぁ！！そ、それは忍法I綱落とし！カーラ！その技はスカートでする物ではなくってよ！！！*
 
 &nbsp;
 
-You and the earth are on the same lips!
+"You should be kissing the ground instead!!!"
 
 *「アンタは大地と唇合わせてなさい！！！」*
 
 &nbsp;
 
-Just before Victor's head made contact with the ground, Kara broke away from Victor and spun several times in the air before landing on the ground.
+Just before Victor's head made contact with the ground, Carla released him and spun in mid-air before landing on the ground.
 
 *ヴィクターの頭が地上と接触する寸前、カーラはヴィクターから離脱し空中で何度か回転してから地上に着地した。*
 
 &nbsp;
 
-At about the same time, Victor's head hit the ground with a resounding thud.
+At almost the same time, Victor's head hit the ground with a thud.
 
 *それとほゞ同時にヴィクターの頭は地響きを響かせて大地にぶち当たる。*
 
 &nbsp;
 
-But! The figure is nowhere to be found, leaving a gouge in the ground!
+However! His figure left a dent in the earth but then vanished!
 
 *しかし！地面に抉れた後を残したままその姿は何処にもない！*
 
-Who is this guy? This man is a god and an immortal! Is he really human?
+What is this person!? This disappearing act and immortality! Are they really human!?
 
 *ナニこの人！？この神出鬼没と不死身さ加減！ホントに人間！？*
 
 &nbsp;
 
-If we're going to kiss, don't you think it's the duty of a boy to teach these pretty lips the sweetness of love? My baby."
+"If we're going to exchange kisses, it's a man's duty to teach the sweetness of love to these lovely lips, don't you think? My baby."
 
 *「口付けを交わすなら、この可憐な唇に愛の甘さを教えて上げるのが男子の務めだとは思わないかい？ボクのベイビィ」*
 
 &nbsp;
 
-Before I knew it, Victor had his right hand on my left cheek and was whispering to me as he brought his face close to mine.
+Before I knew it, Victor had come close to my left cheek, placing his right hand on my face and leaning in.
 
 *いつの間にかヴィクターが、わたしの左頬に右手を添えて顔を近づけながらそんな事を囁いて来た。*
 
 &nbsp;
 
-Oh... my face... a man's face is so close, his breath is on my cheek... why? Why can't I move my body?
+Ah... his face... a man's face is so close, his breath is hitting my cheek... why? Why can't I move my body?
 
 *あ…か、顔が…男の人の顔がこんな近くに、息が頬に当たる…なんで？なんで身体動かないの？*
 
-Aah... my breath touched my nose... my thoughts... stop. ......
+Ahh... his breath touched my nose... my thoughts... are stopping...
 
 *ぁぁ…吐息が鼻に触れた…思考が…止まっちゃう……。*
 
 &nbsp;
 
-Mekyomikkibbakikkiyot!
+Mekyomikibakikyo!!!
 
 *メキョミキッバキキョッッ！！*
 
 &nbsp;
 
-A funny sound was heard and a beautiful leg was reduced to Victor's face as he spun around.
+With a strange sound, a beautiful leg rotated into Victor's face.
 
 *おかしな音を響かせ、ヴィクターの顔に綺麗な脚が回転しながら減り込んだ。*
 
-His neck is also twisted and buried in the body as if it were crushed.
+Then, his neck was twisted, and he was buried into his own body.
 
 *そのまま彼の首も、捻られながら身体に潰れる様に埋まって行く。*
 
 &nbsp;
 
-Alicia's cone rubbing kick explodes into Victor's face and blows him away! A real swastika kick!
+Alicia's spinning kick exploded into Victor's face, sending him flying! Seriously, that kick is amazing!!
 
 *アリシアの錐揉みキックがヴィクターの顔面に炸裂し彼を吹き飛ばす！マジ卍キック！！*
 
 &nbsp;
 
-I let out a grand exhale of breath as I was released from Victor.
+I was freed from Victor and let out a huge breath.
 
 *ヴィクターから解放されて息を盛大に吐き出した。*
 
-Apparently, he forgot to breathe.
+It seems I had forgotten to breathe.
 
 *どうやら呼吸をする事を忘れていたらしい。*
 
-The palpitations in my chest...my heart was pulsating at a tremendous rate.
+My heart was racing... my heart was pounding at an incredible speed.
 
 *胸の動悸が…、心臓が、物凄い速さで脈打っている。*
 
-I can feel my heart beating behind my ears.
+I could hear the beating in my ears.
 
 *耳の奥に鼓動が響いているのが分る。*
 
 &nbsp;
 
-I lost all my strength and almost collapsed to my knees.
+I instinctively felt weak and almost collapsed to my knees.
 
 *思わず力が抜けて膝から崩れ落ちそうになった。*
 
 &nbsp;
 
-"Suu, Suu-chan, are you okay? Su-chan!
+"S-Sue-chan, are you okay?! Sue-chan!!"
 
 *「ス、スーちゃん大丈夫？！スーちゃん！！」*
 
 &nbsp;
 
-Mia held me up.
+Mia caught me.
 
 *ミアに抱き留められた。*
 
-Mia looks into my face with concern and calls my name repeatedly.
+Mia looked worriedly into my face, calling my name repeatedly.
 
 *ミアが心配げにわたしの顔を覗き込み、何度も名前を呼んでくる。*
 
 &nbsp;
 
-Why didn't I notice his approach? It's not like I couldn't detect his approach if I was aware of his actions....
+Why didn't I notice his approach? Normally, if I had awareness of my actions, I shouldn't have missed it...
 
 *何故わたしは彼の接近に気が付かなかったんだろう？普通に考えても行動意識を持っていれば察知できない筈は無いのに…。*
 
 &nbsp;
 
-Oh, by the way...I remember a junior once telling me about this: .......
+Speaking of which... I remember a junior saying once...
 
 *そう言えば…昔、後輩が言っていたっけ……。*
 
 &nbsp;
 
-I heard that even a master who looks like a monster can receive an unexpected blow. Well, from a child, that is. He said that his two-year-old nephew was swinging a toy and it hit the head of the master who was sitting on the floor! hit the head of the master who was sitting down. I don't care if it is a person who has the consciousness to attack or act. But the blow from a pure and innocent child with no evil intentions was too much for even the master to detect.
+"I heard that even a monster-like teacher can get hit by a surprise attack. Well, it seems to be from a child. Apparently, a two-year-old nephew's toy hit the sitting teacher's head. If someone has awareness of attack or action, they can sense it. But a pure and innocent child's strike is something even the teacher couldn't detect."
 
 *『化け物みたいな師匠でも不意の一撃を貰らう事があるそうですよ。まぁ子供から、だそうですが。二歳の甥っ子の振り回していた玩具がスパコーン！と座っていた師匠の頭にヒットしたそうです。攻撃や行動する意識を持っている人ならともかく。純粋無垢で邪気の無い子供の一撃は師匠でも察知出来なかったそうです』*
 
 &nbsp;
 
-If that's the case, then his actions were pure and innocent, without any ill feelings or evil intentions....
+If that's the case, then his actions are pure and innocent, without any ulterior motives...
 
 *もしそう云う事なら、彼の行動はやましい気持ちも邪気も何も無い、純粋無垢な行動と云う事になる…。*
 
 &nbsp;
 
-What is that? I'm afraid of the opposite!
+What is that? It's even scarier!
 
 *ナニソレ？逆にコワイんですけどっ！*
 
 &nbsp;
 
-Is it the kind of thing that is pure instinct and reflex of desire impulse indiscriminate?
+Is it like acting purely on primal instincts and reflexes without any desire or malice?
 
 *欲望衝動無分別を純粋な本能と反射でやっているようなモノなの？*
 
-Oh no! It's really creepy-crawly!
+No! That's really creepy and scary!!
 
 *ヤダ！ホントにキモコワイ！！*
 
-I held myself by the shoulders and shivered with a burr.
+I instinctively hugged my shoulders and shivered.
 
 *思わず自分の肩を抱きブルリと震えてしまった。*
 
 &nbsp;
 
-"Were you so scared, Sue? It's okay, okay? It's going to be okay, okay?
+"Were you that scared, Sue-chan? It's okay now, okay?"
 
 *「スーちゃんそんなに怖かったの？もう大丈夫よ？大丈夫だからね？」*
 
 &nbsp;
 
-Then Mia hugged me.
+Mia said as she hugged me tightly.
 
 *そう言ってミアが抱き締めて来た。*
 
-Aha, this warmth and the comfort of softly wrapped corrupt flesh calms me.
+Ah, this warmth and the pleasant softness of her flesh calmed me down.
 
 *嗚呼、この温もりと柔らかく包まれる堕肉の心地良さがわたしを落ち着かせる。*
 
-Let's not think about anything now, let's just embrace and bury ourselves in this blissful fat scraping.
+For now, I won't think about anything and just bury myself in this blissful fat.
 
 *今は何も考えず、この至福の脂肪を掻き抱き埋まろう。*
 
 &nbsp;
 
-"Soo, Soo-chan... um, you know... did I... touch your lips? Did you...?"
+"S-Sue-chan... um, um, did we... touch lips...?"
 
 *「ス、スーちゃん…あの、あのね、唇…触れちゃった？…の？」*
 
 &nbsp;
 
-I couldn't help but twitch and look up at Mia.
+I involuntarily reacted and looked up at Mia.
 
 *思わずピクリと反応してミアを見上げてしまった。*
 
 &nbsp;
 
-Oh! I'm sorry! I remembered, didn't I? I'm sorry!
+"Ah! S-Sorry! Did I remind you? I'm sorry!"
 
 *「あ！ご、ごめんなさい！思い出しちゃったね？ごめんね！」*
 
-No, it's not! No, it's not! I didn't touch you! It's okay, he didn't touch me! I'm fine!
+"No, it's not that! We didn't touch! So it's okay!"
 
 *「ううん！違うの！触れてないから！されてないから大丈夫！なの！」*
 
-Really? Really? I'm glad, I'm glad, I'm glad, I'm glad... Sue's first time... it was OK, wasn't it? I'm so glad.
+"Really?! Really?... I'm glad, I'm really glad... Sue-chan's first time... was okay, right? I'm glad..."
 
 *「ホント？！ホントに？…良かった、ホントに良かったぁ…、スーちゃんの初めて…大丈夫だったのね？良かったぁ」*
 
 &nbsp;
 
-Mia hugged me and said so.
+Mia hugged me again as she said that.
 
 *ミアがそう言ってわたしを抱き締めて来た。*
 
@@ -1347,47 +1346,47 @@ Mia hugged me and said so.
 
 &nbsp;
 
-Behind me, I can feel the angry fighting spirit brewing.
+I could feel the angry fighting spirit raging behind me.
 
 *後ろでは怒りの闘気が吹き荒れているのを感じる。*
 
 &nbsp;
 
-Sisters.
+It was the older girls.
 
 *お姉様方だ。*
 
-Although I could not see it directly because I was hugging Mia, I could see that the fighting spirit was blowing out at a tremendous rate.
+Since I was hugging Mia, I couldn't see directly, but I could sense the tremendous fighting spirit erupting.
 
 *ミアと抱き合っているので直接は見えてないけど、闘気が物凄い勢いで吹出しているのが分る。*
 
 &nbsp;
 
-You're ready... aren't you!
+"VICTOR!!! Are you prepared...?!"
 
 *「ヴィーー・クぅーー・タぁーーーーぁっ！覚悟は…出来てるわよね！！？」*
 
-I'm going to crush you for real today, okay? I'm going to crush you, I'm going to crush you, I'm going to crush you!
+"Today, I'm going to crush you for real? ...I'll grind you to dust!!!"
 
 *「今日と云う今日は、アタシも本気で潰すよ？…磨り潰すからね！！！」*
 
-Oh." He even stroked my ass! And on top of that, even Sue, oh, my God, she did that to me!"
+"Y-You even touched her bottom!! And on top of that, you did that to Sue!!!"
 
 *「お！お尻まで撫でてきてっ！！その上スーにまで、あ、あ、あんな事をっ！！！」*
 
 &nbsp;
 
-Colin, Bibi. You two go find Mary and Shelly. I'm sure that idiot has left his sisters behind. Oh, and bring them as far away from here as possible so they don't see what happens next, okay?"
+"Colin, Bibi. You two go find Mary and Shelly. That idiot must have left his sisters behind. Oh, and try to take a long way to avoid showing them what happens next."
 
 *「コリン、ビビ。二人はメアリーとシェリーを探して来て。きっとあのおバカは妹たちの事を放り出して来てる筈だから。あ、この後の事を見せたくないから成るべく遠回りして連れて来てね？」*
 
 &nbsp;
 
-DODDDONG! DODDONG! and a terrific impact sound began to echo.
+Boom! Boom! Boom!!! A tremendous sound of impact began to echo.
 
 *ドッドンッ！ドドドンッッ！！！と凄い衝撃音が響き始めた。*
 
-The sound of strong blows and destruction roared through the air intermittently.
+Intense sounds of strikes and destruction reverberated continuously.
 
 *強烈な打撃音、破壊音が断続的に轟き渡る。*
 
@@ -1395,391 +1394,391 @@ The sound of strong blows and destruction roared through the air intermittently.
 
 &nbsp;
 
-I think about it as I stare at Mia.
+I stared at Mia while thinking.
 
 *わたしはミアを見つめながら考えてしまう。*
 
 &nbsp;
 
-Even though she remembers being a man, she now has the body of a girl and the mind of a daughter.
+Even though I have memories of being a boy, I am now in a girl's body, and my girlish feelings are growing.
 
 *男だった記憶があるとはいえ、今は少女の身体で娘心も育っている。*
 
-If she continues to grow, she may at some point become aware of men as the opposite sex and engage in such behavior.
+If I continue to grow like this, I might eventually start to perceive men as the opposite sex and engage in such acts.
 
 *このまま成長して行けば何時かは男性を異性として意識して、そういった行為をする事になるのかもしれない。*
 
 &nbsp;
 
-But that's still hard to do now!
+But right now, that's too much!
 
 *でも今はまだそれはキツイ！*
 
-I am too young to accept a man as a member of the opposite sex, and for me the hurdle is too high.
+It's too soon to accept men as the opposite sex, and the hurdle is too high for me.
 
 *男を異性として受け入れるには時間が浅すぎだし、わたしにはハードルが高い。*
 
 &nbsp;
 
-You have to be fully prepared!
+I need to prepare my heart thoroughly before I can do that!
 
 *十分心の準備を整えてからじゃないと無理！*
 
-I thought so, I thought so... and yet my body tensed up just by seeing a man's face so close... It's true that Victor is so beautiful that it makes me nervous just to look at his face....
+I think that, yet... just having a man's face come so close makes my body tense up... it's true that Victor is handsome enough to make my heart race just by looking at his face...
 
 *そう思うのに、思ってたのに…それなのに男性の顔があんなに近くに来ただけで身体が強張るとか…、確かにヴィクターは顔だけ見るとドキリとするくらい美形なんだけど…。*
 
-Is it because my physical body reacts on its own that my heart palpitates faster just by the proximity of my mouth?
+Just having his mouth come closer makes my heart race faster, and is my body reacting on its own?
 
 *口元が近付くだけで、動悸が速くなってしまうのは肉体が勝手に反応しているからなのかな？*
 
 &nbsp;
 
-Am I the type of person who can't refuse someone who pushes me too hard?
+Could it be that I'm the type who can't resist when pressured?
 
 *もしかしてわたしってば迫られたら拒めない押しに弱いタイプ？*
 
-Will that time come sooner than I think?
+Is the time for that coming sooner than I thought?
 
 *自分が思ってるより早くそんな時が来ちゃう？*
 
-You literally can't prepare your mind, okay?
+I can't prepare my heart in a literal sense!
 
 *文字通り心の準備なんて出来ないよ？！*
 
 &nbsp;
 
-At least if your lips are as soft as this Mia's... I wish such a gentle mouth could touch my lips... such... such a beautiful .......
+If only I could have soft lips like Mia's... if only such a gentle mouth would touch my lips... such a beautiful...
 
 *せめて、このミアみたいに柔らかそうな唇なら…こんな優しそうな口元がわたしの唇に触れてくれれば良いのに…、こんな…こんな綺麗な……。*
 
 &nbsp;
 
-...... Sue?"
+"...Sue-chan?"
 
 *「……スーちゃん？」*
 
 &nbsp;
 
-I huffed.
+I snapped back to reality.
 
 *ハッとした。*
 
-Did you notice my eyes? Did I look like I wanted something?
+Did she notice my gaze? Did I have a greedy look on my face?
 
 *わたしの視線に気付いたかな？物欲しそうな顔してたかな？*
 
-Unable to stay, I buried my face in Mia's chest and tried to hide my embarrassment.
+Feeling restless, I buried my face in Mia's chest to hide my embarrassment.
 
 *居たたまれなくなってミアの胸に顔を埋め、恥ずかしさを隠そうとした。*
 
 &nbsp;
 
-"...Hey, Sue. Can I see your face?"
+"...Hey, Sue-chan. Show me your face?"
 
 *「…ね、スーちゃん。お顔、見せて？」*
 
 &nbsp;
 
-I shake my head, burying my face in Mia's chest.
+I shook my head while burying my face in Mia's chest.
 
 *イヤイヤとミアの胸に顔を埋めながら首を振る。*
 
-I know what I look like now.
+I know what kind of expression I'm making right now.
 
 *今、自分がどんな表情しているか判る。*
 
-I can't let Mia see this face!
+I can't show Mia this face!
 
 *こんな顔ミアに見せられない！*
 
 &nbsp;
 
-Please, Sue...I want to see."
+"Please, Sue-chan... I want to see it."
 
 *「お願い、スーちゃん…見たいの」*
 
 &nbsp;
 
-Mia's hands spread out to encircle my cheeks, and her fingertips brush the nape of my neck.
+Mia's hands spread to cradle my cheeks, and her fingertips gently caressed the nape of my neck.
 
 *ミアの手がわたしの頬を包む様に広げられ、指先がわたしのうなじをサワリと撫で上げる。*
 
 &nbsp;
 
-Hi ahn! Nnnn!
+"Hyahh! Nn!"
 
 *「ひあぅン！んン！」*
 
 &nbsp;
 
-Ah..! If you touch me like that on that spot..!
+Ah! If you touch me there like that...!
 
 *あぁ！そんなトコロそんな触られ方したら…！*
 
-The body jumped up with a jerk and his face went up.
+My body jumped up, and my face was lifted toward Mia.
 
 *ビクピクンっと身体が跳ね上がって顔が上ってしまった。*
 
-As it is, Mia wraps her cheeks around him and turns her face toward him.
+Mia cupped my cheeks, turning my face toward her.
 
 *そのままミアに頬を包まれ、顔をミアの方に向けられてしまう。*
 
 &nbsp;
 
-He's breathing hard... I can see his cheeks are stained and his eyes are moist.
+My breath is quickening... my cheeks are flushed, and I can feel my eyes glistening.
 
 *息が上がってる…頬も染まって瞳が潤んでるのが分る。*
 
-I'm sure I'm looking very gauche right now.
+Right now, I must look incredibly lewd.
 
 *今、わたしきっと凄くはしたない顔をしてる。*
 
 &nbsp;
 
-Sue-chan...ah, Sue-chan! I've never seen Su-chan with such a pretty face..."
+"Sue-chan... ah, Sue-chan! I've never seen such a cute face on you..."
 
 *「スーちゃん…あぁ、スーちゃん！こんな可愛い顔のスーちゃん初めて見た…」*
 
-Hi.
+"…N-No!"
 
 *「・・・やぁン」*
 
 &nbsp;
 
-Embarrassing!
+So embarrassing!
 
 *恥ずかしい！*
 
-I was so embarrassed and wanted to hide my face, but Mia looked into my face...
+I'm so embarrassed that I want to hide my face, but Mia is peering into my face...
 
 *凄く恥ずかしくって顔を隠したいのに、ミアがわたしの顔を覗き込んでくる…。*
 
-Her cheeks blush even more with shame and her heart beats louder in her chest.
+My shame makes my cheeks redden even more, and my heart beats faster.
 
 *羞恥で更に頬が赤らみ胸の鼓動も大きくなる。*
 
-I am sure Mia can feel my heart beating in her chest.
+Surely, Mia can feel my heartbeat too.
 
 *きっとミアの胸にも、わたしの心臓の鼓動が伝わっている。*
 
 &nbsp;
 
-I almost collapse from my knees, and I put my arms around Mia's back and cling to her.
+I felt my knees weaken and almost collapse, so I wrapped my arms around Mia's back and clung to her.
 
 *膝から力が抜け崩れそうになり、ミアの背中に腕を回してしがみ付く。*
 
-Then Mia's face comes closer...
+Then Mia's face came even closer...
 
 *するとミアの顔がもっと近づいて来る…。*
 
-If I keep this up...no, I can't take my eyes off Mia's lips anymore.
+At this rate... no, I can't help but stare at Mia's lips.
 
 *このままだと…ダメだ、ミアの唇からもう目が離せない。*
 
-My lips open thinly, as if in anticipation of something, regardless of my will.
+My own lips began to part slightly, as if expecting something against my will.
 
 *自分の唇がわたしの意志とは関係なく、何かを期待する様に薄く開いて行く。*
 
 &nbsp;
 
-"Suu...cha......n."
+"Sue... cha... n..."
 
 *「スー…ちゃ……ンん」*
 
 &nbsp;
 
-A soft touch on the lips for a brief moment.
+For a brief moment, I felt a soft touch on my lips.
 
 *束の間、唇に触れる柔らかい感触。*
 
 &nbsp;
 
-It is so warm and enveloping that I feel like I am melting.
+It was warm and felt like it enveloped me, and I felt like I might melt away.
 
 *温かくって包まれるように吸い付いて来て、溶けてしまいそうになる。*
 
 &nbsp;
 
-But it is only for a moment, and the feeling is soon lost.
+But it was only for a moment, and that sensation quickly faded away.
 
 *でも、それはほんの一瞬で、直ぐにその感触は失われてしまう。*
 
 &nbsp;
 
-More...even though I'd like to stay that way. ......
+I wanted to stay like that... just a little longer...
 
 *もっと…もっとそのままで居たいのに……。*
 
 &nbsp;
 
-Ah.
+"…Ah."
 
 *「・・・ぁ」*
 
 &nbsp;
 
-A sad voice escapes my lips as the object leaves my lips.
+As something pulled away from my lips, I let out a wistful sound.
 
 *唇から離れるモノが名残惜しくて、切ない声が漏れてしまう。*
 
 &nbsp;
 
-My eyes are now following Mia's lips as they move away from me very greedily.
+Right now, my eyes are following Mia's lips as they drift away.
 
 *今わたしの目は、とても物欲しそうに離れて行くミアの唇を追っている。*
 
 &nbsp;
 
-Mia, with both palms wrapped around my face, smiled very kindly and ......
+Mia, who cupped my face with both hands, smiled gently...
 
 *そんな私の顔を両の掌で包んだミアはとても優しげに微笑んで……。*
 
 &nbsp;
 
-Is this Sue's... first time...?"
+"Is this... Sue-chan's first time...?"
 
 *「これがスーちゃんの…初めて…かな？」*
 
 &nbsp;
 
-He asked me that happily.
+She asked happily.
 
 *そう嬉しそうに聞いて来た。*
 
 &nbsp;
 
-...hmm.
+"…Nn."
 
 *「・・・ン」*
 
 &nbsp;
 
-I'm so embarrassed that I take my eyes off Mia.
+I looked away from Mia, feeling too embarrassed.
 
 *恥ずかしくて目線をミアから外してしまう。*
 
 &nbsp;
 
-I'm not sure if you don't like me...? Did ...... you hate me...?"
+"…Could it be that... you didn't like it...? Did you... come to dislike me...?"
 
 *「…もしかして…嫌、だった…かな？……わたしの事、キライに……なっちゃった…かな？」*
 
 &nbsp;
 
-Mia took her hand away from my cheek and said sadly, "I'm sorry.
+Mia pulled her hands away from my cheeks, saying that sadly.
 
 *ミアがわたしの頬から手を離して、悲しそうにそんな事を言って来た。*
 
-I turned my face vigorously to Mia.
+I quickly turned to face Mia.
 
 *わたしは勢い良くミアに顔を向けて*
 
 &nbsp;
 
-I don't want to! I don't hate it! I don't hate it! I love you... ah..."
+"I don't! I don't dislike you! I like you...!"
 
 *「ならない！嫌じゃないの！キライじゃないの！！ちゃんと好きな・・・ぁ」*
 
 &nbsp;
 
-I was so desperate that I denied it, but if I said, 'I don't dislike it, I don't hate it,' they would take it as a sign that I wanted more.
+I denied it vehemently, but if I say I don't dislike or hate her, it feels like I would want more or that it would be taken away.
 
 *つい剥きになって否定したけど『嫌じゃないキライじゃない』なんて言ったら、もっと欲しいとか取られちゃう。*
 
 &nbsp;
 
-And I've said I like it!
+Moreover, I just said I like her!
 
 *しかも好きとか言っちゃってる！*
 
-Too embarrassing! I looked down, knowing my face was turning red again.
+It's too embarrassing! I could feel my face turning red and looked down.
 
 *恥ずかしすぎるぅ！！また顔が赤くなるのが分って下を向いてしまった。*
 
 &nbsp;
 
-Thank you, Sue. I love you too.
+"Thank you, Sue-chan. I love you too..."
 
 *「ありがとスーちゃん。わたしも…大好きよ」*
 
 &nbsp;
 
-He then cupped my cheeks in his palms once more, gently rubbed forehead to forehead, nose to nose, gently kissed the tip of my nose, and finally hugged me tightly.
+Saying that, she cupped my cheeks again, gently rubbed our foreheads together, and kissed the tip of our noses, then hugged me tightly.
 
 *そう言ってもう一度わたしの頬を掌で包んで、額と額、鼻先と鼻先を優しく擦り合わせ、鼻先に優しくキスをして最後にギュッと抱きしめられた。*
 
 &nbsp;
 
-Uh-uh.
+"…Nn."
 
 *「・・・ンぁ」*
 
 &nbsp;
 
-Oh, you're not going to lip-synch me now?
+Ah, won't she kiss me again?
 
 *あ、もう唇にはしてくれないの？*
 
-I couldn't help but let out a gasp.
+I let out a breath without thinking.
 
 *思わず吐息が漏れてしまった。*
 
 &nbsp;
 
-Did I look greedy?
+Did I have a greedy look on my face?
 
 *物欲しそうな顔になってたかな？*
 
-Mia had a happy smile on her face that I had never seen before.
+Mia had a smile on her face that I had never seen before, one that was filled with joy.
 
 *ミアは今まで見た事の無い様な、嬉しそうな微笑みを浮かべていた。*
 
 &nbsp;
 
-Those eyes, the first time I saw Mia's eyes, were terribly fascinating and I couldn't look straight at her.
+Her eyes, the first time I saw them, were so enchanting that I couldn't meet her gaze.
 
 *その目は、初めて見るミアのその目は、酷く蠱惑的で真っ直ぐ目線を合わせられない。*
 
-I feel as if I'm being watched, and I can't help but feel uncomfortable, as if I'm being watched for my own shallow lust.
+It felt like she could see through the base desires within me, making me feel restless.
 
 *自分の中の、浅ましい情欲を見抜かれているみたいで居たたまれなくなる。*
 
 &nbsp;
 
-But I would like to see more.
+But I wanted to see more.
 
 *でも、もっと見ていたい。*
 
-I want to be seen.
+I wanted to be seen.
 
 *見られてたい。*
 
 &nbsp;
 
-Mia's hand was cupping my cheek, and I laid my hand on Mia's and rubbed my cheek against her hand.
+I placed my hands on top of Mia's hands that were cradling my face and rubbed my cheek against her hands.
 
 *わたしの頬を包んでいるミアの手に、わたしも手を重ねてミアの手に頬摺りしてしまった。*
 
-Mia's eyes narrow even more happily.
+Mia's eyes narrowed even more with happiness.
 
 *ミアの目が更に嬉しそうに細くなる。*
 
 &nbsp;
 
-Oh, I love those eyes....
+Ah, I love this look...
 
 *ぁ、わたし、この目好きぃ…。*
 
 &nbsp;
 
-I no longer care about Victor or my future with men, which had occupied my mind until a moment ago.
+The thoughts that had occupied my mind about Victor and my future with men faded away.
 
 *さっきまでわたしの頭を占領してたヴィクターの事も、男性との今後の事も、どうでも良く成っちゃった。*
 
 &nbsp;
 
-In the distance, the earth still echoed continuously.
+In the distance, the rumbling continued to echo.
 
 *遠くの方ではまだ、地響きが連続で響き渡ってた。*
 
@@ -1789,45 +1788,45 @@ In the distance, the earth still echoed continuously.
 
 &nbsp;
 
-After this, the restrained Victor finally settled down as he was wrapped in a bamboo screen wrapped around a rope and hung upside down on a high tree branch with an inverted minnow.
+Afterward, Victor, who was restrained, was wrapped up in ropes and hung upside down from a high branch like a caterpillar, finally calming down.
 
 *この後、拘束されたヴィクターがロープでグルグル巻きの簀巻きにされ、高い木の枝に逆さミノムシで吊るされてやっと落ち着いた。*
 
 &nbsp;
 
-Mary and Shelly joined us, and we enjoyed a lunch of 10 people at the waterfront and a short time in the waterfront garden before returning to the village.
+After reuniting with Mary and Shelly, we enjoyed lunch by the water with a total of ten people and had a great time in the flower garden by the water before returning to the village.
 
 *メアリー、シェリーとも合流して、都合10人でのランチを水辺で楽しみひとしきり水辺の花園で楽しんだ後、村へと戻った。*
 
 &nbsp;
 
-I remembered that I had left Victor hanging after returning to the village, but oh well, it's him, so it's all good.
+After returning to the village, I remembered that we had left Victor hanging, but well, it's fine since it's him.
 
 *村へ帰ってからヴィクターを吊るしっぱなしだったのを思い出したが、まぁ彼だから良いっか。*
 
-And I immediately delit from my head.
+I immediately deleted that thought from my mind.
 
 *と直ぐに頭からデリートした。*
 
 &nbsp;
 
-My perception of him seems to have finally aligned with everyone else.
+My perception of him finally aligned with everyone else's.
 
 *わたしの彼に対する認識も、やっと皆と足並みが揃った様だ。*
 
 &nbsp;
 
-I had a hard time sleeping that night.
+That night, I couldn't fall asleep for a long time.
 
 *その日の夜はなかなか寝付けなかった。*
 
-My mind was whirling with thoughts, fantasies, and desires, and I kept doing various things more times than usual.
+I thought about various things, and my fantasies or wishes swirled around in my head, leading me to do various things more than usual.
 
 *色々な事を考え、妄想だか願望だかがグルグルと頭を廻り、いつも以上に何度も色んな事し続けてしまった。*
 
 &nbsp;
 
-Aha, where am I headed?
+Ah, what am I... where am I trying to go?
 
 *嗚呼、わたしってば…、一体何処へ向かおうとしてるのでせうか？*
 
@@ -1839,41 +1838,41 @@ Aha, where am I headed?
 
 &nbsp;
 
-On this day, with only three days left of summer vacation, Carla and her friends head to the high school dormitory in DeKembel.
+With only three days left of summer vacation, that day, Carla and the others headed to the Dekkenbell High School dormitory.
 
 *夏休みも残り後3日、この日カーラ達はデケンベルの高等校の寮へと向かう。*
 
 &nbsp;
 
-We went to the stagecoach stop in Copetown to see them off.
+We went to see them off at the stagecoach stop in Coop Town.
 
 *わたし達はコープタウンの駅馬車の停車場まで見送りに行った。*
 
 &nbsp;
 
-Kara, Alicia, and Jessica took turns hugging each other and saying goodbye.
+I hugged Carla, Alicia, and Jessica in turn, bidding them farewell.
 
 *カーラ、アリシア、ジェシカと順番に抱き合って別れを惜しんだ。*
 
-I also shook hands with Arrows. Victor may have been there, but I don't know because he was out of sight.
+I also shook hands with the Arrows. Victor might have been there too, but I couldn't see him.
 
 *アローズにも握手で。ヴィクターも居たかもしれないけれど視界に入らないのでワカラナイ。*
 
 &nbsp;
 
-As we were about to leave, I said goodbye to the three of them once more, and when Carla said good-bye, something suddenly came over me and I said, "I don't want to say good-bye," and tears started to stream down my face.
+Just before their departure, when I said goodbye to the three of them again, Carla suddenly said, "Well then, goodbye," and something welled up inside me, and I blurted out that I didn't want to say goodbye, tears streaming down my face.
 
 *出発間際にもう一度3人とお別れを言ってカーラに　じゃサヨナラね　と言われたら急に何かが込み上げて来て　サヨナラしたくない　と口から洩れて涙もポロポロ零れてしまった。*
 
 &nbsp;
 
-After that, I couldn't see much because of the haze of tears, and I was clinging to Mia, so I didn't understand much.
+After that, my vision blurred with tears, and since I clung to Mia, I didn't quite understand what was happening.
 
 *その後は涙で霞んで周りが見えなくて、ミアにしがみ付いてしまったから余り良く分らなかったんだけど。*
 
 &nbsp;
 
-The three sisters started crying too. I still won't go!　I'll take Sue with me!　I won't let go of you!　They were all in an uproar.
+It seems the three older girls also started crying, saying things like, "I won't go!" and "I'm taking Sue with me!" and "I won't let go!" causing quite a commotion.
 
 *3人のお姉様方も泣き出して　やっぱり行かない！　とか　スーを持って行く！　とか　離れない離さない！！　とか、ひとしきり騒動になったらしい。*
 
@@ -1881,7 +1880,7 @@ The three sisters started crying too. I still won't go!　I'll take Sue with me!
 
 &nbsp;
 
-The stagecoach departed on time, and we saw them off with tears in our eyes as they leaned out the window and waved back at Kara and her friends.
+Even so, the stagecoach departed on time, and I waved back at Carla and the others, tears overflowing as I said goodbye.
 
 *それでも駅馬車は定刻通り出発して、車窓から身を乗り出し手を振るカーラ達を此方も涙を溢れさせながら手を振り返して、お見送りを済ませた。*
 
@@ -1889,29 +1888,29 @@ The stagecoach departed on time, and we saw them off with tears in our eyes as t
 
 &nbsp;
 
-That day, in an attempt to comfort me a little after I had been so heartbroken by the adults around me, a sleepover event was planned and carried out at the home of Mia, who was my closest friend.
+That day, the adults around us planned an overnight event at Mia's house to comfort me, who was heartbroken.
 
 *その日、周りの大人達により傷心になったわたしを少しでも慰めようと、一番仲の良いミアの家へのお泊りイベントが計画実施された。*
 
 &nbsp;
 
-Indeed, the loneliness was soothed and the sleepover was too stimulating to be terribly comforting....
+Indeed, my loneliness was healed, and it turned into an incredibly stimulating overnight stay...
 
 *確かに寂しさは癒やされ、物凄く慰められた刺激的過ぎるお泊りになった…。*
 
-I can't tell you what kind of comfort they gave me...but...I can't tell you!
+I can't say how I was comforted... there's no way I could say!!!
 
 *どんな慰められ方したかは言えないけれど…、言える訳が無いけれど！！！*
 
 &nbsp;
 
-Thus passed my first summer in AMCAM with a little growth in me.
+Thus, my first summer in Amukamu passed, making me grow just a little.
 
 *こうしてアムカムに来て最初の夏が、わたしを少しだけ成長させて過ぎて行った。*
 
 &nbsp;
 
-Eventually, the months changed and the new school year began at the end of the first week of the 5 Ao month.
+Eventually, the month changed, and the new school year began on the first week of the 5th Blue Moon.
 
 *やがて月が替わり、5の蒼月最初の週明けに新学年が始まった。*
 
@@ -1921,15 +1920,13 @@ Eventually, the months changed and the new school year began at the end of the f
 
 &nbsp;
 
-Then, three days after the new semester began.
+And three days after the new semester began.
 
 *そして、新学期が始まって3日後。*
 
-He came to the village in the middle of that week.
+In the middle of that week, he came to the village.
 
 *その週の半ばに、彼が村へとやって来たのだ。*
-
-
 
 &nbsp;
 
@@ -1939,7 +1936,6 @@ The story begins to move.
 
 *物語が動き始めます。*
 
-Next "Guests of the Cloud Family"
+Next time: "The Guest of the Cloud Family"
 
 *次回「クラウド家の客人」*
-
