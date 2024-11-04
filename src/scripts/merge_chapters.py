@@ -45,23 +45,22 @@ def merge_files(jp_dir, en_dir, output_dir):
 
             # Write content from both Japanese and English files
             for en_line, jp_line in zip(en_lines, jp_lines):
-                # If either line contains '<blank>', write it only once
-                if jp_line.strip() == "<blank>" or jp_line.strip() == "<b>":
+                if jp_line.strip() == "<blank>" or jp_line.strip() == "<b>": # intentionally blank line
                     output_file.write("&nbsp;\n")
-                elif jp_line.strip().startswith("!["):
+                elif jp_line.strip().startswith("!["): # image link
                     output_file.write(jp_line.strip() + '\n')
-                elif jp_line.strip() == "----------------":
+                elif jp_line.strip() == "----------------": # break line
                     output_file.write("----------------\n")
-                elif jp_line.strip() == "":
+                elif jp_line.strip() == "": # normal empty line
                     output_file.write("\n")
-                elif jp_line.strip().startswith("#"):
+                elif jp_line.strip().startswith("#"): # title line, adds jp line with 'h2' and not 'h1'
                     output_file.write(en_line.strip() + '\n')
                     output_file.write('\n#' + jp_line.strip() + '\n')
                 elif not re.search(r'[一-鿿぀-ゟ゠-ヿA-Za-z0-9「」]', jp_line):  # If jp_line has no Japanese characters, numbers, letters, or brackets
                     output_file.write(jp_line.strip() + '\n')
                 else:
-                    output_file.write(en_line.strip() + '\n')
-                    output_file.write('\n*' + jp_line.strip() + '*\n')
+                    output_file.write('#### ' + en_line.strip() + '\n') # en text with 'h4'
+                    output_file.write('\n*' + jp_line.strip() + '*\n') # jp text with 'em'
 
             if i < len(filenames) - 1:
                 next_chapter = os.path.splitext(filenames[i + 1])[0]

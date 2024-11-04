@@ -5,13 +5,13 @@
 
 ## 二章登場人物
 
-This is the third post of the day.
+#### This is the third post of the day.
 
 *本日三つ目の投稿です。*
 
 &nbsp;
 
-Please think of it as something like an end title～
+#### Please think of it as something like an end title～
 
 *エンドタイトルの様な物と思って下さい～*
 
@@ -19,179 +19,179 @@ Please think of it as something like an end title～
 
 &nbsp;
 
-―――――Chapter Two Characters―――――
+#### ―――――Chapter Two Characters―――――
 
 *―――――二章登場人物―――――*
 
 &nbsp;
 
-〇Suzy Cloud
+#### 〇Suzy Cloud
 
 *〇スージィ・クラウド*
 
-Age: 14
+#### Age: 14
 
 *年齢：14歳*
 
-Attribute: All
+#### Attribute: All
 
 *属性：全*
 
-Class: Diviner
+#### Class: Diviner
 
 *クラス：占者*
 
-【Grade 8 Rank・Adopted Daughter of the Cloud Family】
+#### 【Grade 8 Rank・Adopted Daughter of the Cloud Family】
 
 *【学年8段位・クラウド家養女】*
 
 &nbsp;
 
-〇Howard Cloud
+#### 〇Howard Cloud
 
 *〇ハワード・クラウド*
 
-Age: 62
+#### Age: 62
 
 *年齢：62歳*
 
-Attribute: Earth
+#### Attribute: Earth
 
 *属性：地*
 
-Class: Warlord
+#### Class: Warlord
 
 *クラス：ウォーロード*
 
-【Head of the Cloud Family】
+#### 【Head of the Cloud Family】
 
 *【クラウド家家長】*
 
 &nbsp;
 
-〇Sonia Cloud
+#### 〇Sonia Cloud
 
 *〇ソニア・クラウド*
 
-Age: 58
+#### Age: 58
 
 *年齢：58歳*
 
-Attribute: Water
+#### Attribute: Water
 
 *属性：水*
 
-Class: Star Shooter
+#### Class: Star Shooter
 
 *クラス：スターシューター*
 
-【Howard's Wife】
+#### 【Howard's Wife】
 
 *【ハワードの妻】*
 
 &nbsp;
 
-〇Elrose Grop
+#### 〇Elrose Grop
 
 *〇エルローズ・グロップ*
 
-Age: 59
+#### Age: 59
 
 *年齢：59歳*
 
-Attribute: Earth
+#### Attribute: Earth
 
 *属性：地*
 
-Class: Marshal Commander
+#### Class: Marshal Commander
 
 *クラス：マーシャルコマンダー*
 
-【Servant of the Cloud Family (Former Housekeeper of Amcam House)】
+#### 【Servant of the Cloud Family (Former Housekeeper of Amcam House)】
 
 *【クラウド家使用人（元アムカムハウス・ハウスキーパー）】*
 
 &nbsp;
 
-〇Gilberto Gamzy
+#### 〇Gilberto Gamzy
 
 *〇ジルベルト・ギャムジー*
 
-Age: 72
+#### Age: 72
 
 *年齢：72歳*
 
-Attribute: Wind
+#### Attribute: Wind
 
 *属性：風*
 
-Race: Grassfoot
+#### Race: Grassfoot
 
 *種族：グラスフット*
 
-Class: Night Raider
+#### Class: Night Raider
 
 *クラス：ナイトレイダー*
 
-【Servant of the Cloud Family】
+#### 【Servant of the Cloud Family】
 
 *【クラウド家使用人】*
 
 &nbsp;
 
-〇Anna Mary Bylos
+#### 〇Anna Mary Bylos
 
 *〇アンナメリー・バイロス*
 
-Age: 19
+#### Age: 19
 
 *年齢：19歳*
 
-Attribute: Earth
+#### Attribute: Earth
 
 *属性：地*
 
-Class: Trickster
+#### Class: Trickster
 
 *クラス：トリックスター*
 
-【Servant of the Cloud Family】
+#### 【Servant of the Cloud Family】
 
 *【クラウド家使用人】*
 
 &nbsp;
 
-〇Conrad Blouk
+#### 〇Conrad Blouk
 
 *〇コンラッド・ブロウク*
 
-Age: 69
+#### Age: 69
 
 *年齢：69歳*
 
-Attribute: Fire
+#### Attribute: Fire
 
 *属性：火*
 
-Class: Former Herculean Lord
+#### Class: Former Herculean Lord
 
 *クラス：先代ハーキュリーロード*
 
-【Former Head of the Blouk Family】
+#### 【Former Head of the Blouk Family】
 
 *【ブロウク家前家長】*
 
 &nbsp;
 
-〇Jacob Evans
+#### 〇Jacob Evans
 
 *〇ジェイコブ・エバンス*
 
-Age: 55
+#### Age: 55
 
 *年齢：55歳*
 
-【Butler of Amcam House】
+#### 【Butler of Amcam House】
 
 *【アムカムハウス執事長】*
 
@@ -199,155 +199,155 @@ Age: 55
 
 &nbsp;
 
-〇August Dales
+#### 〇August Dales
 
 *〇オーガスト・ダレス*
 
-Age: 52
+#### Age: 52
 
 *年齢：52歳*
 
-Attribute: Water
+#### Attribute: Water
 
 *属性：水*
 
-Class: Brain Lord
+#### Class: Brain Lord
 
 *クラス：ブレインロード*
 
-【Village Head of Amcam・Leader of the First Squad・Head of the Dales Family】
+#### 【Village Head of Amcam・Leader of the First Squad・Head of the Dales Family】
 
 *【アムカム村村長・第一班班長・御三家ダレス家家長】*
 
 &nbsp;
 
-〇Silence Klocky
+#### 〇Silence Klocky
 
 *〇サイレンス・クロキ*
 
-Age: 48
+#### Age: 48
 
 *年齢：48歳*
 
-Attribute: Fire・Earth・Wind・Void
+#### Attribute: Fire・Earth・Wind・Void
 
 *属性：火・地・風・無*
 
-Class: Soul Lord
+#### Class: Soul Lord
 
 *クラス：ソウルロード*
 
-【Leader of the Second Squad・Head of the Klocky Family】
+#### 【Leader of the Second Squad・Head of the Klocky Family】
 
 *【第二班班長・御三家クロキ家家長】*
 
 &nbsp;
 
-〇Alphonse Bias
+#### 〇Alphonse Bias
 
 *〇アルフォンス・ビーアス*
 
-Age: 51
+#### Age: 51
 
 *年齢：51歳*
 
-Attribute: Earth・Wind・Water
+#### Attribute: Earth・Wind・Water
 
 *属性：地・風・水*
 
-Class: Wise Man
+#### Class: Wise Man
 
 *クラス：ワイズマン*
 
-【Leader of the Third Squad・Head of the Bias Family】
+#### 【Leader of the Third Squad・Head of the Bias Family】
 
 *【第三班班長・御三家ビーアス家家長】*
 
 &nbsp;
 
-〇Harry Haggard
+#### 〇Harry Haggard
 
 *〇ハリー・ハッガード*
 
-Age: 47
+#### Age: 47
 
 *年齢：47歳*
 
-Attribute: Fire・Wind
+#### Attribute: Fire・Wind
 
 *属性：火・風*
 
-Class: Battle Lord
+#### Class: Battle Lord
 
 *クラス：バトルロード*
 
-【Leader of the Fourth Squad・Head of the Haggard Family】
+#### 【Leader of the Fourth Squad・Head of the Haggard Family】
 
 *【第四班班長・ハッガード家家長】*
 
 &nbsp;
 
-〇Frank Long
+#### 〇Frank Long
 
 *〇フランク・ロング*
 
-Age: 44
+#### Age: 44
 
 *年齢：44歳*
 
-Attribute: Wind
+#### Attribute: Wind
 
 *属性：風*
 
-Class: Command Master
+#### Class: Command Master
 
 *クラス：コマンドマスター*
 
-【Leader of the Fifth Squad・Head of the Long Family】
+#### 【Leader of the Fifth Squad・Head of the Long Family】
 
 *【第五班班長・ロング家家長】*
 
 &nbsp;
 
-〇Gary Myers
+#### 〇Gary Myers
 
 *〇ゲイリー・メイヤーズ*
 
-Age: 41
+#### Age: 41
 
 *年齢：41歳*
 
-Attribute: Wind
+#### Attribute: Wind
 
 *属性：風*
 
-Class: Sword Master
+#### Class: Sword Master
 
 *クラス：ソードマスター*
 
-【Leader of the Tenth Squad・Head of the Myers Family】
+#### 【Leader of the Tenth Squad・Head of the Myers Family】
 
 *【第十班班長・メイヤーズ家家長】*
 
 &nbsp;
 
-〇Richard Mathison
+#### 〇Richard Mathison
 
 *〇リチャード・マティスン*
 
-Age: 39
+#### Age: 39
 
 *年齢：39歳*
 
-Attribute: Wind・Water・Fire・Earth
+#### Attribute: Wind・Water・Fire・Earth
 
 *属性：風・水・火・地*
 
-Class: Akashic Lord
+#### Class: Akashic Lord
 
 *クラス：アカシックロード*
 
-【Leader of the Twelfth Squad・Head of the Mathison Family】
+#### 【Leader of the Twelfth Squad・Head of the Mathison Family】
 
 *【第十二班班長・マティスン家家長】*
 
@@ -359,123 +359,123 @@ Class: Akashic Lord
 
 &nbsp;
 
-〇Aria Blouk
+#### 〇Aria Blouk
 
 *〇アリア・ブロウク*
 
-Age: 24
+#### Age: 24
 
 *年齢：24歳*
 
-Attribute: Fire
+#### Attribute: Fire
 
 *属性：火*
 
-Class: Battle Master
+#### Class: Battle Master
 
 *クラス：バトルマスター*
 
-Rank: 10th
+#### Rank: 10th
 
 *団位：10th*
 
-【Team Aria Leader】
+#### 【Team Aria Leader】
 
 *【チームアリア・リーダー】*
 
 &nbsp;
 
-〇Ilta Lindman
+#### 〇Ilta Lindman
 
 *〇イルタ・リンドマン*
 
-Age: 22
+#### Age: 22
 
 *年齢：22歳*
 
-Attribute: Void・Earth
+#### Attribute: Void・Earth
 
 *属性：無・地*
 
-Class: Cleric
+#### Class: Cleric
 
 *クラス：教司官*
 
-Rank: 8th
+#### Rank: 8th
 
 *団位：8th*
 
-【Member of Team Aria】
+#### 【Member of Team Aria】
 
 *【チームアリア所属】*
 
 &nbsp;
 
-〇Keti Forest
+#### 〇Keti Forest
 
 *〇ケティ・フォレスト*
 
-Age: 21
+#### Age: 21
 
 *年齢：21歳*
 
-Attribute: Wind・Water・Fire・Earth
+#### Attribute: Wind・Water・Fire・Earth
 
 *属性：風・水・火・地*
 
-Class: Summoner
+#### Class: Summoner
 
 *クラス：召喚術師*
 
-Rank: 7th
+#### Rank: 7th
 
 *団位：7th*
 
-【Member of Team Aria】
+#### 【Member of Team Aria】
 
 *【チームアリア所属】*
 
 &nbsp;
 
-〇Millie Barrett
+#### 〇Millie Barrett
 
 *〇ミリー・バレット*
 
-Age: 19
+#### Age: 19
 
 *年齢：19歳*
 
-Attribute: Wind
+#### Attribute: Wind
 
 *属性：風*
 
-Class: Hunter
+#### Class: Hunter
 
 *クラス：ハンター*
 
-Rank: 4th
+#### Rank: 4th
 
 *団位：4th*
 
-【Member of Team Aria】
+#### 【Member of Team Aria】
 
 *【チームアリア所属】*
 
 &nbsp;
 
-〇Kalon Clunow
+#### 〇Kalon Clunow
 
 *〇カロン・クルノー*
 
-Age: 19
+#### Age: 19
 
 *年齢：19歳*
 
-Class: Bard
+#### Class: Bard
 
 *クラス：バード*
 
-Rank: 2nd
+#### Rank: 2nd
 
 *団位：2nd*
 
@@ -489,155 +489,155 @@ Rank: 2nd
 
 &nbsp;
 
-〇Colin Saunders
+#### 〇Colin Saunders
 
 *〇コリン・ソンダース*
 
-Age: 15
+#### Age: 15
 
 *年齢：15歳*
 
-Attribute: Water・Wind・Earth
+#### Attribute: Water・Wind・Earth
 
 *属性：水・風・地*
 
-Class: Diviner
+#### Class: Diviner
 
 *クラス：占者*
 
-【Grade 9 Rank・Eldest Daughter of the Saunders Family】
+#### 【Grade 9 Rank・Eldest Daughter of the Saunders Family】
 
 *【学年9段位・ソンダース家長女】*
 
 &nbsp;
 
-〇Dana McCain
+#### 〇Dana McCain
 
 *〇ダーナ・マッケイン*
 
-Age: 15
+#### Age: 15
 
 *年齢：15歳*
 
-Attribute: Wind・Earth
+#### Attribute: Wind・Earth
 
 *属性：風・地*
 
-Class: Lancer
+#### Class: Lancer
 
 *クラス：ランサー*
 
-【Grade 9 Rank・Second Daughter of the McCain Family】
+#### 【Grade 9 Rank・Second Daughter of the McCain Family】
 
 *【学年9段位・マッケイン家次女】*
 
 &nbsp;
 
-〇Willy Hodgson
+#### 〇Willy Hodgson
 
 *〇ウィリー・ホジスン*
 
-Age: 15
+#### Age: 15
 
 *年齢：15歳*
 
-Attribute: Fire・Water・Wind
+#### Attribute: Fire・Water・Wind
 
 *属性：火・水・風*
 
-Class: Mage
+#### Class: Mage
 
 *クラス：メイジ*
 
-【Grade 9 Rank・Second Son of the Hodgson Family】
+#### 【Grade 9 Rank・Second Son of the Hodgson Family】
 
 *【学年9段位・ホジスン家次男】*
 
 &nbsp;
 
-〇Beatrice Klocky
+#### 〇Beatrice Klocky
 
 *〇ベアトリス・クロキ*
 
-Age: 13
+#### Age: 13
 
 *年齢：13歳*
 
-Attribute: Fire・Earth・Wind・Void
+#### Attribute: Fire・Earth・Wind・Void
 
 *属性：火・地・風・無*
 
-Class: Novice
+#### Class: Novice
 
 *クラス：ノービス*
 
-【Grade 8 Rank・Eldest Daughter of the Klocky Family】
+#### 【Grade 8 Rank・Eldest Daughter of the Klocky Family】
 
 *【学年8段位・クロキ家長女】*
 
 &nbsp;
 
-〇Mia Mathison
+#### 〇Mia Mathison
 
 *〇ミア・マティスン*
 
-Age: 14
+#### Age: 14
 
 *年齢：14歳*
 
-Attribute: Earth・Water・Wind
+#### Attribute: Earth・Water・Wind
 
 *属性：地・水・風*
 
-Class: Mage
+#### Class: Mage
 
 *クラス：メイジ*
 
-【Grade 8 Rank・Eldest Daughter of the Mathison Family】
+#### 【Grade 8 Rank・Eldest Daughter of the Mathison Family】
 
 *【学年8段位・マティスン家長女】*
 
 &nbsp;
 
-〇Irvin Haggard
+#### 〇Irvin Haggard
 
 *〇アーヴィン・ハッガード*
 
-Age: 14
+#### Age: 14
 
 *年齢：14歳*
 
-Attribute: Fire・Wind・Void
+#### Attribute: Fire・Wind・Void
 
 *属性：火・風・無*
 
-Class: Swordsman
+#### Class: Swordsman
 
 *クラス：ソードマン*
 
-【Grade 8 Rank・Third Son of the Haggard Family】
+#### 【Grade 8 Rank・Third Son of the Haggard Family】
 
 *【学年8段位・ハッガード家三男】*
 
 &nbsp;
 
-〇Lombard Blouk
+#### 〇Lombard Blouk
 
 *〇ロンバート・ブロウク*
 
-Age: 14
+#### Age: 14
 
 *年齢：14歳*
 
-Attribute: Earth・Water
+#### Attribute: Earth・Water
 
 *属性：地・水*
 
-Class: Lumberjack
+#### Class: Lumberjack
 
 *クラス：ランバージャック*
 
-【Grade 8 Rank・Third Son of the Blouk Family】
+#### 【Grade 8 Rank・Third Son of the Blouk Family】
 
 *【学年8段位・ブロウク家三男】*
 
@@ -645,89 +645,89 @@ Class: Lumberjack
 
 &nbsp;
 
-〇Alan Edgala
+#### 〇Alan Edgala
 
 *〇アラン・エドガーラ*
 
-Age: 13
+#### Age: 13
 
 *年齢：13歳*
 
-【Grade 7 Rank】
+#### 【Grade 7 Rank】
 
 *【学年7段位】*
 
 &nbsp;
 
-〇Belnapp Long
+#### 〇Belnapp Long
 
 *〇ベルナップ・ロング*
 
-Age: 13
+#### Age: 13
 
 *年齢：13歳*
 
-【Grade 7 Rank】
+#### 【Grade 7 Rank】
 
 *【学年7段位】*
 
 &nbsp;
 
-〇Carl Giacobini
+#### 〇Carl Giacobini
 
 *〇カール・ジャコビニ*
 
-Age: 13
+#### Age: 13
 
 *年齢：13歳*
 
-【Grade 7 Rank】
+#### 【Grade 7 Rank】
 
 *【学年7段位】*
 
 &nbsp;
 
-Girls
+#### Girls
 
 *女子*
 
-〇Helena Slater
+#### 〇Helena Slater
 
 *〇ヘレナ・スレイター*
 
-Age: 13
+#### Age: 13
 
 *年齢：13歳*
 
-【Grade 7 Rank】
+#### 【Grade 7 Rank】
 
 *【学年7段位】*
 
 &nbsp;
 
-〇Mary Frank
+#### 〇Mary Frank
 
 *〇メアリー・フランク*
 
-Age: 13
+#### Age: 13
 
 *年齢：13歳*
 
-【Grade 7 Rank】
+#### 【Grade 7 Rank】
 
 *【学年7段位】*
 
 &nbsp;
 
-〇Fiorina Atlee
+#### 〇Fiorina Atlee
 
 *〇フィオリーナ・アトリー*
 
-Age: 12
+#### Age: 12
 
 *年齢：12歳*
 
-【Grade 6 Rank】
+#### 【Grade 6 Rank】
 
 *【学年6段位】*
 
@@ -735,71 +735,71 @@ Age: 12
 
 &nbsp;
 
-〇Marsh Cowsbart
+#### 〇Marsh Cowsbart
 
 *〇マーシュ・カウズバート*
 
-Age: 91
+#### Age: 91
 
 *年齢：91歳*
 
-Attribute: Fire・Earth
+#### Attribute: Fire・Earth
 
 *属性：火・地*
 
-Race: Dwarf
+#### Race: Dwarf
 
 *種族：ドワーフ*
 
-Class: Former Highlander
+#### Class: Former Highlander
 
 *クラス：元ハイランダー*
 
-【Head of the Cowsbart Workshop】
+#### 【Head of the Cowsbart Workshop】
 
 *【『カウズバート工房』工房長】*
 
 &nbsp;
 
-〇Maribelle Cowsbart
+#### 〇Maribelle Cowsbart
 
 *〇マリーベル・カウズバート*
 
-Age: 28
+#### Age: 28
 
 *年齢：28歳*
 
-Race: Dwarf
+#### Race: Dwarf
 
 *種族：ドワーフ*
 
-【Clerical Position at the Cowsbart Workshop・Daughter of Marsh】
+#### 【Clerical Position at the Cowsbart Workshop・Daughter of Marsh】
 
 *【『カウズバート工房』事務職・マーシュの娘】*
 
 &nbsp;
 
-〇Cecily Eleanor
+#### 〇Cecily Eleanor
 
 *〇セシリー・エレノア*
 
-Age: 59
+#### Age: 59
 
 *年齢：59歳*
 
-Attribute: Water・Wind
+#### Attribute: Water・Wind
 
 *属性：水・風*
 
-Race: Half-Elf
+#### Race: Half-Elf
 
 *種族：ハーフエルフ*
 
-Class: Former Blade Hunter
+#### Class: Former Blade Hunter
 
 *クラス：元ブレードハンター*
 
-【Owner of 'Afternoon (Apre Midi)'】
+#### 【Owner of 'Afternoon (Apre Midi)'】
 
 *【『昼下がり（アプレミディ）』店主】*
 
@@ -807,223 +807,223 @@ Class: Former Blade Hunter
 
 &nbsp;
 
-――Investigation Delegation――
+#### ――Investigation Delegation――
 
 *――調査使節団――*
 
 &nbsp;
 
-〇Cedric Meyer
+#### 〇Cedric Meyer
 
 *〇セドリック・マイヤー*
 
-Age: 39
+#### Age: 39
 
 *年齢：39歳*
 
-Attribute: Water
+#### Attribute: Water
 
 *属性：水*
 
-【Captain of the Twelfth Mobile Heavy Cavalry Division・Commander of the Delegation】
+#### 【Captain of the Twelfth Mobile Heavy Cavalry Division・Commander of the Delegation】
 
 *【第十二機動重騎士団千人隊長・使節団大隊長】*
 
 &nbsp;
 
-〇Kyle Irvine
+#### 〇Kyle Irvine
 
 *〇カイル・アーバイン*
 
-Age: 27
+#### Age: 27
 
 *年齢：27歳*
 
-Attribute: Wind
+#### Attribute: Wind
 
 *属性：風*
 
-【First Hundred Captain・Deputy Commander of the Delegation】
+#### 【First Hundred Captain・Deputy Commander of the Delegation】
 
 *【筆頭百人隊長・使節団副隊長】*
 
 &nbsp;
 
-〇Magritte Gauche
+#### 〇Magritte Gauche
 
 *〇マグリット・ゴーチェ*
 
-Age: 26
+#### Age: 26
 
 *年齢：26歳*
 
-Attribute: Earth
+#### Attribute: Earth
 
 *属性：地*
 
-【Hundred Captain・Advance Unit Leader】
+#### 【Hundred Captain・Advance Unit Leader】
 
 *【百人隊長・先遣部隊部隊長】*
 
 &nbsp;
 
-〇Jimon Reitzman
+#### 〇Jimon Reitzman
 
 *〇ジモン・リーツマン*
 
-Age: 25
+#### Age: 25
 
 *年齢：25歳*
 
-Attribute: Earth
+#### Attribute: Earth
 
 *属性：地*
 
-【Leader of Squad 1・Advance Unit】
+#### 【Leader of Squad 1・Advance Unit】
 
 *【1班班長・先遣部隊】*
 
 &nbsp;
 
-〇Raisa Ulunova
+#### 〇Raisa Ulunova
 
 *〇ライサ・ウルノヴァ*
 
-Age: 22
+#### Age: 22
 
 *年齢：22歳*
 
-Attribute: Water
+#### Attribute: Water
 
 *属性：水*
 
-【Leader of Squad 2・Advance Unit】
+#### 【Leader of Squad 2・Advance Unit】
 
 *【2班班長・先遣部隊】*
 
 &nbsp;
 
-〇Tony Easton
+#### 〇Tony Easton
 
 *〇トニー・イーストン*
 
-Age: 22
+#### Age: 22
 
 *年齢：22歳*
 
-Attribute: Fire
+#### Attribute: Fire
 
 *属性：火*
 
-【Leader of Squad 3】
+#### 【Leader of Squad 3】
 
 *【3班班長】*
 
 &nbsp;
 
-〇Norman Lance
+#### 〇Norman Lance
 
 *〇ノーマン・ランス*
 
-Age: 28
+#### Age: 28
 
 *年齢：28歳*
 
-Attribute: Wind
+#### Attribute: Wind
 
 *属性：風*
 
-【Leader of Squad 4・War Spear Escort Unit】
+#### 【Leader of Squad 4・War Spear Escort Unit】
 
 *【4班班長・戦槍護衛部隊】*
 
 &nbsp;
 
-〇Lisa Tuttle
+#### 〇Lisa Tuttle
 
 *〇リサ・タトル*
 
-Age: 24
+#### Age: 24
 
 *年齢：24歳*
 
-Attribute: Water・Void
+#### Attribute: Water・Void
 
 *属性：水・無*
 
-【Leader of Squad 5・Sanitation Team Leader】
+#### 【Leader of Squad 5・Sanitation Team Leader】
 
 *【5班班長・衛生隊長】*
 
 &nbsp;
 
-〇Cornell Wallrich
+#### 〇Cornell Wallrich
 
 *〇コーネル・ウォーリッチ*
 
-Age: 28
+#### Age: 28
 
 *年齢：28歳*
 
-Attribute: Earth
+#### Attribute: Earth
 
 *属性：地*
 
-【Leader of Squad 6・Fortification Team Leader】
+#### 【Leader of Squad 6・Fortification Team Leader】
 
 *【6班班長・堅固隊長】*
 
 &nbsp;
 
-〇Luke Trevor
+#### 〇Luke Trevor
 
 *〇ルーク・トレバー*
 
-Age: 25
+#### Age: 25
 
 *年齢：25歳*
 
-Attribute: Earth
+#### Attribute: Earth
 
 *属性：地*
 
-【Leader of Squad 7】
+#### 【Leader of Squad 7】
 
 *【7班班長】*
 
 &nbsp;
 
-〇Casey Guinness
+#### 〇Casey Guinness
 
 *〇ケイシー・ギネス*
 
-Age: 21
+#### Age: 21
 
 *年齢：21歳*
 
-Attribute: Wind・Water
+#### Attribute: Wind・Water
 
 *属性：風・水*
 
-【Member of Squad 2】
+#### 【Member of Squad 2】
 
 *【2班隊員】*
 
 &nbsp;
 
-〇Fred Rolling
+#### 〇Fred Rolling
 
 *〇フレッド・ローリング*
 
-Age: 32
+#### Age: 32
 
 *年齢：32歳*
 
-Attribute: Earth・Fire
+#### Attribute: Earth・Fire
 
 *属性：地・火*
 
-【Chief of Maintenance】
+#### 【Chief of Maintenance】
 
 *【整備主任】*
 
@@ -1033,85 +1033,85 @@ Attribute: Earth・Fire
 
 &nbsp;
 
-〇Nosori Kasbar
+#### 〇Nosori Kasbar
 
 *〇ノソリ・カスバル*
 
-Age: 75
+#### Age: 75
 
 *年齢：75歳*
 
-Attribute: Wind・Water・Earth
+#### Attribute: Wind・Water・Earth
 
 *属性：風・水・地*
 
-【Magical Biology】
+#### 【Magical Biology】
 
 *【魔法生物学】*
 
 &nbsp;
 
-〇Morris Balthasar
+#### 〇Morris Balthasar
 
 *〇モリス・バルタサル*
 
-Age: 75
+#### Age: 75
 
 *年齢：75歳*
 
-Attribute: Earth・Fire
+#### Attribute: Earth・Fire
 
 *属性：地・火*
 
-Race: Dwarf
+#### Race: Dwarf
 
 *種族：ドワーフ*
 
-【Structural Geology】
+#### 【Structural Geology】
 
 *【構造地質学】*
 
 &nbsp;
 
-〇Seiwashi Melchio
+#### 〇Seiwashi Melchio
 
 *〇セイワシ・メルチオ*
 
-Age: 75
+#### Age: 75
 
 *年齢：75歳*
 
-Attribute: All
+#### Attribute: All
 
 *属性：全*
 
-Race: Sun Elf
+#### Race: Sun Elf
 
 *種族：サンエルフ*
 
-【Magical Dynamics (Doctor of Magical Engineering)】
+#### 【Magical Dynamics (Doctor of Magical Engineering)】
 
 *【魔導力学（魔導工学博士）】*
 
 &nbsp;
 
-〇Joseline Joslan
+#### 〇Joseline Joslan
 
 *〇ジョスリーヌ・ジョスラン*
 
-Age: 25
+#### Age: 25
 
 *年齢：25歳*
 
-Attribute: Void・Water・Wind
+#### Attribute: Void・Water・Wind
 
 *属性：無・水・風*
 
-Race: Half-Elf
+#### Race: Half-Elf
 
 *種族：ハーフエルフ*
 
-【Assistant to Seiwashi】
+#### 【Assistant to Seiwashi】
 
 *【セイワシ助手】*
 
@@ -1119,43 +1119,43 @@ Race: Half-Elf
 
 &nbsp;
 
-〇Cameron Fourier
+#### 〇Cameron Fourier
 
 *〇キャメロン・フーリエ*
 
-Age: 41
+#### Age: 41
 
 *年齢：41歳*
 
-【Deputy Director of the National Disaster Response Committee's Northern Department's Deipara Response Office (Commonly known as the Delegation Representative)】
+#### 【Deputy Director of the National Disaster Response Committee's Northern Department's Deipara Response Office (Commonly known as the Delegation Representative)】
 
 *【国家災害対策委員会北部方面デイパーラ対策室副室長代理補調査使節団団長（通称・使節団代表）】*
 
 &nbsp;
 
-〇Connor Clark
+#### 〇Connor Clark
 
 *〇コナー・クラーク*
 
-Age: 37
+#### Age: 37
 
 *年齢：37歳*
 
-【Deputy Commander of the Delegation】
+#### 【Deputy Commander of the Delegation】
 
 *【使節団副官】*
 
 &nbsp;
 
-〇Jules Narl
+#### 〇Jules Narl
 
 *〇ジュール・ナール*
 
-Age: 28
+#### Age: 28
 
 *年齢：28歳*
 
-【Cameron Fourier's Private Guard】
+#### 【Cameron Fourier's Private Guard】
 
 *【キャメロン・フーリエ私設護衛】*
 
@@ -1167,77 +1167,77 @@ Age: 28
 
 &nbsp;
 
-〇Halbert East
+#### 〇Halbert East
 
 *〇ハルバート・イースト*
 
-Attribute: Earth
+#### Attribute: Earth
 
 *属性：地*
 
-・True Vampire
+#### ・True Vampire
 
 *・トゥルーヴァンパイア*
 
-【Undying General Halbert】
+#### 【Undying General Halbert】
 
 *【不死将軍ハルバート】*
 
 &nbsp;
 
-〇Marina
+#### 〇Marina
 
 *〇マリーナ*
 
-Attribute: Earth・Water
+#### Attribute: Earth・Water
 
 *属性：地・水*
 
-Race: Moon Elf
+#### Race: Moon Elf
 
 *種族：ムーンエルフ*
 
-・Elder Vampire
+#### ・Elder Vampire
 
 *・エルダーヴァンパイア*
 
-【Halbert's Follower】
+#### 【Halbert's Follower】
 
 *【ハルバート眷属】*
 
 &nbsp;
 
-〇Electra
+#### 〇Electra
 
 *〇エレクトラ*
 
-Attribute: Fire・Wind
+#### Attribute: Fire・Wind
 
 *属性：火・風*
 
-・Elder Vampire
+#### ・Elder Vampire
 
 *・エルダーヴァンパイア*
 
-【Halbert's Follower】
+#### 【Halbert's Follower】
 
 *【ハルバート眷属】*
 
 &nbsp;
 
-〇Joel
+#### 〇Joel
 
 *〇ジョエル*
 
-Attribute: Wind
+#### Attribute: Wind
 
 *属性：風*
 
-・Elder Vampire
+#### ・Elder Vampire
 
 *・エルダーヴァンパイア*
 
-【Halbert's Follower】
+#### 【Halbert's Follower】
 
 *【ハルバート眷属】*
 
@@ -1247,11 +1247,11 @@ Attribute: Wind
 
 &nbsp;
 
-〇Clarimond
+#### 〇Clarimond
 
 *〇クラリモンド*
 
-・True Vampire
+#### ・True Vampire
 
 *・トゥルーヴァンパイア*
 
@@ -1259,17 +1259,17 @@ Attribute: Wind
 
 ----------------
 
-Thank you for reading!
+#### Thank you for reading!
 
 *お読み頂きありがとう御座いました！*
 
 &nbsp;
 
-I have also written something like an afterword in the activity report.
+#### I have also written something like an afterword in the activity report.
 
 *活動報告に　あとがき的な物も書いております。*
 
-If you like, please take a look at that too<m(__)m>
+#### If you like, please take a look at that too<m(__)m>
 
 *よろしければ、そちらも覗いてやってください<m(__)m>*
 
