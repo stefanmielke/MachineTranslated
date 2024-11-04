@@ -38,8 +38,11 @@ def create_index(main_folder):
                         
                         if os.path.isfile(file_path):
                             with open(file_path, 'r', encoding='utf-8') as current_file:
-                                first_line = current_file.readline().strip()
-                                index_file.write(f"1. [{first_line[2:]}](out/{file_name})\n")
+                                chapter_name = current_file.readline().strip()
+                                while not chapter_name.startswith("# "):
+                                    chapter_name = current_file.readline().strip()
+
+                                index_file.write(f"1. [{chapter_name[2:]}](out/{file_name})\n")
 
                 print(f"Created index.md in {root}")
             except Exception as e:

@@ -1,6 +1,6 @@
 # My Sort of Cheat but Small Fry Female Character
 
-###### Translated with DeepL
+###### Translated with DeepL / gpt4o-mini / gpt4o
 
 #### [Novel Updates Link](https://www.novelupdates.com/series/my-sort-of-cheat-but-small-fry-female-character/)
 

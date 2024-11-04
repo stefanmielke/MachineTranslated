@@ -14,7 +14,7 @@
 1. [First of all... what should I do?](out/chapter_0004.md)
 1. [Kamikete - God, please walk quickly without running and help me soon - (●Illustration included)](out/chapter_0005.md)
 1. [No matter what](out/chapter_0006.md)
-1. [n a Personal Matter (Apologies if you’re eating!)](out/chapter_0007.md)
+1. [On a Personal Matter (Apologies if you’re eating!)](out/chapter_0007.md)
 1. [Sudden Interview with the Senior Adventurer Next Door](out/chapter_0008.md)
 1. [Lost Memories (Just a Drunk) ●Illustrations Included](out/chapter_0009.md)
 1. [Safe, Safe](out/chapter_0010.md)
