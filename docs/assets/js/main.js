@@ -3,4 +3,7 @@ $(window).on('load', function() {
         $('em').slideToggle();
         $('h2').slideToggle();
     });
+    $('#btn-en').on('click', function() {
+        $('h4').slideToggle();
+    });
 });
