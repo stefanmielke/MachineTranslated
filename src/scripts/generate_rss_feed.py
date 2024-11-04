@@ -45,7 +45,7 @@ def add_new_items_to_rss(starting_path):
         rss = ET.Element("rss", version="2.0")
         channel = ET.SubElement(rss, "channel")
         ET.SubElement(channel, "title").text = "Machine Translated Series Feed"
-        ET.SubElement(channel, "link").text = f"https://stefanmielke.github.io/MachineTranslated/translations"
+        ET.SubElement(channel, "link").text = f"https://stefanmielke.github.io/MachineTranslated"
         ET.SubElement(channel, "description").text = "Feed of newly added chapters in all series."
         tree = ET.ElementTree(rss)
     else:
