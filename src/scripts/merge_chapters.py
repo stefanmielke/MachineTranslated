@@ -34,9 +34,6 @@ def merge_files(jp_dir, en_dir, output_dir):
         output_filename = os.path.splitext(filename)[0] + ".md"
         output_path = os.path.join(output_dir, output_filename)
         with open(output_path, 'w', encoding='utf-8') as output_file:
-            # Add previous and next chapter links
-            chapter_number = int(re.search(r'\d+', filename).group())
-
             if i < len(filenames) - 1:
                 next_chapter = os.path.splitext(filenames[i + 1])[0]
                 output_file.write(f"###### [Next Chapter](./{next_chapter}.md)\n")
