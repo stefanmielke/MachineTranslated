@@ -7,7 +7,7 @@ from datetime import datetime
 import sys
 
 # Name of the RSS feed file
-RSS_FILE = "rss_feed.xml"
+RSS_FILE = "feed.xml"
 # JSON file containing metadata
 JSON_FILE = "data.json"
 
