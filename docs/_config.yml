@@ -8,3 +8,6 @@ exclude:
 - docs/translations/N5334EV/data.json
 - docs/translations/N5334EV/en
 - docs/translations/N5334EV/jp
+- docs/translations/n4886hw/data.json
+- docs/translations/n4886hw/en
+- docs/translations/n4886hw/jp
