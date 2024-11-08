@@ -1,0 +1,367 @@
+# Chapter 4: Skill Testing Begins 1
+
+"Shuu, are you awake?"
+
+<b>
+
+I wake up to the sound of my father's voice coming from beyond the door.
+
+Looking out the window, I see bright sunlight streaming in through the gap in the curtains.
+
+I should have returned home yesterday evening after using 'Spatial Transfer Magic'.
+
+So this means... 
+
+<b>
+
+"Shuu?"
+
+"Ah, yeah! I'm awake."
+
+"You slept all day yesterday, but are you feeling okay?"
+
+"…Yeah, probably okay."
+
+"Got it. Well then, I'm off to work, so don't push yourself too hard."
+
+"Roger that."
+
+<b>
+
+As I respond, I hear my father descending the stairs.
+
+No matter how much my level increases, I need to ensure a safety margin, or I might faint again like yesterday.
+
+<b>
+
+"Oh, I forgot."
+
+<b>
+
+I peek into the trash can placed in the corner of the room.
+
+There, without a doubt, is the empty plastic bottle I transferred yesterday.
+
+<b>
+
+"Status"
+
+<b>
+
+―――
+
+<b>
+
+Iori Shuu Lv13 Human
+
+HP370/370
+
+MP115/125
+
+SP20
+
+STR11
+
+VIT12
+
+DEX13
+
+AGI11
+
+INT11
+
+<b>
+
+Skills: Appraisal, Universal Translation, Water Magic, Wind Magic, Spatial Transfer Magic
+
+<b>
+
+―――
+
+<b>
+
+Wow, my level has jumped to 13 all at once.
+
+For now, I can consider that I've made progress in leveling up.
+
+That means the next issue is...
+
+<b>
+
+"Grumble"
+
+<b>
+
+Just as I think that, my stomach lets out a cry.
+
+...Come to think of it, I haven't eaten anything since last night.
+
+There's no helping it. I'll think about it after having breakfast.
+
+<b>
+
+With that in mind, I leave my room...
+
+<b>
+
+"Oh."
+
+"Ah."
+
+<b>
+
+I run into my younger sister Kana, who was just about to enter the room next door at the same time.
+
+<b>
+
+"G-Good morning, Kana."
+
+"…Good morning."
+
+<b>
+
+As I greet her, Kana enters the room with a somewhat sulky expression and slams the door shut with a "bang!"
+
+It's no wonder she's upset; I've caused her a lot of trouble while I was hospitalized.
+
+<b>
+
+Feeling a bit down, I head towards the living room when I notice the bathroom door left ajar.
+
+I assume either my father or Kana forgot to close it, so I reach for the door to close it when suddenly a thought crosses my mind.
+
+<b>
+
+The bathroom connected to the washroom; I could fully test the skill 'Water Magic' I learned yesterday there.
+
+Thinking that, I quickly take off my socks and step into the bathroom.
+
+But first, I should check something.
+
+<b>
+
+"Appraisal"
+
+<b>
+
+―――
+
+<b>
+
+Target: Skill 'Water Magic'
+
+Effect: Generates water using magical power
+
+Status: Skill Level 1/10
+
+Notes:
+
+<b>
+
+―――
+
+<b>
+
+The displayed information is quite vague.
+
+I won't know the details until I actually use it.
+
+<b>
+
+"…'Water Magic'"
+
+<b>
+
+I activate the skill in a quiet voice so that Kana on the second floor can't hear me.
+
+Then, a small water sphere appears in my palm, and from it, a thin stream of water shoots out towards the bathtub in a parabolic arc.
+
+<b>
+
+...It's saltier than I expected.
+
+<b>
+
+"Status"
+
+<b>
+
+―――
+
+<b>
+
+Iori Shuu Lv13 Human
+
+HP370/370
+
+MP105/125
+
+SP20
+
+STR11
+
+VIT12
+
+DEX13
+
+AGI11
+
+INT11
+
+<b>
+
+Skills: Appraisal, Universal Translation, Water Magic, Wind Magic, Spatial Transfer Magic
+
+<b>
+
+―――
+
+<b>
+
+The MP consumption is only 5, which is quite low. Or rather, considering how weak it is, is it actually high?
+
+I thought it would be a useful skill when I learned it, but maybe it was a mistake. I expected something more like a powerful jet of water.
+
+As I think that...
+
+<b>
+
+"Whoa!?"
+
+<b>
+
+Suddenly, the water sphere grows to about my body size, and the amount of water being released increases dramatically.
+
+It looks exactly like what I had imagined. At the same time, I start to feel fatigue and a sense of lethargy.
+
+<b>
+
+In a panic, I stop the activation of Water Magic, and the water sphere bursts with a loud "splash."
+
+Ignoring that sight, I check my 'Status' again.
+
+<b>
+
+―――
+
+<b>
+
+Iori Shuu Lv13 Human
+
+HP370/370
+
+MP55/125
+
+SP20
+
+STR11
+
+VIT12
+
+DEX13
+
+AGI11
+
+INT11
+
+<b>
+
+Skills: Appraisal, Universal Translation, Water Magic, Wind Magic, Spatial Transfer Magic
+
+<b>
+
+―――
+
+<b>
+
+Earlier, I only consumed 5 MP, but now I've lost nearly 50 in one go.
+
+<b>
+
+"…'Water Magic'"
+
+<b>
+
+I visualize the first activation and activate Water Magic again.
+
+Then, I check my status once more...
+
+<b>
+
+―――
+
+<b>
+
+Iori Shuu Lv13 Human
+
+HP370/370
+
+MP50/125
+
+SP20
+
+STR11
+
+VIT12
+
+DEX13
+
+AGI11
+
+INT11
+
+<b>
+
+Skills: Appraisal, Universal Translation, Water Magic, Wind Magic, Spatial Transfer Magic
+
+<b>
+
+―――
+
+<b>
+
+This time, my MP has only decreased by 5.
+
+…What does this mean?
+
+<b>
+
+"Hey."
+
+"What!?"
+
+<b>
+
+As I ponder this, I'm suddenly addressed by a voice.
+
+Turning around, I see Kana standing there, looking exasperated.
+
+<b>
+
+"I heard a loud noise. What were you doing?"
+
+"Ah, I was half-asleep and taking a shower..."
+
+"…You didn't hurt yourself or anything, right?"
+
+"Ah, of course not."
+
+"…Well, that's good to hear."
+
+<b>
+
+After saying that, Kana leaves.
+
+I wonder if she’s genuinely worried about me?
+
+<b>
+
+Oh, I forgot. I was on my way to have breakfast.
+
+<b>
+
+Putting the skills aside for now, I head towards the kitchen again. 
+
+<b>
+
+<b>

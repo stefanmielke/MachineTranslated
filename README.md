@@ -55,8 +55,19 @@ If you want a new series translated, please open an issue with the series name a
         - add exclusion folders on `docs/_config.yaml` (copy from other series).
 1. Run `get_chapter_links_from_syosetu.py` to download the chapters on the format expected (if from syosetu, if not, you have to download them).
 1. Copy the `jp` files on the `en` folder, to start with the translation with the original files.
+1. For translation:
+    1. If using DeepL:
+        1. Run `batch_merge_chapters.py` to merge the files into one.
+        1. Upload the file for translation.
+        1. Run `split_merge_chapters.py` to split them again, now translated.
+    1. If using OpenAI:
+        1. Run `translate_files_openai_batch.py` to merge the files into one `jsonl` file.
+        1. Upload the file for translation using the batch service.
+        1. Run `unpack_files_openai_batch.py` to split them again, now translated.
 1. Run `merge_chapters.py` to create the initial files on the `/out` folder.
-1. Run `create_index_file_per_serie.py` to generate the `index.md` files for the new serie.
+1. Run `create_index_file_per_serie.py ..\..\docs\translations\` to generate the `index.md` files for the new serie.
+1. Run `generate_rss_feed.py ..\..\docs\translations\` to update the rss feed.
+
 
 **Format of the original source files:**
 - Every line should be used as it is on the original source.
