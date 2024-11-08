@@ -1,4 +1,4 @@
-# God Wrecked the Last Boss
+# My Classmates Became Heroes in Another World, But I was Left Behind in Modern Japan
 
 ###### Translated with gpt4o-mini
 
@@ -8,6 +8,9 @@
 
 ### Chapters:
 
+1. [Prologue](out/chapter_0001.md)
+1. [Episode 1: Left Behind](out/chapter_0002.md)
+1. [Episode 2: Level Up](out/chapter_0003.md)
 1. [Episode 3: Back to Daily Life](out/chapter_0004.md)
 1. [Chapter 4: Skill Testing Begins 1](out/chapter_0005.md)
 1. [Episode 5: Skill Testing Has Begun 2](out/chapter_0006.md)
@@ -20,6 +23,7 @@
 1. [Intermission: Those Summoned to Another World 1](out/chapter_0013.md)
 1. [Episode 12: I Became a High School Student](out/chapter_0014.md)
 1. [Episode 13 Encounter with the Angel of the Academy](out/chapter_0015.md)
+1. [Episode 14 A Meeting Between a Girl and a Boy](out/chapter_0016.md)
 1. [Episode 15: Invited by the Angel of the Academy](out/chapter_0017.md)
 1. [Chapter 16: I Was Asked to Exterminate a Monster 1](out/chapter_0018.md)
 1. [Episode 17: I Was Asked to Subdue a Monster 2](out/chapter_0019.md)
@@ -29,6 +33,8 @@
 1. [Episode 21: After the Monster Extermination 2](out/chapter_0023.md)
 1. [Intermission: Those Summoned to Another World 2](out/chapter_0024.md)
 1. [Episode 22: Encounter with the Blonde Transfer Student](out/chapter_0025.md)
+1. [Episode 23: A Certain Agent's Flashback](out/chapter_0026.md)
+1. [Episode 24: I Tried Out an Extra Skill 1](out/chapter_0027.md)
 1. [Episode 25: I Tried the Extra Skill 2](out/chapter_0028.md)
 1. [Episode 26: I Tried Out an Extra Skill 3](out/chapter_0029.md)
 1. [Episode 27: I Reunited with the Transfer Student with Blonde Hair](out/chapter_0030.md)
