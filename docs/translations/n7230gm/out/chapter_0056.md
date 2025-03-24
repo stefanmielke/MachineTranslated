@@ -1,7 +1,7 @@
 ###### [Next Chapter](./chapter_0057.md)
 ###### [Previous Chapter](./chapter_0055.md)&nbsp;/&nbsp;
 
-# 54  女の敵？
+# 54 Enemy of Women?
 
 ## ５４　女の敵？
 
