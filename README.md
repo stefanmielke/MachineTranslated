@@ -41,7 +41,7 @@ If you want a new series translated, please open an issue with the series name a
 - Images can't be translated, only the original is used (but the translation should still have an empty line on its place).
 
 **For new series:**
-1. Create the following folders:
+1. Run `create_folder_structure.py` passing the series_id to create the initial structure:
     - inside `/docs/translations/{series_id}`:
         - `/jp`: to put the original chapters.
         - `/en`: to put the English translations.
@@ -52,8 +52,8 @@ If you want a new series translated, please open an issue with the series name a
                 - `novel-updates-link`: series URL from Novel Updates.
                 - `source-link`: link to the original source of the series.
                 - `ml-used`: machine translation tool used.
-        - add exclusion folders on `docs/_config.yaml` (copy from other series).
 1. Run `get_chapter_links_from_syosetu.py` to download the chapters on the format expected (if from syosetu, if not, you have to download them).
+    - pass the URL from syosetsu and the output folder (the `/jp` folder created above)
 1. Copy the `jp` files on the `en` folder, to start with the translation with the original files.
 1. For translation:
     1. If using DeepL:
@@ -65,6 +65,7 @@ If you want a new series translated, please open an issue with the series name a
         1. Upload the file for translation using the batch service.
         1. Run `unpack_files_openai_batch.py` to split them again, now translated.
 1. Run `merge_chapters.py` to create the initial files on the `/out` folder.
+    - You may need to fix the paragraphs, since they need to match between the `jp` and `en` files.
 1. Run `create_index_file_per_serie.py ..\..\docs\translations\` to generate the `index.md` files for the new serie.
 1. Run `generate_rss_feed.py ..\..\docs\translations\` to update the rss feed.
 

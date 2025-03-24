@@ -21,12 +21,12 @@ def get_chapter_links(base_url):
     last_page_number = get_last_page_number(base_url)
     chapter_links = []
     base_url_without_trailing_slash = base_url.rstrip('/')
-    
+
     for page_number in range(1, last_page_number + 1):
         url = f"{base_url}?p={page_number}"
         response = requests.get(url, headers=headers)
         soup = BeautifulSoup(response.content, "html.parser")
-        
+
         # Get all chapter links from the current page
         chapter_list = soup.find_all("div", class_="p-eplist__sublist")
         for chapter in chapter_list:
@@ -37,21 +37,24 @@ def get_chapter_links(base_url):
 
     return chapter_links
 
-def save_chapter_text(url, output_folder, index):
+def save_chapter_text(url, output_folder, index, skip_existing=False):
+    chapter_title = f"chapter_{index:04d}"
+    file_path = os.path.join(output_folder, f"{chapter_title}.txt")
+
+    if skip_existing and os.path.exists(file_path):
+        print(f"Skipping existing file: {file_path}")
+        return
+
     response = requests.get(url, headers=headers)
     soup = BeautifulSoup(response.content, "html.parser")
     article = soup.find("article")
     if article:
-        # Extract text and save to file
-        chapter_title = f"chapter_{index:04d}"
-        file_path = os.path.join(output_folder, f"{chapter_title}.txt")
         with open(file_path, "w", encoding="utf-8") as file:
-            # Get chapter title from h1 with class 'p-novel__title'
             title_h1 = article.find("h1", class_="p-novel__title")
             if title_h1:
                 title_text = title_h1.get_text(strip=True)
                 file.write(f"# {title_text}\n\n")
-            
+
             divs = article.find_all("div", class_="js-novel-text")
             for div in divs:
                 if div.has_attr('class') and 'p-novel__text--afterword' in div['class']:
@@ -59,7 +62,6 @@ def save_chapter_text(url, output_folder, index):
 
                 paragraphs = div.find_all("p")
                 for paragraph in paragraphs:
-                    # Check if paragraph contains an image
                     image = paragraph.find("img")
                     if image:
                         alt_text = image.get("alt", "image")
@@ -77,31 +79,29 @@ def save_chapter_text(url, output_folder, index):
 
                 if div.has_attr('class') and 'p-novel__text--preface' in div['class']:
                     file.write("\n----------------\n\n<b>\n\n")
-        
-        # Remove duplicated blank lines and trailing blank lines
+
         with open(file_path, "r", encoding="utf-8") as file:
             content = file.read()
         cleaned_content = re.sub(r'\n{2,}', '\n\n', content).rstrip('\n')
-        
-        # Write cleaned content back to file
+
         with open(file_path, "w", encoding="utf-8") as file:
             file.write(cleaned_content)
 
-def main(base_url, output_folder):
-    # Create output folder if it doesn't exist
+def main(base_url, output_folder, skip_existing=False):
     if not os.path.exists(output_folder):
         os.makedirs(output_folder)
 
     chapter_links = get_chapter_links(base_url)
-    
+
     print("Total Chapters Found:", len(chapter_links))
     for index, link in enumerate(chapter_links, start=1):
         print(f"Saving chapter from: {link}")
-        save_chapter_text(link, output_folder, index)
+        save_chapter_text(link, output_folder, index, skip_existing=skip_existing)
 
 if __name__ == "__main__":
     import sys
-    if len(sys.argv) != 3:
-        print("Usage: python script.py <base_url> <output_folder>")
+    if len(sys.argv) < 3 or len(sys.argv) > 4:
+        print("Usage: python script.py <base_url> <output_folder> [--skip-existing]")
     else:
-        main(sys.argv[1], sys.argv[2])
+        skip = len(sys.argv) == 4 and sys.argv[3] == "--skip-existing"
+        main(sys.argv[1], sys.argv[2], skip_existing=skip)

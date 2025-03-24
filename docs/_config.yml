@@ -11,3 +11,6 @@ exclude:
 - docs/translations/n4886hw/data.json
 - docs/translations/n4886hw/en
 - docs/translations/n4886hw/jp
+- docs/translations/n7230gm/data.json
+- docs/translations/n7230gm/en
+- docs/translations/n7230gm/jp
