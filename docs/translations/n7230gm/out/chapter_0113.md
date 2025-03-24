@@ -1,7 +1,7 @@
 ###### [Next Chapter](./chapter_0114.md)
 ###### [Previous Chapter](./chapter_0112.md)&nbsp;/&nbsp;
 
-# １１０　堕ちた神、新たな世界
+# 110 Fallen God, New World
 
 ## １１０　堕ちた神、新たな世界
 
@@ -11,139 +11,139 @@
 
 &nbsp;
 
-#### 目を覚ますのとも少し違う。霧が晴れるように――という表現が正しいだろうか。
+#### It's a bit different from waking up. Is it correct to say it’s like the fog clearing?
 
 *目を覚ますのとも少し違う。霧が晴れるように――という表現が正しいだろうか。*
 
-#### ともかく、俺は新たな世界で意識を覚醒させた。
+#### In any case, I awakened my consciousness in a new world.
 
 *ともかく、俺は新たな世界で意識を覚醒させた。*
 
 &nbsp;
 
-#### ゲームを始める時のスタート地点ではないし、この世界に転生した時に訪れた王城でもない。どこにでもあるような草原だった。
+#### This isn’t the starting point when beginning a game, nor is it the royal castle I visited when I was reincarnated into this world. It was a grassy plain that could be found anywhere.
 
 *ゲームを始める時のスタート地点ではないし、この世界に転生した時に訪れた王城でもない。どこにでもあるような草原だった。*
 
-#### 大の字になって俺は空を見上げている。地球の田舎で空を見上げているように、小さな星がいくつも瞬いているのが見えていた。
+#### Lying flat, I looked up at the sky. Just like looking up at the sky in the countryside of Earth, I could see several small stars twinkling.
 
 *大の字になって俺は空を見上げている。地球の田舎で空を見上げているように、小さな星がいくつも瞬いているのが見えていた。*
 
 &nbsp;
 
-#### 「……そういえば時期のことは聞いたけど、転生先の時間帯も場所も聞いていなかったな」
+#### “……Speaking of which, I heard about the timing, but I didn’t ask about the time zone or location of my reincarnation.”
 
 *「……そういえば時期のことは聞いたけど、転生先の時間帯も場所も聞いていなかったな」*
 
 &nbsp;
 
-#### その体勢から身体を動かすこともなく、俺はぼんやりと呟く。
+#### Without moving my body from that position, I muttered absentmindedly.
 
 *その体勢から身体を動かすこともなく、俺はぼんやりと呟く。*
 
 &nbsp;
 
-#### 試しに何か目印になるような建物はないかと顔を右に倒してみたが、真っ暗で何も見えない。
+#### I tilted my face to the right to see if there was any building that could serve as a landmark, but it was pitch dark and I couldn’t see anything.
 
 *試しに何か目印になるような建物はないかと顔を右に倒してみたが、真っ暗で何も見えない。*
 
-#### 人目につかないようにというイデア様の配慮なのかもしれんが、ここどこだよ。せっかく世界を取り戻したっていうのに、迷子スタートとか嫌だぞ。街を見つけられずに野たれ死んだりしたら洒落にならん。
+#### It might be a consideration from Ideya-sama to avoid being seen, but where the hell am I? I just got my world back, and starting off lost is not what I want. It would be no joke if I died out here without finding a town.
 
 *人目につかないようにというイデア様の配慮なのかもしれんが、ここどこだよ。せっかく世界を取り戻したっていうのに、迷子スタートとか嫌だぞ。街を見つけられずに野たれ死んだりしたら洒落にならん。*
 
 &nbsp;
 
-#### 「インベントリの中身はそのままか……」
+#### “My inventory is still the same, huh…”
 
 *「インベントリの中身はそのままか……」*
 
 &nbsp;
 
-#### 寝転がったままウィンドウ画面でアイテムを確認してみると、ベノムを倒す直前と中身は一緒だった。
+#### As I lay there, I checked my items on the window screen, and the contents were the same as just before defeating Venom.
 
 *寝転がったままウィンドウ画面でアイテムを確認してみると、ベノムを倒す直前と中身は一緒だった。*
 
-#### よく見ると、身に着けていた装備品も全て新品同様に綺麗になっている。これはイデア様、もしくはノアがやってくれたのだろう。どうもありがとうございます。
+#### Upon closer inspection, all the equipment I was wearing was also as good as new. This must have been done by Ideya-sama or Noah. Thank you very much.
 
 *よく見ると、身に着けていた装備品も全て新品同様に綺麗になっている。これはイデア様、もしくはノアがやってくれたのだろう。どうもありがとうございます。*
 
 &nbsp;
 
-#### なんてことを考えていると、
+#### As I was thinking about such things,
 
 *なんてことを考えていると、*
 
 &nbsp;
 
-#### 「――礼にはおよばないよ。救世主君」
+#### “――There’s no need for thanks, Savior-kun.”
 
 *「――礼にはおよばないよ。救世主君」*
 
 &nbsp;
 
-#### 唐突に、何の前触れもなく。
+#### Suddenly, without any warning.
 
 *唐突に、何の前触れもなく。*
 
-#### ここ最近、鬱陶しいぐらいにずっと聞き続けてきた声が聞こえてきた。
+#### I heard the voice that I had been hearing incessantly lately, to the point of annoyance.
 
 *ここ最近、鬱陶しいぐらいにずっと聞き続けてきた声が聞こえてきた。*
 
 &nbsp;
 
-#### 声がする方向――真上を見上げると、逆さまになった顔があった。反対を向いているからわかりにくいが、おそらく笑顔だ。俺の頭の側に立って、こちらを見下ろしている。
+#### Looking in the direction of the voice――when I looked up, there was an upside-down face. It was hard to tell because it was facing the other way, but it was probably smiling. Standing next to my head, it was looking down at me.
 
 *声がする方向――真上を見上げると、逆さまになった顔があった。反対を向いているからわかりにくいが、おそらく笑顔だ。俺の頭の側に立って、こちらを見下ろしている。*
 
 &nbsp;
 
-#### 「そう簡単に神様がこっちに姿を現していいのかよ……というかその呼び方止めろ」
+#### “Is it really okay for a god to just show up here so easily? …And stop calling me that.”
 
 *「そう簡単に神様がこっちに姿を現していいのかよ……というかその呼び方止めろ」*
 
 &nbsp;
 
-#### 「勇者のほうが良かったかい？」
+#### “Would you prefer ‘Hero’ instead?”
 
 *「勇者のほうが良かったかい？」*
 
 &nbsp;
 
-#### 「それも止めてくれ。普通にＳＲで良いだろ」
+#### “Please stop that too. Just call me Esuar normally.”
 
 *「それも止めてくれ。普通にＳＲで良いだろ」*
 
 &nbsp;
 
-#### 「あははっ、冗談だよ。ＳＲ君」
+#### “Ahaha, I was just joking. Esuar-kun.”
 
 *「あははっ、冗談だよ。ＳＲ君」*
 
 &nbsp;
 
-#### それはもうニコニコと、ノアは満面の笑みで言った。
+#### With a big smile, Noah said cheerfully.
 
 *それはもうニコニコと、ノアは満面の笑みで言った。*
 
 &nbsp;
 
-#### 俺と二人きりになった何もない世界でも彼女は笑顔を見せていたが、改めて彼女の笑った顔を見ると、あの時の笑顔は無理をしていたんだろうな――ということがわかる。
+#### Even in this empty world where it was just the two of us, she was showing her smile, but seeing her smile again made me realize that the smile she had back then was probably forced.
 
 *俺と二人きりになった何もない世界でも彼女は笑顔を見せていたが、改めて彼女の笑った顔を見ると、あの時の笑顔は無理をしていたんだろうな――ということがわかる。*
 
-#### ベノムによって変色していた肌も、すっかり綺麗になっているみたいだ。
+#### Her skin, which had been discolored by Venom, seemed to be completely beautiful again.
 
 *ベノムによって変色していた肌も、すっかり綺麗になっているみたいだ。*
 
 &nbsp;
 
-#### 服装も少し雰囲気が変わっていて、以前着ていたようなドレスや羽衣ではなく、タータンチェックのスカートにシャツという――なんというかシンプルで、全くもって神様っぽくない。
+#### Her outfit had also changed a bit, and instead of the dress or feathered clothing she used to wear, she was now in a tartan check skirt and a shirt――it was simple and didn’t look godlike at all.
 
 *服装も少し雰囲気が変わっていて、以前着ていたようなドレスや羽衣ではなく、タータンチェックのスカートにシャツという――なんというかシンプルで、全くもって神様っぽくない。*
 
 &nbsp;
 
-#### 彼女の服装がどう変わろうが『お好きにどうぞ』って感じなのだが、現時点では少し問題がある。
+#### No matter how her outfit changed, it felt like “do as you please,” but there was a slight problem at this point.
 
 *彼女の服装がどう変わろうが『お好きにどうぞ』って感じなのだが、現時点では少し問題がある。*
 
@@ -151,7 +151,7 @@
 
 &nbsp;
 
-#### 簡単に言うと、パンツが――丸見えである。
+#### To put it simply, her panties were――completely visible.
 
 *簡単に言うと、パンツが――丸見えである。*
 
@@ -159,491 +159,491 @@
 
 &nbsp;
 
-#### 体型に合わせたのか、服装は見た目の年齢相応だ。しかしパンツは黒のレース地で、透け具合の濃淡によって花柄が描かれており、縁には少しだけヒラヒラしたものが付いている。クマさんパンツぐらいにしとけよ。
+#### It seemed that her outfit was age-appropriate for her body type. However, the panties were black lace, with floral patterns drawn in varying shades of transparency, and the edges had a slight frill. She should have at least worn something like bear-patterned panties.
 
 *体型に合わせたのか、服装は見た目の年齢相応だ。しかしパンツは黒のレース地で、透け具合の濃淡によって花柄が描かれており、縁には少しだけヒラヒラしたものが付いている。クマさんパンツぐらいにしとけよ。*
 
 &nbsp;
 
-#### それに神様とはいえ、女の子の姿をしているのだから多少は恥じらいをもってもらいたいものだ。
+#### And even though she is a god, I would like her to have a bit of modesty since she is in the form of a girl.
 
 *それに神様とはいえ、女の子の姿をしているのだから多少は恥じらいをもってもらいたいものだ。*
 
 &nbsp;
 
-#### 「――ってなにジロジロ見てるのさっ！　ＳＲ君のエッチっ！」
+#### “――What are you staring at! Esuar-kun, you pervert!”
 
 *「――ってなにジロジロ見てるのさっ！　ＳＲ君のエッチっ！」*
 
 &nbsp;
 
-#### 心の声を読んだのか――もしくは俺の視線に気づいたのか。ノアは顔を真っ赤にして両手でスカートを押さえると、俺から飛び退くように一歩距離をとった。
+#### Did she read my mind――or did she notice my gaze? Noah’s face turned bright red as she pressed her hands against her skirt and took a step back from me.
 
 *心の声を読んだのか――もしくは俺の視線に気づいたのか。ノアは顔を真っ赤にして両手でスカートを押さえると、俺から飛び退くように一歩距離をとった。*
 
 &nbsp;
 
-#### 「お前がそこに立ってるのが悪いんだろ。ガキに興味はないから安心しろ」
+#### “It’s your fault for standing there. Don’t worry, I’m not interested in kids.”
 
 *「お前がそこに立ってるのが悪いんだろ。ガキに興味はないから安心しろ」*
 
 &nbsp;
 
-#### 「僕は君たち人間よりはるかに年上だよっ！」
+#### “I’m far older than you humans!”
 
 *「僕は君たち人間よりはるかに年上だよっ！」*
 
 &nbsp;
 
-#### 「じゃあオバサンだな」
+#### “Then you’re an old lady.”
 
 *「じゃあオバサンだな」*
 
 &nbsp;
 
-#### 「この体は１２歳だもんっ！」
+#### “This body is twelve years old!”
 
 *「この体は１２歳だもんっ！」*
 
 &nbsp;
 
-#### 「じゃあやっぱりガキだな」
+#### “Then you’re still a kid.”
 
 *「じゃあやっぱりガキだな」*
 
 &nbsp;
 
-#### 俺の返答に対して、ノアは頬を膨らませて不満を前面に押し出したような表情になる。
+#### In response to my reply, Noah puffed out her cheeks, showing her dissatisfaction.
 
 *俺の返答に対して、ノアは頬を膨らませて不満を前面に押し出したような表情になる。*
 
-#### 随分と表情に変化が出るようになったもんだ。よきかなよきかな。
+#### She has really started to show a lot of expression. How nice, how nice.
 
 *随分と表情に変化が出るようになったもんだ。よきかなよきかな。*
 
 &nbsp;
 
-#### 全然よくないっ！　と反論するノアを適当にあしらいつつ、上半身を起こした。
+#### Not nice at all! Noah protested, and I casually brushed her off as I sat up.
 
 *全然よくないっ！　と反論するノアを適当にあしらいつつ、上半身を起こした。*
 
-#### それから改めて周囲を見渡してみると、遠くのほうにダンジョンを二つ見つけた。それに加えて、わりと近い位置に一軒の家が見える。
+#### Then, as I looked around again, I spotted two dungeons in the distance. Additionally, I could see a house relatively close by.
 
 *それから改めて周囲を見渡してみると、遠くのほうにダンジョンを二つ見つけた。それに加えて、わりと近い位置に一軒の家が見える。*
 
 &nbsp;
 
-#### 窓からオレンジ色の光が漏れ出しているから、人がいることは確かだろう。
+#### Since orange light was leaking from the window, it was certain that there were people inside.
 
 *窓からオレンジ色の光が漏れ出しているから、人がいることは確かだろう。*
 
 &nbsp;
 
-#### 「…………ん？　ここって……」
+#### “…………Huh? Is this place……?”
 
 *「…………ん？　ここって……」*
 
 &nbsp;
 
-#### よくよく見ると、このダンジョンの配置――そして家。とても見覚えがある。
+#### Upon closer inspection, the layout of these dungeons――and the house. It looked very familiar.
 
 *よくよく見ると、このダンジョンの配置――そして家。とても見覚えがある。*
 
-#### 似ているだけ――という可能性も無くはないが、九割九分九厘、この場所はレーナスの近くであり、見えているダンジョンはＢランクダンジョンとＡランクダンジョンだ。
+#### It’s possible that it’s just similar――but nine times out of ten, this place is near Renas, and the dungeons in sight are a B-rank dungeon and an A-rank dungeon.
 
 *似ているだけ――という可能性も無くはないが、九割九分九厘、この場所はレーナスの近くであり、見えているダンジョンはＢランクダンジョンとＡランクダンジョンだ。*
 
 &nbsp;
 
-#### しかし、世界は俺が召喚されていない頃に一度巻き戻されたはずなのに、なぜあの位置に家が建っているんだ？
+#### However, the world should have been rolled back to before I was summoned, so why is there a house built in that location?
 
 *しかし、世界は俺が召喚されていない頃に一度巻き戻されたはずなのに、なぜあの位置に家が建っているんだ？*
 
-#### もしかして俺と同じような考えをする奴が現れて、家を建てたのだろうか？
+#### Could it be that someone with thoughts similar to mine appeared and built a house?
 
 *もしかして俺と同じような考えをする奴が現れて、家を建てたのだろうか？*
 
 &nbsp;
 
-#### 頭に疑問符を浮かべながらじっと家のある方角を眺めていると、ノアが自慢げに胸を張った。
+#### As I stared intently in the direction of the house, a proud Noah puffed out her chest.
 
 *頭に疑問符を浮かべながらじっと家のある方角を眺めていると、ノアが自慢げに胸を張った。*
 
 &nbsp;
 
-#### 「あれは僕の家だよ」
+#### “That’s my house.”
 
 *「あれは僕の家だよ」*
 
 &nbsp;
 
-#### ……は？
+#### ……Huh?
 
 *……は？*
 
 &nbsp;
 
-#### 「いやいや、それはおかしいだろ。なんで神のお前が地上に家を建ててるんだ」
+#### “No, no, that’s strange. Why is a god like you building a house on the surface?”
 
 *「いやいや、それはおかしいだろ。なんで神のお前が地上に家を建ててるんだ」*
 
 &nbsp;
 
-#### 「僕、しばらくこっちで暮らすことにしたんだ。イデア様から何も聞いてない？」
+#### “I decided to live here for a while. Didn’t Ideya-sama tell you anything?”
 
 *「僕、しばらくこっちで暮らすことにしたんだ。イデア様から何も聞いてない？」*
 
 &nbsp;
 
-#### 「ん？　あー、そういえばイデア様がしばらくこの世界を管理するって話だったか」
+#### “Hmm? Ah, now that you mention it, Ideya-sama did say she would manage this world for a while.”
 
 *「ん？　あー、そういえばイデア様がしばらくこの世界を管理するって話だったか」*
 
 &nbsp;
 
-#### ノアの療養期間みたいなものだろうか？　知らんけど。
+#### Could it be like Noah’s recovery period? I don’t know.
 
 *ノアの療養期間みたいなものだろうか？　知らんけど。*
 
 &nbsp;
 
-#### 「それで無職になったお前はこれからどうするんだ？」
+#### “So what are you going to do now that you’re unemployed?”
 
 *「それで無職になったお前はこれからどうするんだ？」*
 
 &nbsp;
 
-#### 「無職とか言わないでよ！！　こっちで暮らすって言ったじゃないか」
+#### “Don’t call me unemployed!! I said I would live here!”
 
 *「無職とか言わないでよ！！　こっちで暮らすって言ったじゃないか」*
 
 &nbsp;
 
-#### 「こっちって――俺たち人間みたいにってことか？」
+#### “Live here――like us humans?”
 
 *「こっちって――俺たち人間みたいにってことか？」*
 
 &nbsp;
 
-#### 「そうだよ。もう１年ぐらい過ごしているけど、案外人間の生活も楽しいね」
+#### “Yeah. I’ve been living here for about a year, and surprisingly, human life is fun.”
 
 *「そうだよ。もう１年ぐらい過ごしているけど、案外人間の生活も楽しいね」*
 
 &nbsp;
 
-#### 楽しそうに身体を揺らしながらノアが言う。
+#### Noah said, shaking her body cheerfully.
 
 *楽しそうに身体を揺らしながらノアが言う。*
 
-#### そういえば、この新たな世界はすでに一年の月日が流れてるんだっけ。
+#### Come to think of it, a year has already passed in this new world.
 
 *そういえば、この新たな世界はすでに一年の月日が流れてるんだっけ。*
 
 &nbsp;
 
-#### 早くセラやフェノン、迅雷の軌跡たちに会いたいが今日は時間も遅い。
+#### I want to see Sera, Phenon, and the others from the Lightning Trail soon, but it’s already late today.
 
 *早くセラやフェノン、迅雷の軌跡たちに会いたいが今日は時間も遅い。*
 
-#### 今日のところはひとまず寝て、これからのことはまた明日考えようか。生まれ変わったこの世界のこととか、ノアに聞きたいこともあるし。
+#### For now, I should sleep and think about what comes next tomorrow. There are things I want to ask Noah about this reborn world too.
 
 *今日のところはひとまず寝て、これからのことはまた明日考えようか。生まれ変わったこの世界のこととか、ノアに聞きたいこともあるし。*
 
 &nbsp;
 
-#### 「というわけであの家で寝させてくれ。今から街で宿に泊まるのは面倒くさい」
+#### “So let me sleep in that house. It’s a hassle to stay at an inn in town right now.”
 
 *「というわけであの家で寝させてくれ。今から街で宿に泊まるのは面倒くさい」*
 
 &nbsp;
 
-#### 「言い方が横暴だなぁ……もちろん君の部屋は用意してあるけどさ」
+#### “That’s a bit rude…… but of course, your room is ready.”
 
 *「言い方が横暴だなぁ……もちろん君の部屋は用意してあるけどさ」*
 
 &nbsp;
 
-#### なんだ、最初からそのつもりだったのか。それなら先にそう言ってくれたらよかったのに。
+#### Oh, so that was your intention from the start. You should have said that earlier.
 
 *なんだ、最初からそのつもりだったのか。それなら先にそう言ってくれたらよかったのに。*
 
-#### 立ち上がり家に向かって歩き出すと、ノアは唇をとがらせながらも俺の隣にやってきた。しかしその表情は、すぐに楽しげなモノに変わる。
+#### As I stood up and started walking toward the house, Noah came beside me, pouting her lips. However, that expression quickly changed to one of joy.
 
 *立ち上がり家に向かって歩き出すと、ノアは唇をとがらせながらも俺の隣にやってきた。しかしその表情は、すぐに楽しげなモノに変わる。*
 
 &nbsp;
 
-#### 「ステータスはもう確認したかい？」
+#### “Have you checked your status yet?”
 
 *「ステータスはもう確認したかい？」*
 
 &nbsp;
 
-#### 斜め下から俺の顔を覗き込みながら、ノアが問いかけてくる。
+#### Peering up at my face from a diagonal angle, Noah asked.
 
 *斜め下から俺の顔を覗き込みながら、ノアが問いかけてくる。*
 
 &nbsp;
 
-#### 「ん？　何か変わってるのか？　――って……マジか」
+#### “Huh? Has something changed? ―Wait… seriously?”
 
 *「ん？　何か変わってるのか？　――って……マジか」*
 
 &nbsp;
 
-#### 思わず、歩みを止めてしまう。
+#### I involuntarily stopped in my tracks.
 
 *思わず、歩みを止めてしまう。*
 
-#### 宙に表示されたステータスには、『レベル１』、それから『職業未選択』の文字列が並んでいる。
+#### The status displayed in the air showed “Level 1,” followed by the words “Job Not Selected.”
 
 *宙に表示されたステータスには、『レベル１』、それから『職業未選択』の文字列が並んでいる。*
 
 &nbsp;
 
-#### えぇ……もしかしてまた最初からやり直し？　レベル上げが好きとはいえ、三回目ともなるとさすがに面倒なんだが。
+#### What the…… Am I starting over again? I do like leveling up, but by the third time, it’s starting to get tedious.
 
 *えぇ……もしかしてまた最初からやり直し？　レベル上げが好きとはいえ、三回目ともなるとさすがに面倒なんだが。*
 
 &nbsp;
 
-#### 「一時的に無職になっているだけだから安心して。職業を表示してごらん」
+#### “Don’t worry, you’re just temporarily unemployed. Try displaying your job.”
 
 *「一時的に無職になっているだけだから安心して。職業を表示してごらん」*
 
 &nbsp;
 
-#### 顔を引き攣らせたまま、ノアに言われた通り職業の欄をタッチ。
+#### With my face still twitching, I touched the job section as Noah instructed.
 
 *顔を引き攣らせたまま、ノアに言われた通り職業の欄をタッチ。*
 
-#### すると、最初からデフォルトで表示される一次職はもちろん、二次職、派生二次職、三次職が表示されていた。
+#### Then, of course, the primary jobs that are displayed by default from the start, as well as secondary jobs, derived secondary jobs, and tertiary jobs were shown.
 
 *すると、最初からデフォルトで表示される一次職はもちろん、二次職、派生二次職、三次職が表示されていた。*
 
 &nbsp;
 
-#### しかも、表示されている職業はそれだけではない。
+#### Moreover, the displayed jobs were not limited to just those.
 
 *しかも、表示されている職業はそれだけではない。*
 
 &nbsp;
 
-#### 「……覇王、か」
+#### “……Overlord, huh.”
 
 *「……覇王、か」*
 
 &nbsp;
 
-#### 三次職よりもさらに下に、幻の四次職と言われていた『覇王』の文字が浮かんでいる。
+#### Below the tertiary jobs, the words “Overlord,” said to be the elusive fourth job, floated into view.
 
 *三次職よりもさらに下に、幻の四次職と言われていた『覇王』の文字が浮かんでいる。*
 
-#### ゲームでベノムを倒してから数年――ようやく念願の職業に就けるようになったってわけか。
+#### After defeating Venom in the game a few years ago――I can finally get the job I’ve longed for.
 
 *ゲームでベノムを倒してから数年――ようやく念願の職業に就けるようになったってわけか。*
 
 &nbsp;
 
-#### 「この世界――特に名前は付けていないから僕は単純に『VR世界』と呼んでいるけど、VR世界でただ一人、君だけの特別な職業だ。本当は全ての職業をレベル最大にする必要があるけど、今回は特別だね」
+#### “This world――I haven’t given it a specific name, so I simply call it the ‘VR World,’ but it’s a special job just for you, the only one in the VR World. Normally, you would need to max out all jobs, but this time it’s special.”
 
 *「この世界――特に名前は付けていないから僕は単純に『VR世界』と呼んでいるけど、VR世界でただ一人、君だけの特別な職業だ。本当は全ての職業をレベル最大にする必要があるけど、今回は特別だね」*
 
 &nbsp;
 
-#### 「世界の名前ぐらい決めとけよ……。というか俺だけの職業って、それズルくないか？」
+#### “Couldn’t you at least decide on a name for the world? …And isn’t it unfair that it’s a job just for me?”
 
 *「世界の名前ぐらい決めとけよ……。というか俺だけの職業って、それズルくないか？」*
 
 &nbsp;
 
-#### 全く知らない世界ならまだしも、このテンペストを模した世界でのチートは俺の望むところではないんだが。
+#### If it were a completely unknown world, that would be one thing, but cheating in a world modeled after Tempest is not what I want.
 
 *全く知らない世界ならまだしも、このテンペストを模した世界でのチートは俺の望むところではないんだが。*
 
 &nbsp;
 
-#### 「転職できないってわけじゃないよ。君を倒すことができれば、覇王に転職できるようになる」
+#### “It’s not that you can’t change jobs. If you can defeat me, you’ll be able to change to Overlord.”
 
 *「転職できないってわけじゃないよ。君を倒すことができれば、覇王に転職できるようになる」*
 
 &nbsp;
 
-#### 「ベノムポジションじゃねぇか、俺」
+#### “I’m in the Venom position, huh.”
 
 *「ベノムポジションじゃねぇか、俺」*
 
 &nbsp;
 
-#### 「はははっ、似たようなモノかもね」
+#### “Hahaha, it might be something similar.”
 
 *「はははっ、似たようなモノかもね」*
 
 &nbsp;
 
-#### げんなりとする俺を見て、ノアが楽しそうに笑う。
+#### Seeing me look dejected, Noah laughed happily.
 
 *げんなりとする俺を見て、ノアが楽しそうに笑う。*
 
 &nbsp;
 
-#### そんな話をしていると、いつの間にか家の前にまで辿り着いていた。
+#### As we were talking, we had somehow arrived in front of the house.
 
 *そんな話をしていると、いつの間にか家の前にまで辿り着いていた。*
 
-#### ノアが特に何も言ってこないので、俺は自分の家に帰る時と同じ気持ちで玄関扉を開く。
+#### Since Noah didn’t say anything in particular, I opened the front door with the same feeling I had when returning to my own house.
 
 *ノアが特に何も言ってこないので、俺は自分の家に帰る時と同じ気持ちで玄関扉を開く。*
 
 &nbsp;
 
-#### すると何故か、家の中からパタパタという足音が聞こえてきた。その足音は、徐々に大きくなってきている。
+#### Then, for some reason, I heard the sound of pattering footsteps coming from inside the house. The footsteps were gradually getting louder.
 
 *すると何故か、家の中からパタパタという足音が聞こえてきた。その足音は、徐々に大きくなってきている。*
 
 &nbsp;
 
-#### 「え？」
+#### “Eh?”
 
 *「え？」*
 
 &nbsp;
 
-#### 慌てて隣にいるノアを見ると、彼女は口元を押さえて笑っている。
+#### In a panic, I looked at Noah beside me, and she was covering her mouth and laughing.
 
 *慌てて隣にいるノアを見ると、彼女は口元を押さえて笑っている。*
 
-#### 俺と目が合うと、彼女は笑いを堪えながら口を開いた。
+#### When our eyes met, she opened her mouth while trying to hold back her laughter.
 
 *俺と目が合うと、彼女は笑いを堪えながら口を開いた。*
 
 &nbsp;
 
-#### 「さっき『僕の家』って言ったけど、正確には『僕らの家』なんだよね」
+#### “I said ‘my house’ earlier, but to be precise, it’s ‘our house.’”
 
 *「さっき『僕の家』って言ったけど、正確には『僕らの家』なんだよね」*
 
 &nbsp;
 
-#### 「はぁ！？　聞いてないぞっ！？　いったいどういう――」
+#### “Huh!? You didn’t tell me that!? What the hell――”
 
 *「はぁ！？　聞いてないぞっ！？　いったいどういう――」*
 
 &nbsp;
 
-#### 続きの言葉を口にしようとしたが、それはできなかった。思考が、感情が、まったくもって現状に追いついていない。
+#### I tried to continue my words, but I couldn’t. My thoughts and emotions were completely unable to keep up with the situation.
 
 *続きの言葉を口にしようとしたが、それはできなかった。思考が、感情が、まったくもって現状に追いついていない。*
 
-#### それは家の中から現れた人物が、俺が会いたいと何度も何度も願っていた人物だったからだ。
+#### That was because the person who appeared from inside the house was someone I had wished to meet over and over again.
 
 *それは家の中から現れた人物が、俺が会いたいと何度も何度も願っていた人物だったからだ。*
 
 &nbsp;
 
-#### セラ＝ベルノート。
+#### Sera Bernot.
 
 *セラ＝ベルノート。*
 
-#### 俺のことを忘れてしまった、大切な人。
+#### The important person who had forgotten about me.
 
 *俺のことを忘れてしまった、大切な人。*
 
 &nbsp;
 
-#### 身につけている部屋着は以前見ていたものと変わらない。
+#### The loungewear she was wearing looked just like what I had seen before.
 
 *身につけている部屋着は以前見ていたものと変わらない。*
 
-#### 彼女はポカンとした表情で、俺のことをじっと見ている。どこかアホっぽく見えてしまうその表情が、とても愛おしい。
+#### She was staring at me with a blank expression. That somewhat foolish-looking expression was incredibly endearing.
 
 *彼女はポカンとした表情で、俺のことをじっと見ている。どこかアホっぽく見えてしまうその表情が、とても愛おしい。*
 
 &nbsp;
 
-#### だが、今の彼女にとって俺は赤の他人だ。感傷に浸って泣き出しでもすれば、怪しい人物に認定されかねない。
+#### However, to her now, I was a complete stranger. If I were to get sentimental and start crying, I might be labeled as a suspicious person.
 
 *だが、今の彼女にとって俺は赤の他人だ。感傷に浸って泣き出しでもすれば、怪しい人物に認定されかねない。*
 
 &nbsp;
 
-#### 「えっと、夜分にいきなりすみません」
+#### “Um, I’m sorry for coming in suddenly at night.”
 
 *「えっと、夜分にいきなりすみません」*
 
 &nbsp;
 
-#### 心の準備はずっとまえに完了していたつもりなのに、やはり悲しい。
+#### I thought I had prepared my heart long ago, but it was still sad.
 
 *心の準備はずっとまえに完了していたつもりなのに、やはり悲しい。*
 
-#### 丁寧な言葉を使うと、彼女と俺の間に壁ができたように感じられる。
+#### Using polite language made it feel like a wall had been built between her and me.
 
 *丁寧な言葉を使うと、彼女と俺の間に壁ができたように感じられる。*
 
 &nbsp;
 
-#### 「俺はノアの知り合いでして、外でバッタリ「エスアールっ！！」」
+#### “I’m an acquaintance of Noah, and I just happened to—‘Esuar!!’”
 
 *「俺はノアの知り合いでして、外でバッタリ「エスアールっ！！」」*
 
 &nbsp;
 
-#### 話している最中、正面からいきなり抱きつかれた。
+#### While I was talking, I was suddenly hugged from the front.
 
 *話している最中、正面からいきなり抱きつかれた。*
 
-#### あまりの勢いに身体が倒れそうになるが、なんとか踏ん張って体勢を保つ。
+#### The force was so strong that I almost fell over, but I managed to brace myself and maintain my stance.
 
 *あまりの勢いに身体が倒れそうになるが、なんとか踏ん張って体勢を保つ。*
 
 &nbsp;
 
-#### 「……はい？」
+#### “……Huh?”
 
 *「……はい？」*
 
 &nbsp;
 
-#### え、何してんのこの子？
+#### What is this girl doing?
 
 *え、何してんのこの子？*
 
-#### 見ず知らずの人にいきなり抱きつくような性格じゃなかったと思うんですけどっ！？　一年の間に何が起こった！？
+#### I didn’t think she had a personality that would suddenly hug a stranger!? What happened during that year!?
 
 *見ず知らずの人にいきなり抱きつくような性格じゃなかったと思うんですけどっ！？　一年の間に何が起こった！？*
 
 &nbsp;
 
-#### パニックパニック！
+#### Panic panic!
 
 *パニックパニック！*
 
-#### 思考回路エラーエラー！
+#### Thought process error error!
 
 *思考回路エラーエラー！*
 
 &nbsp;
 
-#### 柔らかな女性特有の感触が俺の身体を包み、甘い匂いが彼女の首元から香ってくる。彼女は俺の背に手を回し、ギュッと強く俺の服を握りしめているようだった。
+#### The soft, feminine sensation enveloped my body, and a sweet scent wafted from her neck. She wrapped her arms around my back and seemed to be gripping my clothes tightly.
 
 *柔らかな女性特有の感触が俺の身体を包み、甘い匂いが彼女の首元から香ってくる。彼女は俺の背に手を回し、ギュッと強く俺の服を握りしめているようだった。*
 
 &nbsp;
 
-#### マジで意味がわからん。どういうことだよこの状況――って……あれ？
+#### I seriously don’t understand. What is going on in this situation――wait… huh?
 
 *マジで意味がわからん。どういうことだよこの状況――って……あれ？*
 
 &nbsp;
 
-#### …………ん？
+#### …………Huh?
 
 *…………ん？*
 
 &nbsp;
 
-#### ………………んん？
+#### ………………Huh?
 
 *………………んん？*
 
@@ -651,7 +651,7 @@
 
 &nbsp;
 
-#### さっきセラ、俺の名前を呼ばなかったか？
+#### Didn’t Sera just call my name?
 
 *さっきセラ、俺の名前を呼ばなかったか？*
 
@@ -665,21 +665,21 @@
 
 ----------------
 
-#### お読みいただきありがとうございます┏○ペコッ
+#### Thank you for reading┏○ペコッ
 
 *お読みいただきありがとうございます┏○ペコッ*
 
 &nbsp;
 
-#### 広告の下にある☆☆☆☆☆をタッチすると、作者が元気になります。
+#### If you tap the ☆☆☆☆☆ below the advertisement, the author will feel energized.
 
 *広告の下にある☆☆☆☆☆をタッチすると、作者が元気になります。*
 
-#### この物語を『面白い』、『続きが気になる』と思っていただけたら、
+#### If you think this story is “interesting” or “I want to know what happens next,”
 
 *この物語を『面白い』、『続きが気になる』と思っていただけたら、*
 
-#### 私は星が色づくほど元気になりますので、ご協力お願いします┏○ペコッ
+#### I will feel energized enough for the stars to change color, so please cooperate┏○ペコッ
 
 *私は星が色づくほど元気になりますので、ご協力お願いします┏○ペコッ*
 
