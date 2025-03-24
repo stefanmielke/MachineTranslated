@@ -292,11 +292,15 @@ A magic archer from an archer and a magic user.
 
 <b>
 
-Derived secondary classes do not change in status compared to regular secondary classes, nor does the level cap of 80 change. So why is the difficulty of changing classes higher than that of regular secondary classes? The reason lies in the skills.
+Derived second-tier classes don’t differ from regular second-tier classes in terms of stats, nor in their level cap, which remains at 80. So why is changing into a derived class more difficult than a normal second-tier class? The reason lies in the skills.
 
 <b>
 
-For a secondary class like a swordsman, only the swordsman's skills can be inherited, but for the derived secondary class of martial swordsman, both the swordsman's and the brawler's skills can be used.
+Second-tier classes, derived second-tier classes, third-tier classes, and the Overlord class—these all allow you to carry over the skills you learned in connected classes.
+
+<b>
+
+For example, the second-tier class Swordmaster can only inherit skills from the Swordsman class. But the derived second-tier class Martial Swordfighter can use skills not only from Swordsman, but also from Pugilist.
 
 <b>
 
