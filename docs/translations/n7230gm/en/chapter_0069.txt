@@ -76,11 +76,11 @@ In other words, a midpoint between an A-rank dungeon and a B-rank dungeon would 
 
 <b>
 
-"Then we should check with Duke Margus. I assume SR wants to build outside the city?"
+"Then we should check with Duke Margus. I assume Esuar wants to build outside the city?"
 
 <b>
 
-"Does SR prefer a quieter place?"
+"Does Esuar prefer a quieter place?"
 
 <b>
 
@@ -100,7 +100,7 @@ Upon hearing my words, Shiri forced a strained smile.
 
 <b>
 
-"So SR is dungeon-oriented, huh..."
+"So Esuar is dungeon-oriented, huh..."
 
 <b>
 
@@ -108,7 +108,7 @@ Upon hearing my words, Shiri forced a strained smile.
 
 <b>
 
-"That may be true, but I think there are few people who are as completely detached as SR. Moreover, explorers earn money by delivering drop items to the guild."
+"That may be true, but I think there are few people who are as completely detached as Esuar. Moreover, explorers earn money by delivering drop items to the guild."
 
 <b>
 
@@ -146,7 +146,7 @@ It's a relative's house, so maybe it's okay to say that.
 
 <b>
 
-"Of course! Since SR has been helping me in the dungeon, I will do my best here!"
+"Of course! Since Esuar has been helping me in the dungeon, I will do my best here!"
 
 <b>
 
@@ -166,7 +166,7 @@ I stopped in front of a shop that sold wooden accessories. I was just looking fr
 
 <b>
 
-"Do you like wooden carvings, SR?"
+"Do you like wooden carvings, Esuar?"
 
 <b>
 

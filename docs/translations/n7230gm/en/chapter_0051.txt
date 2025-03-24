@@ -40,7 +40,7 @@ Please stop, as the townspeople are murmuring.
 
 <b>
 
-"If Lord SR wishes, you are welcome to come anytime. We will welcome you."
+"If Lord Esuar wishes, you are welcome to come anytime. We will welcome you."
 
 <b>
 
@@ -54,7 +54,7 @@ Unlike a month ago, that hand is not a fake but a real one with warmth.
 
 <b>
 
-"Thanks to you, Lord SR. I vow to never forget this debt for my lifetime."
+"Thanks to you, Lord Esuar. I vow to never forget this debt for my lifetime."
 
 <b>
 
@@ -202,7 +202,7 @@ The effort I put in is a fact—I'm not lying.
 
 <b>
 
-"Well, you still can't compare to Lord SR."
+"Well, you still can't compare to Lord Esuar."
 
 <b>
 

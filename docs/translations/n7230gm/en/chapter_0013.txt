@@ -20,7 +20,7 @@ I was able to raise the levels of these five professions to exactly level 30 ove
 
 <b>
 
-"First of all, this is a penalty for me. You don't need to thank me, SR."
+"First of all, this is a penalty for me. You don't need to thank me, Esuar."
 
 <b>
 
@@ -186,7 +186,7 @@ And then, silence again.
 
 <b>
 
-"Are you going to the dungeon again from the morning tomorrow, SR?"
+"Are you going to the dungeon again from the morning tomorrow, Esuar?"
 
 <b>
 
@@ -206,7 +206,7 @@ Upon hearing that, she widened her eyes a bit and let out a sigh as if exasperat
 
 <b>
 
-"I see. If it's you, SR, you might actually be able to conquer the C-rank dungeon."
+"I see. If it's you, Esuar, you might actually be able to conquer the C-rank dungeon."
 
 <b>
 
@@ -326,7 +326,7 @@ I think about the player bonus I gained from the five primary classes and the st
 
 <b>
 
-Name: SR
+Name: Esuar
 
 Age: 18
 

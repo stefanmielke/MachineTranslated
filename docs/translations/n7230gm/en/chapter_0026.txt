@@ -50,7 +50,7 @@ Usually, when I return from the dungeon, the reception area is dark, but for som
 
 <b>
 
-"SR! Show me your arm right now!"
+"Esuar! Show me your arm right now!"
 
 <b>
 
@@ -124,7 +124,7 @@ I wouldn’t say I was on the verge of death even with bare hands. After all, I 
 
 <b>
 
-"I felt like my heart was about to stop multiple times. SR's dodging is not something you can watch calmly."
+"I felt like my heart was about to stop multiple times. Esuar's dodging is not something you can watch calmly."
 
 <b>
 
@@ -238,7 +238,7 @@ After a while of celebration, Dino opened his mouth.
 
 <b>
 
-"You’ve done well, SR, Sera Bernot, and Thunderbolt's Trail. I’m sorry to bother you while you’re tired, but I need you to come to the royal castle right away."
+"You’ve done well, Esuar, Sera Bernot, and Thunderbolt's Trail. I’m sorry to bother you while you’re tired, but I need you to come to the royal castle right away."
 
 <b>
 

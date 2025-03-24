@@ -72,7 +72,7 @@ My level is low, but thanks to the player bonus, my stats are vastly different c
 
 <b>
 
-Name: SR
+Name: Esuar
 
 Age: 18
 
@@ -102,7 +102,7 @@ Well, I still spend my days slicing enemies with the red sword given to me by Du
 
 <b>
 
-"Lord SR, do you have any plans for tomorrow?"
+"Lord Esuar, do you have any plans for tomorrow?"
 
 <b>
 
@@ -122,7 +122,7 @@ Tomorrow is a day off for our party activities, so I had planned to lounge aroun
 
 <b>
 
-"It's not a big deal, but my father wants to talk to you, Lord SR, and he has cleared his schedule for tomorrow."
+"It's not a big deal, but my father wants to talk to you, Lord Esuar, and he has cleared his schedule for tomorrow."
 
 <b>
 
@@ -158,7 +158,7 @@ Wouldn't it have been fine to just ask me about the Thunderbolt Trail? I wonder 
 
 <b>
 
-"Um, SR?"
+"Um, Esuar?"
 
 <b>
 
@@ -196,7 +196,7 @@ When I asked, she frowned as if troubled.
 
 <b>
 
-"SR is not a bug! He is a proper human!"
+"Esuar is not a bug! He is a proper human!"
 
 <b>
 
@@ -208,7 +208,7 @@ Well, I am human! But that's not what I meant!
 
 <b>
 
-"Is that so? I-I-I don't have any such intentions, but if that were the case, with SR, it should be fine. After all, he has the endorsement of Fenon and His Majesty."
+"Is that so? I-I-I don't have any such intentions, but if that were the case, with Esuar, it should be fine. After all, he has the endorsement of Fenon and His Majesty."
 
 <b>
 
@@ -220,7 +220,7 @@ Watching my friend, who has gone a bit crazy, I chuckled as Fenon affirmed, "Tha
 
 <b>
 
-"If there are any complaints about Lord SR, even if it's the Count—"
+"If there are any complaints about Lord Esuar, even if it's the Count—"
 
 <b>
 
@@ -256,7 +256,7 @@ She shrank her neck as if tickled, looked into my eyes, and then gave me a puzzl
 
 <b>
 
-"Lord SR, you are also a power holder like Sera and the others, you know? Please be aware of that."
+"Lord Esuar, you are also a power holder like Sera and the others, you know? Please be aware of that."
 
 <b>
 
