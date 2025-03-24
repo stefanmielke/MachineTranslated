@@ -1,4 +1,4 @@
-# Aー１３０　ダンジョンハウスの購入
+# A-130 Purchase of the Dungeon House
 
 <b>
 
@@ -6,47 +6,47 @@
 
 <b>
 
-セラとフェノンとシリーの三人が死に体になりながらも奮闘している理由は、早く俺やクレセントたちの足手まといにならないようにしたいとのことだった。
+The reason why Sera, Fenon, and Shiri were struggling despite being on the verge of death was that they wanted to quickly avoid becoming a burden to me and Crescent.
 
 <b>
 
-別に彼女たちに付きあってのんびりするのも構わない――と言ってみたのだけど、どうやら今の俺は傍から見ればウキウキしているらしく、それを妨げることはしたくないとのことだった。
+I said it was fine to relax with them, but it seemed that I appeared to be in high spirits from the outside, and they didn't want to hinder that.
 
 <b>
 
-「まぁどうせ毎日家で会えるんだ。私たちは私たちで強くなるさ。それに、あのダンジョンでの敗北から二十四時間たてばまた戦いが始まる――それまでしっかり英気を養っておくことにする」
+"Well, we can meet at home every day anyway. We'll get stronger in our own way. Besides, once twenty-four hours pass after our defeat in that dungeon, the battles will start again—so let's make sure to recharge our spirits until then."
 
 <b>
 
-セラはぐっと握りこぶしに力を込めながら笑って見せた。
+Sera smiled while clenching her fist tightly.
 
-フェノンとシリーの二人も、「レベルがどんどん上がりますから、すぐに追いつけそうですよ」とか「距離が縮まってるって実感がありますので、頑張れます」とにこやかに笑っていた。
-
-<b>
-
-ただ、
+Fenon and Shiri also cheerfully smiled, saying things like, "Our levels are going up rapidly, so we should catch up soon," and "I can feel the distance closing, so I can keep pushing myself."
 
 <b>
 
-「え？　僕、２４時間後とか言ってないよね？　強くなりたいんでしょ？　ほら、もう朝の九時を過ぎてるんだから、早く行くよ。――どこってそりゃ、Ｓランクダンジョンに決まってるでしょ。まさかお兄ちゃんと一緒に戦いたいなんて言ってる人が、Ａランクに行くとか言わないよね？」
+However,
 
 <b>
 
-フラリと現れたノアがそう言うと、三人とも顔を引きつらせていたが。
+"Eh? I didn't say anything about twenty-four hours, did I? You want to get stronger, right? Come on, it's already past nine in the morning, so let's go quickly. —Where, you ask? Of course, it's the S-rank dungeon. There's no way someone who wants to fight alongside big brother would say they're going to an A-rank dungeon, right?"
 
 <b>
 
-だけど、セラもフェノンもシリーも誰も嫌がりはしていないようだった。体力的には苦しいが、精神は負けていないようだ。
+Noah, who appeared out of nowhere, said this, and all three of them made strained faces.
 
 <b>
 
-Ｓランクダンジョンと、イデア様が用意したダンジョンでレベル上げをしていれば、二次職と派生二次職のステータスボーナスぐらいはすぐに取れるだろうな。
+However, it seemed that Sera, Fenon, and Shiri were not opposed to it. They were physically struggling, but their spirits were not defeated.
 
 <b>
 
-そしてその状態で三次職のレベル上げをしてくれたら、もう十分に戦えるレベルになっているだろう。
+If they level up in the S-rank dungeon and the dungeon prepared by Lady Idea, they should be able to quickly obtain the status bonuses for secondary and derived secondary jobs.
 
-俺は彼女たちが息抜きできるように、ダンジョン内にある家を案内できるよう色々調査しておくことにしようかな。どちらにせよ、俺の興味はあの住居にあるので調べることになるんだけど。
+<b>
+
+And if they level up their third jobs in that state, they would already be at a level where they could fight sufficiently.
+
+I think I should investigate various things so that I can guide them to the house inside the dungeon for a breather. In any case, my interest lies in that residence, so I would end up researching it anyway.
 
 <b>
 
@@ -58,149 +58,57 @@
 
 <b>
 
-洞窟でコインを集めた日の翌日の昼。
+The day after collecting coins in the cave, in the afternoon.
 
-クレセントと翡翠が家にやってきたので、そのまま一緒にイデア様のダンジョンへ向かった。
-
-<b>
-
-「今日は家を買うんっスよね？　どれがいいとか決めてるんっスか？」
+Crescent and Jade came to the house, and we headed together to Lady Idea's dungeon.
 
 <b>
 
-「たしか全部で四十九棟ありましたよね。そういえば、価格の違いとかあるんでしょうか？」
+"Today we're buying a house, right? Have you decided which one you want?"
 
 <b>
 
-「それも確認しないとな。前はざっと見ただけだったし」
+"There were a total of forty-nine houses, right? By the way, are there price differences?"
 
 <b>
 
-三人でそんな風に話しながら、住宅地がある場所へ向かって歩を進める。家にたどり着くまでに魔物と数回遭遇したが、ボスモンスターではなかったのでただ倒しただけ。最初のような興奮はなく、作業的に倒すだけだった。
+"We need to check that too. Last time, I only took a quick look."
 
 <b>
 
-Ｓランクのモブよりは強いけど、俺たちにとっては脅威になりえない。Ｓランクのボスもこのダンジョンのボスも、俺たち三人はソロで倒せちゃうからなぁ。
+As the three of us talked like that, we walked towards the area where the residential houses were located. We encountered monsters a few times before reaching the houses, but since they weren't boss monsters, we just defeated them. There was no excitement like the first time; it was just a routine task.
 
 <b>
 
-「さて……じゃあひとまず手分けして価格を調査しようか」
+They were stronger than S-rank mobs, but they posed no threat to us. The S-rank boss and the boss of this dungeon could both be defeated solo by the three of us.
 
 <b>
 
-ざっと見た感じ、住居の大きさはどれも一軒家サイズで、日本で見る一般家庭の物よりは少し大きいぐらいだ。しかし豪邸というほど大きすぎることもなく、たぶん四～五名が不自由なく暮らせるって感じのものだと思う。
+"Well then... let's split up for now and investigate the prices."
 
 <b>
 
-もしかしたらイデア様は、パーティで使うことを想定して作ったのかもしれないな。
+From a quick glance, all the houses were single-family sizes, a bit larger than typical homes seen in Japan. However, they weren't so large as to be mansions; they seemed suitable for four to five people to live comfortably.
 
 <b>
 
-「じゃあ私は向こうの端から見ていくっス！」
+Perhaps Lady Idea designed them with parties in mind.
 
 <b>
 
-「それじゃあ私はこっちからにしようかな？」
+"Then I'll start from the far end!"
 
 <b>
 
-十棟も確認すれば済む話なのかもしれないけど、やはりしっかりと確認しておかないと気が済まないんですよね。
+"Then I'll start from this side."
 
 <b>
 
-十中八九全ての家は五コインで購入できるんだろうけど、断定できるわけじゃないんだよな。もしかしたら家によっては特殊機能があって、自動回復とかついているかもしれないし。夢が広がるなぁ！
+It might be enough to check just ten houses, but I still feel the need to confirm everything properly.
 
 <b>
 
-<b>
-
-<b>
-
-「……まぁ何もないよな」
-
-<b>
-
-「三軒目ぐらいで感づいてたっスよ」
-
-<b>
-
-四十九軒ひとつひとつウィンドウをだして確認してみたものの、結局全て同一価格だった。特殊機能がある雰囲気なんて微塵も感じられないし、少々がっかりである。
-
-<b>
-
-とはいえ、この住宅地が無事に存在しているということは、ダンジョンの入り口付近と同じく魔物が寄り付かないエリアになっているのだろう。宿泊場所が確保できるというだけでも、十分意味はある。
-
-<b>
-
-「二人はどこか気に入った家はあったか？　俺は特にこれといって気に入ったところはなかったんだけど」
-
-<b>
-
-「んー、私も無いっスね。自分の好みはレーナスの近くに建てた家にぶち込んだっスから」
-
-<b>
-
-「右に同じです」
-
-<b>
-
-「じゃあ中心の家をとっちゃうか。角にある家も魅力的だけど、万が一魔物が来たときに一番襲われにくい場所だろうし」
-
-<b>
-
-「王者らしくていいじゃないっスか！　ほら、王都の王城とかもだいたい中心部にあるっスから」
-
-<b>
-
-「別にそんなつもりはないんだけど……というか王ってガラじゃないだろ俺は」
-
-<b>
-
-「でもＳＲさんは覇王ですよ？」
-
-<b>
-
-それはただの職業ですやん。というかそれを言ったら今の翡翠の職業も魔王だから同じ王なのでは？
-
-まぁそんなことはいい。二人にはからかわれた気がしなくもないが、さっさとコインを支払って家を買ってしまうことにしよう。
-
-<b>
-
-七×七に配置された住居の中心。その家は外壁を紺色に塗装された家だった。この世界にある家と比べると、少しばかり現代に近い雰囲気を感じた。
-
-<b>
-
-家に近づくと青白いウィンドウが現れる。
-
-以前は価格しか表示されていなかったのだが、いまは購入するか否かの選択肢も出ている状態だ。ちなみに、コインは俺がまとめて持っている状態だから、選択肢が出てきたのは俺だけのようだった。
-
-<b>
-
-「じゃあ、購入～」
-
-<b>
-
-別に一世一代の買い物をするわけではないので、支払いも気楽だ。また欲しくなったらコインを集めればいいだけだし。
-
-<b>
-
-というか、本音を言わせてもらえば全部の家を買ってしまいたい。
-
-<b>
-
-だけどのちのち誰かがこのダンジョンにやってきた時のことを考えると、申し訳なくてそれはできないんだよなぁ。もしかしたら、購入制限とかもあったりするのだろうか？
-
-<b>
-
-「私が一番っスぅううううう――ふぎゃっ！？」
-
-<b>
-
-俺が購入するやいなや家に突撃したクレセントが、見えない壁に激突していた。そして俺の前には、『クレセントの入室を許可しますか？』というウィンドウが現れている。
-
-<b>
-
-涙目のクレセントがこちらに縋るような視線を向けてきていたので、俺は嘆息しながら入室許可をタッチしたのだった。
+Ninety-nine percent of the houses are probably available for five coins, but I can't be certain. Some houses might have special features, like automatic recovery. The possibilities are exciting!
 
 <b>
 
@@ -208,4 +116,88 @@
 
 <b>
 
+"…Well, there's nothing."
+
 <b>
+
+"I had a feeling by the third house."
+
+<b>
+
+I checked each of the forty-nine houses, but they all ended up being the same price. There was no hint of any special features, and I felt a bit disappointed.
+
+<b>
+
+That said, the fact that this residential area exists safely means it's likely an area where monsters don't approach, just like near the entrance of the dungeon. Just having a place to stay is already quite meaningful.
+
+<b>
+
+"Did you two find any houses you liked? I didn't particularly find anything I liked."
+
+<b>
+
+"Well, I didn't either. I put my preferences into the house built near Renas."
+
+<b>
+
+"Same here."
+
+<b>
+
+"Then let's take the house in the center. The house on the corner is attractive too, but it's probably the least likely to be attacked by monsters if they ever come."
+
+<b>
+
+"That's fitting for a king! After all, the royal castle in the royal capital is usually located in the center too."
+
+<b>
+
+"I don't really intend to be like that... I mean, I'm not really king material."
+
+<b>
+
+"But SR-san is a conqueror, right?"
+
+<b>
+
+That's just a job title. Besides, if we're talking about titles, Jade's current job is also Demon King, so aren't we both kings?
+
+Well, that's not important. I feel like I was teased by the two of them, but I decided to quickly pay the coins and buy the house.
+
+<b>
+
+In the center of the houses arranged in a seven-by-seven grid was a house painted in navy blue. Compared to the houses in this world, it felt a bit closer to modern times.
+
+<b>
+
+As I approached the house, a pale blue window appeared.
+
+Previously, it only displayed the price, but now it also offered the option to purchase or not. By the way, since I was holding all the coins, it seemed that only I was presented with the choice.
+
+<b>
+
+"Alright, purchase~"
+
+<b>
+
+It's not like I'm making a once-in-a-lifetime purchase, so the payment is easygoing. If I want more later, I can just collect coins again.
+
+<b>
+
+To be honest, I would want to buy all the houses if I could.
+
+<b>
+
+But thinking about the future when someone else might come to this dungeon, I feel bad about doing that. Perhaps there are purchase limits or something?
+
+<b>
+
+"I'll be the first! —Fugya!?"
+
+<b>
+
+As soon as I made the purchase, Crescent charged into the house and crashed into an invisible wall. And in front of me, a window appeared saying, "Do you permit Crescent to enter?"
+
+<b>
+
+With tears in her eyes, Crescent looked at me as if pleading, so I sighed and touched the entry permission.

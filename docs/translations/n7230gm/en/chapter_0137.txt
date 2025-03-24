@@ -1,4 +1,4 @@
-# Ａ－２３　そろそろやろうか
+# A-23 Shall We Get Started Soon?
 
 <b>
 
@@ -6,75 +6,75 @@
 
 <b>
 
-Ｆランクダンジョンに着くと、アーノルドとジルの二人が受付横の空き地で暇そうに腕組みをしながら会話をしていた。
+When we arrived at the F-rank dungeon, Arnold and Jill were having a conversation, looking bored with their arms crossed in an open space next to the reception.
 
-Ｆランクダンジョンに向かおうとするビギナーたちは、異質な空気を放つ彼らを遠目からチラチラと見ているだけで、まるで目に見えない結界でも張られているかのように近づこうとしない。
+The beginners heading towards the F-rank dungeon were glancing at them from a distance, as if an invisible barrier was preventing them from approaching the two, who exuded an unusual aura.
 
-放つ空気が強者のモノゆえなのか、単純に貴族っぽい服装だからなのかは知らないけど。
-
-<b>
-
-近づいてくる俺たちに気付くと探索者たちはギョッとした表情になり、アーノルドは笑顔で手を振ってくる。ジルは少し不満げな様子だ。
+I don't know if it's because of the strong aura of a powerful person or simply because of their noble-like attire.
 
 <b>
 
-「おはよう！　朝早くからすまないなっ！」
+Noticing us approaching, the explorers looked startled, and Arnold waved at us with a smile. Jill seemed a bit dissatisfied.
 
 <b>
 
-「遅刻よ遅刻っ！　五分の遅刻よっ！」
+"Good morning! Sorry for being early!"
 
 <b>
 
-対照的な反応を見せる二人に、こいつらは本当に姉弟なのかと思ってしまう。いや、姉弟だから対照的なのか？　一人っ子には難しい問題だ。
+"You’re late, late! Five minutes late!"
 
 <b>
 
-俺たち三人は、大した悪びれた様子もなく謝罪の言葉を口にする。五分ぐらい許してくれよ。不可抗力だったんだし。
+Seeing the contrasting reactions of the two, I couldn't help but wonder if they were really siblings. No, is it because they are siblings that they are so different? It's a difficult question for an only child.
 
 <b>
 
-「しかし――シンとエスアールは本当に仲が良かったんだな。言葉では聞いていたが、実際に目の当たりにすると新鮮な気持ちだ」
+The three of us casually apologized without much remorse. Come on, give us a break for five minutes. It was unavoidable.
 
 <b>
 
-「同じ国で、一、二位のパーティだし、相手を蹴落とそうなんてお互いに考えてないからな。俺からすればお前たちとエスアールが話しているほうが奇妙だぞ」
+"However—Shin and SR really got along well, huh? I heard about it, but seeing it in person feels refreshing."
 
 <b>
 
-「まぁ、色々あってな――そうだシンっ！　時間があれば俺とも一戦交えないかっ！？」
+"They're both in the top one or two parties in the same country, and neither of them is thinking about kicking the other down. From my perspective, it's weirder to see you two talking with SR."
 
 <b>
 
-「あー……時間があれば――じゃないか。そんな気力が残っていれば、だな」
+"Well, there are various things going on—oh, Shin! If you have time, how about we have a match?"
 
 <b>
 
-苦笑しながら答えるシンに、とりあえず了承を得られたと思ったのかアーノルドは機嫌良さそうに「ではそうしよう！」と答える。
+"Ah... if I have time—no, if I have the energy left, that is."
 
 <b>
 
-で、アーノルドの姉とは思えない外見のジルはというと、
+Shin replied with a wry smile, and it seemed Arnold was satisfied with that, cheerfully responding, "Then let's do it!"
 
 <b>
 
-「それはどちらが一位で、どちらが二位なわけ？」
+As for Jill, who didn't look like Arnold's sister at all,
 
 <b>
 
-少し前のシンの発言を引っ張ってきて、彼女は問い詰めるような口調で言った。
-
-おそらく、昨日の俺の発言の真偽を確かめるためだろう。だが、今はまだ周囲に人がいるからなぁ……。
+"Which one of you is first and which one is second?"
 
 <b>
 
-「とりあえず中に入ろう。僕たちの話は、誰にでも聞かせていいようなモノではないからね」
+She pulled up Shin's earlier statement and asked in an interrogative tone.
+
+It was probably to verify the truth of my statement from yesterday. But there are still people around, so...
 
 <b>
 
-そう言ってノアは、周囲の探索者を牽制するように視線を動かすと、俺の服の裾を引っ張って「ほら、行こうよ」と声をかけてくる。
+"Let's go inside for now. Our conversation isn't something we can share with just anyone."
 
-大人っぽかったり子供っぽかったり、忙しい精神年齢だな。
+<b>
+
+Saying that, Noah shifted her gaze to deter the surrounding explorers and tugged at the hem of my clothes, saying, "Come on, let's go."
+
+Her mental age is quite busy, being both mature and childish at times.
 
 <b>
 
@@ -86,215 +86,213 @@
 
 <b>
 
-まずは手分けしてスライムたちを倒そうか。
+First, let's split up and defeat the slimes.
 
 <b>
 
-そんな話になったのだが、アーノルドとジルが準備運動がてら倒してくると申し出てくれたので、お言葉に甘えて俺たちリンデール王国組はのんびりとさせてもらっている。
+That was the plan, but Arnold and Jill offered to take care of them as a warm-up, so we, the Lindell Kingdom group, are taking it easy.
 
 <b>
 
-といっても、ここはＦランクダンジョンの一階層。
+That said, this is the first floor of an F-rank dungeon.
 
-敵の数もダンジョンの広さも大したことはないので、三分とかからずに終わってしまうだろう。
+The number of enemies and the size of the dungeon aren't significant, so it will probably be over in less than three minutes.
 
-カップ麺を作っても食う時間がない。いや、そもそもこの世界にカップ麺なんてないんだけどさ。
-
-<b>
-
-アーノルド曰く、最後の一匹は倒さずに試合の邪魔にならない場所に放置しておいたほうがいいとのこと。
+I won't even have time to make instant noodles. Well, to begin with, there are no instant noodles in this world anyway.
 
 <b>
 
-そうすればスライムに流れ弾が被弾するまでの間は、カウントダウンタイマーが起動しない。そのため、より長い時間戦うことができるという計画のようだ。
+According to Arnold, it's better to leave the last one alive in a spot that won't interfere with the match.
 
 <b>
 
-「無知ってのは怖ぇな……三分持てば上出来だってのに。お前さん、手加減するつもりはないんだろ？」
+That way, the countdown timer won't start until a stray shot hits the slime. So, it seems the plan is to be able to fight for a longer time.
 
 <b>
 
-「しない。エリクサーがあるとはいえ、さすがに致命傷になるような攻撃とかは無しだけどな。職業は剣聖でいく」
+"Ignorance is scary... They think three minutes is a good result. You don't plan on holding back, do you?"
 
 <b>
 
-「……ん？　覇王じゃないのか？」
+"I won't. Even though I have elixirs, I won't use attacks that could cause fatal damage. I'll go with the Sword Saint profession."
 
 <b>
 
-「何も知らないあの二人の前でスキル乱発できるわけないだろ……一応この職業は極秘中の極秘だぞ？　だから剣聖。スキル抜きのドンパチなら、現状この職業が一番だからな」
+"...Huh? You're not going with the Overlord?"
 
 <b>
 
-「なるほど……そういえばそうか」
+"I can't just unleash skills in front of those two who know nothing... This profession is a closely guarded secret, you know? So, I'm going with Sword Saint. If we're not using skills, this profession is the best for a straight-up fight."
 
 <b>
 
-俺の言葉を聞いて、シンは納得したように頷く。
-
-一応彼らにもステータスの説明は一通りしてあるので、きちんと記憶に刻み込まれていれば、俺のステータスが頭に思い浮かんでいるだろう。
+"I see... That makes sense."
 
 <b>
 
-☆ステータス☆
+Hearing my words, Shin nodded as if he understood.
+
+I've already explained the status to them, so if they have properly remembered it, they should have my status in mind.
 
 <b>
 
-名前︰ＳＲ
-
-年齢︰２０
-
-職業︰剣聖
-
-レベル︰９１
-
-ＳＴＲ︰ＳＳ
-
-ＶＩＴ︰ＳＳＳ
-
-ＡＧＩ︰ＳＳ
-
-ＤＥＸ︰Ｓ
-
-ＩＮＴ︰ＳＳ
-
-ＭＮＤ︰ＳＳ
-
-スキル︰気配察知　二連斬　見切り　威圧　飛空剣　逆境　俊足　防御貫通　幻影剣　壊理剣
+☆Status☆
 
 <b>
 
-<b>
+Name: SR
 
-ステータスオールＳの覇王と比べると、スキル抜きでの戦いでは剣聖に分があることは明らかだ。
+Age: 20
 
-接近戦で有用な常時発動型のスキルはだいたい剣聖に集まっているし、スキルを使用しないのであればＩＮＴなどいくら高くても意味はない。
+Profession: Sword Saint
 
-<b>
+Level: 91
 
-――といっても、プレイヤーボーナスのおかげで物理職だというのに、魔法系のステータスが無駄に高いんだがな。
+STR: SS
 
-<b>
+VIT: SSS
 
-「シン君も準備運動するかい？　相手になるよ？」
+AGI: SS
 
-<b>
+DEX: S
 
-「……そうだな。エスアールはガチっぽいし、下手したらあの世行きだ」
+INT: SS
 
-<b>
+MND: SS
 
-「そんなヘマしねぇよ」
-
-<b>
-
-「冗談だ――それぐらいわかってるって。じゃあノア、剣で頼む」
-
-<b>
-
-「了解。お兄ちゃんも軽くアップしておかないと、足をすくわれちゃうかもよ？」
-
-<b>
-
-「足がつったりしてな」
-
-<b>
-
-クク――とイケメン全開の微笑を浮かべ、シンはノアとともに俺から少し離れた所に移動し、剣を交え始めた。
-
-<b>
-
-ダンジョン内に鳴り響く金属がぶつかり合う音に反応し、ヴィンゼット姉弟は討伐の手を止め、食い入るように二人のウォーミングアップを眺めていた。
-
-おーい、スライムはまだあと四匹いるぞー！　一匹だけ残すんじゃないのかー！
-
-<b>
-
-「ま、いいか。俺も今のうちに準備運動ぐらいしておこう」
-
-<b>
-
-ノアたちの様子を視界に入れた状態で、足、腕、腰――と、入念に身体をほぐしつつ、どのように戦うかを頭の中で思い浮かべる。
-
-こちらから攻めてもいいが、それは俺の本領発揮とは言えないしなぁ……やっぱりカウンターで仕留めたい。単純に好みの問題でもあるんだけどさ。
-
-<b>
-
-本音を言ってしまえば、覇王でありったけのスキルを使って『ひゃっほう』としたいぐらいだ。
-
-だってこんな魅せるのにもってこいの職業、やっぱりみんなに見せびらかしたいじゃないか。
-
-<b>
-
-「それは諦めてるけども」
-
-<b>
-
-なにしろ、ここはリセットができるゲームではなく、死んだらコンテニューのできない現実なのだし。
-
-<b>
-
-「一度コテンパンに負けて、奮起してくれたらいいんだがなぁ」
-
-<b>
-
-ダンジョン探索を続けると、ここまでこれるんだぞ――と。
-
-頂点ってのは、そう簡単に手が届くような場所にはないんだぞ――と。
-
-ダラダラした日々を送っていたのでは、到底追いつけないぞ――と。
-
-<b>
-
-願わくば、俺の覇王を奪いにくるぐらいの気概で、レベル上げに励んでもらいたいものだ。
-
-<b>
-
-死なない程度に頑張ってほしい。
-
-<b>
-
-そしてシンたち迅雷の軌跡のように、まだまだ上があると信じて高みを目指してほしい。
-
-<b>
-
-それはまだ、もう少し先の話になりそうだけどな。
+Skills: Presence Detection, Double Slash, Anticipation, Intimidation, Sky Sword, Adversity, Swift Feet, Defense Penetration, Phantom Sword, Destruction Sword
 
 <b>
 
 <b>
 
-シンとノアの身体が温まってきた頃合を見計らい、俺はインベントリから取り出した弓を構える。呼吸を整え、神経を研ぎ澄ませた。
+Compared to the Overlord with all stats at S, it's clear that the Sword Saint has the advantage in a fight without skills.
+
+Most of the useful skills for close combat are gathered in the Sword Saint, and if you're not using skills, having high INT doesn't mean much.
 
 <b>
 
-そして立ち位置を微調整してから、待つこと数秒――、
+—That said, thanks to the player bonus, my magical stats are unnecessarily high, even though I'm a physical class.
 
 <b>
 
-「ほいっと」
+"Shin, do you want to warm up too? I can be your opponent."
 
 <b>
 
-スライム三匹が直線上に連なったタイミングで、矢を放つ。ドッドッド――という音を立てて、矢はそれぞれスライムの中心を撃ち抜いていった。
+"…Yeah. SR seems serious, and if I'm not careful, I might end up in the afterlife."
 
 <b>
 
-呆気なく粒子となって消えていくスライムに、俺以外の四人の視線が集まる。そしてその視線は流れるように俺へと移動してきた。
+"I won't mess up like that."
 
 <b>
 
-「そろそろやろうか」
+"Just kidding—I know that much. So, Noah, I'll rely on you with the sword."
 
 <b>
 
-短く、四人に向かって声を掛ける。
+"Understood. You should warm up lightly too, or you might get caught off guard."
 
 <b>
 
-さぁ、今持てるお前たちの全力で、俺を倒しにこい。
+"Like cramping up."
 
-そして頂きの力を、その目に焼き付けてくれ。
+<b>
+
+With a charming smile, Shin moved a little away from me with Noah and began to spar.
+
+Reacting to the sound of metal clashing echoing in the dungeon, the Vinzet siblings stopped their extermination efforts and watched the two warm up intently.
+
+Hey, there are still four slimes left! Aren't you supposed to leave just one?
+
+<b>
+
+"Well, whatever. I should at least warm up while I can."
+
+<b>
+
+Keeping an eye on Noah and the others, I meticulously loosened my body—starting with my legs, arms, and waist—while imagining how I would fight.
+
+I could attack first, but that wouldn't be showcasing my true abilities... I really want to finish them off with a counter. It's simply a matter of preference.
+
+<b>
+
+To be honest, I want to unleash all my skills as the Overlord and go "Woohoo!"
+
+After all, with a profession that is perfect for showing off, I want to flaunt it to everyone.
+
+<b>
+
+"I've given up on that, though."
+
+<b>
+
+After all, this is not a game where you can reset; it's a reality where you can't continue once you die.
+
+<b>
+
+"I hope they get fired up after getting completely beaten once."
+
+<b>
+
+To continue exploring the dungeon, to show that they can make it this far—
+
+That the peak isn't a place that can be reached so easily—
+
+That if they continue to live lazy days, they won't catch up at all—
+
+<b>
+
+I hope they have the spirit to level up enough to come and take my Overlord title.
+
+<b>
+
+I want them to do their best without dying.
+
+<b>
+
+And like Shin and the others from the Thunderous Trail, I want them to believe that there is still a higher level to reach and aim for it.
+
+<b>
+
+That seems like a story for a little while longer, though.
+
+<b>
+
+<b>
+
+As Shin and Noah's bodies warmed up, I took out my bow from my inventory and got into position. I steadied my breathing and sharpened my senses.
+
+<b>
+
+After making slight adjustments to my stance, I waited for a few seconds—
+
+<b>
+
+"Here we go."
+
+<b>
+
+When three slimes lined up in a straight line, I released the arrow. With a thud-thud-thud sound, the arrows pierced through the centers of the slimes.
+
+<b>
+
+The slimes vanished into particles without a fight, gathering the gazes of the other four. And those gazes smoothly shifted towards me.
+
+<b>
+
+"Shall we get started soon?"
+
+<b>
+
+I called out to the four briefly.
+
+<b>
+
+Now, with all your might, come at me and try to defeat me.
+
+And engrave the power of the peak into your eyes.
 
 <b>
 

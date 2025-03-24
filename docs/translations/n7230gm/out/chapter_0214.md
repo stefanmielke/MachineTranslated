@@ -1,7 +1,7 @@
 ###### [Next Chapter](./chapter_0215.md)
 ###### [Previous Chapter](./chapter_0213.md)&nbsp;/&nbsp;
 
-# Ａ－９７　クレセントと翡翠の強さ
+# A-97 Strength of Crescent and Jade
 
 ## Ａ－９７　クレセントと翡翠の強さ
 
@@ -11,77 +11,77 @@
 
 &nbsp;
 
-#### レゼル王国内にあるＳランクダンジョンは、王都から馬車で二時間ほどの距離にある。
+#### The S-rank dungeon in the Rezel Kingdom is located about two hours by carriage from the royal capital.
 
 *レゼル王国内にあるＳランクダンジョンは、王都から馬車で二時間ほどの距離にある。*
 
-#### 事前に何も決めておらず、全員で行くんだろうなとぼんやり思っていたが、ここで翡翠が意見をくれた。
+#### I hadn’t decided anything in advance and was vaguely thinking that everyone would go together, but at that moment, Jade offered her opinion.
 
 *事前に何も決めておらず、全員で行くんだろうなとぼんやり思っていたが、ここで翡翠が意見をくれた。*
 
 &nbsp;
 
-#### 「ボクとミカにやらせてくれませんか？」
+#### “Can I and Mika take care of it?”
 
 *「ボクとミカにやらせてくれませんか？」*
 
 &nbsp;
 
-#### ミカとは翡翠が呼ぶクレセントの別名。一瞬混乱するというか、テンペストをやっていた時のことを思い出してしまう。別に思い出したからといって、トラウマとかがあるわけじゃないけど……他の人はクエッションマークを浮かべてしまいそうだ。
+#### Mika is the other name for Crescent as called by Jade. For a moment, I was confused and recalled the time when I was playing Tempest. It’s not that I have any trauma from remembering, but… others might look puzzled.
 
 *ミカとは翡翠が呼ぶクレセントの別名。一瞬混乱するというか、テンペストをやっていた時のことを思い出してしまう。別に思い出したからといって、トラウマとかがあるわけじゃないけど……他の人はクエッションマークを浮かべてしまいそうだ。*
 
 &nbsp;
 
-#### 「ん？　ボス戦のことか？　まぁ誰がやっても一緒だと思うし、別にいいぞ」
+#### “Hm? Are you talking about the boss battle? Well, I think it doesn’t matter who does it, so it’s fine.”
 
 *「ん？　ボス戦のことか？　まぁ誰がやっても一緒だと思うし、別にいいぞ」*
 
 &nbsp;
 
-#### 「いえ、ボス戦だけでなく、攻略そのものを――です」
+#### “No, I mean not just the boss battle, but the entire strategy—”
 
 *「いえ、ボス戦だけでなく、攻略そのものを――です」*
 
 &nbsp;
 
-#### 詳しく話を聞いてみると、翡翠はこの世界での安定した地位を早く築いておきたいらしい。まぁ舐められたくないってのはわかるし、俺たちと一緒に行動している時点で、嫌でも目立っているからなぁ。
+#### When I listened more closely, it seemed that Jade wanted to establish a stable position in this world as soon as possible. I understand that she doesn’t want to be underestimated, and the fact that she’s acting with us means she’s inevitably standing out.
 
 *詳しく話を聞いてみると、翡翠はこの世界での安定した地位を早く築いておきたいらしい。まぁ舐められたくないってのはわかるし、俺たちと一緒に行動している時点で、嫌でも目立っているからなぁ。*
 
 &nbsp;
 
-#### 「なるほどね」
+#### “I see.”
 
 *「なるほどね」*
 
 &nbsp;
 
-#### ここのＳランクダンジョンのボスは狂風竜。
+#### The boss of this S-rank dungeon is the Gale Dragon.
 
 *ここのＳランクダンジョンのボスは狂風竜。*
 
-#### ダンジョンは洞窟場になっているのだけど、全長三十メートルほどのドラゴンが飛べるぐらいに広々とした造りになっている。
+#### The dungeon is structured like a cave, but it is spacious enough for a dragon about thirty meters long to fly.
 
 *ダンジョンは洞窟場になっているのだけど、全長三十メートルほどのドラゴンが飛べるぐらいに広々とした造りになっている。*
 
 &nbsp;
 
-#### 俺もダンジョン行ぎだい……！　と願望を露わにしそうになってしまったけど、ここは年長者として、そして異世界転生の先輩として譲ることにした。
+#### I was about to openly express my desire to go to the dungeon… but as an older person and a senior in this other world, I decided to yield.
 
 *俺もダンジョン行ぎだい……！　と願望を露わにしそうになってしまったけど、ここは年長者として、そして異世界転生の先輩として譲ることにした。*
 
-#### 狂風竜に関しては、ベノムに挑む前に腐るほど倒させてもらったからな。
+#### Regarding the Gale Dragon, I had fought more than enough before challenging Venom.
 
 *狂風竜に関しては、ベノムに挑む前に腐るほど倒させてもらったからな。*
 
-#### あの時は複数のボスと戦っていたから、今やると味気なく感じるのは間違いないだろうし、ここは我慢しよう。
+#### At that time, I was fighting multiple bosses, so it would definitely feel bland now, so I’ll hold back.
 
 *あの時は複数のボスと戦っていたから、今やると味気なく感じるのは間違いないだろうし、ここは我慢しよう。*
 
 &nbsp;
 
-#### クレセントと翡翠がダンジョンで苦戦するなどまずありえないので、心配するだけ無駄というもの。彼女たちにとってこの世界に脅威などないからな。
+#### It’s almost impossible for Crescent and Jade to struggle in the dungeon, so worrying about it would be pointless. For them, there are no threats in this world.
 
 *クレセントと翡翠がダンジョンで苦戦するなどまずありえないので、心配するだけ無駄というもの。彼女たちにとってこの世界に脅威などないからな。*
 
@@ -89,207 +89,207 @@
 
 &nbsp;
 
-#### 街を散策しながらそんな話をして、王城に帰還。
+#### After discussing that while strolling through the town, we returned to the royal castle.
 
 *街を散策しながらそんな話をして、王城に帰還。*
 
-#### すると、フェノンたちのほうでもＳランクダンジョンについての話をしていたらしく、戻ってきた俺たちも交えて会議開始。その場には懐かしのヴィンゼット姉弟もいたのだが、気付けばノアはどこかに消えていた。逃げたな。
+#### It seemed that Fenon and the others were also discussing the S-rank dungeon, and a meeting began with us included. The nostalgic Vinzet siblings were also there, but before I knew it, Noah had disappeared somewhere. She ran away.
 
 *すると、フェノンたちのほうでもＳランクダンジョンについての話をしていたらしく、戻ってきた俺たちも交えて会議開始。その場には懐かしのヴィンゼット姉弟もいたのだが、気付けばノアはどこかに消えていた。逃げたな。*
 
 &nbsp;
 
-#### 姉のジルともあまり仲が良いとは言えない感じだったけど、たぶんノア的にはあまり気にしていないだろう。なんだかんだ言って、神様からしたらアリに噛みつかれているぐらいな気分だろうし。
+#### Although she didn’t seem to have a good relationship with her sister Jill, Noah probably didn’t care much about it. After all, from the perspective of a god, it might feel like being bitten by an ant.
 
 *姉のジルともあまり仲が良いとは言えない感じだったけど、たぶんノア的にはあまり気にしていないだろう。なんだかんだ言って、神様からしたらアリに噛みつかれているぐらいな気分だろうし。*
 
 &nbsp;
 
-#### 「――というわけで、翡翠とクレセントにＳランクダンジョンは行ってもらうことにしたんだけど――あれか？　報告とか面倒ならレゼルの人を連れていったほうが手っ取り早いんじゃない？」
+#### “So, I decided to have Jade and Crescent go to the S-rank dungeon—but is it better to take someone from Rezel if reporting is a hassle?”
 
 *「――というわけで、翡翠とクレセントにＳランクダンジョンは行ってもらうことにしたんだけど――あれか？　報告とか面倒ならレゼルの人を連れていったほうが手っ取り早いんじゃない？」*
 
 &nbsp;
 
-#### 王様から『可能なら情報提供を』という話を聞いていたから、クレセントたちに聞いてみる。
+#### Since I had heard from the king that “if possible, provide information,” I asked Crescent and the others.
 
 *王様から『可能なら情報提供を』という話を聞いていたから、クレセントたちに聞いてみる。*
 
 &nbsp;
 
-#### 「あー、できればそうしてくれたほうが助かるッスね。書類仕事とか嫌いッス」
+#### “Ah, if possible, that would help. I hate paperwork.”
 
 *「あー、できればそうしてくれたほうが助かるッスね。書類仕事とか嫌いッス」*
 
 &nbsp;
 
-#### 「ボクもこういう経験ないからあまり自信ないです……」
+#### “I don’t have much confidence in this kind of experience either…”
 
 *「ボクもこういう経験ないからあまり自信ないです……」*
 
 &nbsp;
 
-#### そんなわけで、レゼル側から誰か出してほしい――その旨を、カタリヤ第二王女及び、ヴィンゼット姉弟に伝えた。
+#### So, I conveyed the request for someone from the Rezel side to Kataliya, the second princess, and the Vinzet siblings.
 
 *そんなわけで、レゼル側から誰か出してほしい――その旨を、カタリヤ第二王女及び、ヴィンゼット姉弟に伝えた。*
 
-#### ――が、
+#### —However,
 
 *――が、*
 
 &nbsp;
 
-#### 「本当にこの二人は強いわけ？　行く場所はＳランクダンジョンなのよ？」
+#### “Are these two really strong? The place they’re going to is an S-rank dungeon, you know?”
 
 *「本当にこの二人は強いわけ？　行く場所はＳランクダンジョンなのよ？」*
 
 &nbsp;
 
-#### 姉のジルが値踏みをするようにクレセントと翡翠に目を向ける。
+#### Sister Jill looked at Crescent and Jade as if evaluating them.
 
 *姉のジルが値踏みをするようにクレセントと翡翠に目を向ける。*
 
-#### が、二人は案外平気そうだった。相手が貴族とはいえ、こちらの得意分野での話だからな。まだ貴族に対しておっかなびっくりという雰囲気は時々あるけど……あぁ、そういうところでも怯えたくないから、彼女たちは早く実績が欲しいと思ったのかもしれないな。
+#### But the two seemed surprisingly unfazed. Even though the other party was nobility, this was a discussion in their area of expertise. There’s still a bit of a nervous atmosphere around nobles sometimes, but… Ah, they might want achievements quickly so they don’t feel scared in such situations.
 
 *が、二人は案外平気そうだった。相手が貴族とはいえ、こちらの得意分野での話だからな。まだ貴族に対しておっかなびっくりという雰囲気は時々あるけど……あぁ、そういうところでも怯えたくないから、彼女たちは早く実績が欲しいと思ったのかもしれないな。*
 
 &nbsp;
 
-#### 国内だけでなく、他国まで知れ渡るような実績が。
+#### Achievements that would be known not just domestically but also in other countries.
 
 *国内だけでなく、他国まで知れ渡るような実績が。*
 
-#### ジルが質問すると、その場にいた全員の視線がこちらに向いた。
+#### When Jill asked, everyone’s gaze turned towards us.
 
 *ジルが質問すると、その場にいた全員の視線がこちらに向いた。*
 
-#### セラやフェノン、シリーもこの場にいるけれど、あまり口を挟んでくる様子はない。
+#### Sera, Fenon, and Shiri were also present, but they didn’t seem to be interrupting much.
 
 *セラやフェノン、シリーもこの場にいるけれど、あまり口を挟んでくる様子はない。*
 
-#### なぜ俺が説明する空気なんだろうか。
+#### Why is it that I feel like I’m the one who has to explain?
 
 *なぜ俺が説明する空気なんだろうか。*
 
 &nbsp;
 
-#### 「実際に戦って見せてもいいと思うけど、たぶんジルやアーノルドなら口で説明しても十分わかってくれると思うんだよな」
+#### “I think it would be fine to show them in an actual battle, but I believe Jill and Arnold would understand even if I explained it verbally.”
 
 *「実際に戦って見せてもいいと思うけど、たぶんジルやアーノルドなら口で説明しても十分わかってくれると思うんだよな」*
 
 &nbsp;
 
-#### 「あたしじゃわからないと言いたいの？」
+#### “Are you saying I wouldn’t understand?”
 
 *「あたしじゃわからないと言いたいの？」*
 
 &nbsp;
 
-#### ジト目を向けながらカタリヤ様が言ってくる。半分からかっているような感じだけど、ちょっと怖いから止めてほしい。
+#### Lady Kataliya said with a glare. It felt like she was half teasing, but it was a bit scary, so I wanted her to stop.
 
 *ジト目を向けながらカタリヤ様が言ってくる。半分からかっているような感じだけど、ちょっと怖いから止めてほしい。*
 
 &nbsp;
 
-#### 「カタリヤ様は俺が戦うところを見ていないでしょう？　だから、比較対象がわかりにくいかなぁと思いましてですね、はい」
+#### “Lady Kataliya hasn’t seen me fight, right? So I thought it might be hard to understand the comparison.”
 
 *「カタリヤ様は俺が戦うところを見ていないでしょう？　だから、比較対象がわかりにくいかなぁと思いましてですね、はい」*
 
 &nbsp;
 
-#### 苦笑しながら受け答えをすると、今度はアーノルドが口を開く。
+#### As I responded with a wry smile, Arnold opened his mouth this time.
 
 *苦笑しながら受け答えをすると、今度はアーノルドが口を開く。*
 
 &nbsp;
 
-#### 「つまり、どういうことだ？　わかりやすく説明してほしい」
+#### “So, what does that mean? I want you to explain it clearly.”
 
 *「つまり、どういうことだ？　わかりやすく説明してほしい」*
 
 &nbsp;
 
-#### アーノルドの言葉に、ジルもコクリと頷く。
+#### At Arnold’s words, Jill nodded in agreement.
 
 *アーノルドの言葉に、ジルもコクリと頷く。*
 
-#### うんうん、この二人なら、あの話を引き合いに出せばわかってくれると思うんだよな。
+#### Yeah, I think these two would understand if I brought up that story.
 
 *うんうん、この二人なら、あの話を引き合いに出せばわかってくれると思うんだよな。*
 
-#### クレセントや翡翠の強さを示すために一番楽なのは、俺を引き合いにだすことだから。
+#### The easiest way to demonstrate the strength of Crescent and Jade is to compare them to me.
 
 *クレセントや翡翠の強さを示すために一番楽なのは、俺を引き合いにだすことだから。*
 
 &nbsp;
 
-#### 「以前、アーノルドたちはリンデールに来て俺とやり合ったことがあるだろ？　まだ覚えてるよな？」
+#### “Previously, Arnold and the others came to Lindell and fought with me, right? You still remember that, don’t you?”
 
 *「以前、アーノルドたちはリンデールに来て俺とやり合ったことがあるだろ？　まだ覚えてるよな？」*
 
 &nbsp;
 
-#### まずそう問いかけると、揃って「もちろん」「忘れられるわけないでしょ」と返答してくれた。
+#### When I asked, they both replied in unison, “Of course” and “There’s no way I could forget.”
 
 *まずそう問いかけると、揃って「もちろん」「忘れられるわけないでしょ」と返答してくれた。*
 
 &nbsp;
 
-#### 「自分で言うのは気恥ずかしいが――俺の強さと、迅雷の軌跡たちの強さ、結構差が開いていると思わなかったか？」
+#### “It’s embarrassing to say it myself, but—didn’t you think there was quite a gap between my strength and that of the Thunderbolt’s trajectories?”
 
 *「自分で言うのは気恥ずかしいが――俺の強さと、迅雷の軌跡たちの強さ、結構差が開いていると思わなかったか？」*
 
 &nbsp;
 
-#### 「認めたくないけど、天と地の差があるわね」
+#### “I don’t want to admit it, but there’s a huge difference.”
 
 *「認めたくないけど、天と地の差があるわね」*
 
 &nbsp;
 
-#### 認めたくないのは、地である迅雷の軌跡に負けた経験があるからだろう。
+#### The reason she doesn’t want to admit it is probably because she has experienced losing to the Thunderbolt’s trajectories.
 
 *認めたくないのは、地である迅雷の軌跡に負けた経験があるからだろう。*
 
-#### ジルたちも新たな職業のレベル上げを頑張っているようだが、まだまだ迅雷の軌跡たちには追いつけそうにないもんなぁ。
+#### Jill and the others seem to be working hard to level up their new professions, but they still seem far from catching up to the Thunderbolt’s trajectories.
 
 *ジルたちも新たな職業のレベル上げを頑張っているようだが、まだまだ迅雷の軌跡たちには追いつけそうにないもんなぁ。*
 
-#### 本当の勝負は、全てのステータスがカンストしてからだ。
+#### The real competition will be after all stats are maxed out.
 
 *本当の勝負は、全てのステータスがカンストしてからだ。*
 
 &nbsp;
 
-#### 「クレセントと翡翠――この二人は、ほぼ俺と同じレベルで強いと思ってもらっていい」
+#### “Crescent and Jade—these two can be considered almost as strong as me.”
 
 *「クレセントと翡翠――この二人は、ほぼ俺と同じレベルで強いと思ってもらっていい」*
 
 &nbsp;
 
-#### 同郷ということもあり、俺は我が子を自慢するかのように言った。
+#### Since we are from the same hometown, I said it as if I were boasting about my children.
 
 *同郷ということもあり、俺は我が子を自慢するかのように言った。*
 
-#### すると、
+#### Then,
 
 *すると、*
 
 &nbsp;
 
-#### 「異議あり！　ＳＲさんと一緒にされたくないッス！」
+#### “I object! I don’t want to be compared to SR!”
 
 *「異議あり！　ＳＲさんと一緒にされたくないッス！」*
 
 &nbsp;
 
-#### 「ボクも異議ありです。まだまだその背中には追いつけそうにありませんので」
+#### “I also object. I still feel like I can’t catch up to your back.”
 
 *「ボクも異議ありです。まだまだその背中には追いつけそうにありませんので」*
 
 &nbsp;
 
-#### ここは俺の話に乗ってくれる場面じゃないのかよ。
+#### Isn’t this a moment where they should be supporting my statement?
 
 *ここは俺の話に乗ってくれる場面じゃないのかよ。*
 

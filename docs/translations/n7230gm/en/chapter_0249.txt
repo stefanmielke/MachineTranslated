@@ -1,4 +1,4 @@
-# Aー１３２　疲労困憊の三人
+# A-132 Exhausted Three
 
 <b>
 
@@ -6,183 +6,181 @@
 
 <b>
 
-ダンジョンの中にある住宅街に『リンデール地区』という文字を発見した俺たちは、『もしかしたら新たにできたダンジョン同士は内部でつながっているのではないか』という予想を立てた。
+Upon discovering the words "Lindale District" in the residential area within the dungeon, we hypothesized that "perhaps newly created dungeons are connected internally."
 
 <b>
 
-ただ、これはあくまで仮説の段階だし、イデア様がなんとなくで名前を付けておいたという可能性も十分にある。
+However, this is still just a hypothesis, and there is a good chance that Lady Idea simply named it on a whim.
 
 <b>
 
-だが新しくイデア様が作ったダンジョンはこれまでのダンジョンと違う仕様であり、もう一つの世界といっても過言ではないような内部になっているのだから、十分に可能性はあると思うのだ。
+Nevertheless, the dungeon newly created by Lady Idea has a different structure from previous dungeons, and it could be said that its interior resembles another world, so I believe there is a significant possibility.
 
 <b>
 
-この件に関しては、あとから『なんでそんな大事なことを言わなかったんだ！』とレグルスさんに怒られないためにしっかり報告しておいた。いくつになっても叱責されるというのは嫌なものである。
+Regarding this matter, I made sure to report it properly so that I wouldn't be scolded later by Regulus for not mentioning such an important thing. Being reprimanded, no matter how old you are, is unpleasant.
 
 <b>
 
-「――という感じの一日だったよ。セラたちは……うん、随分頑張ったみたいだな」
+"---That was the kind of day it was. As for Sera and the others... yeah, they seem to have worked really hard."
 
 <b>
 
-顔を見たらわかる。
+You can tell just by looking at their faces.
 
 <b>
 
-セラ、フェノン、シリー、俺の四人でダイニングテーブルを囲んで報告会をしていたのだけど、三人とも表情から疲労がにじみ出ている。徹夜をしたわけでもないのに、今にもふらふらと倒れてしまいそうな雰囲気だった。
+Sera, Phenon, Shiri, and I were gathered around the dining table for a debriefing, but all three of them were showing signs of fatigue in their expressions. Even though they hadn't pulled an all-nighter, they looked like they might collapse at any moment.
 
 <b>
 
-「きつかったら寝ていてもいいんだけど」
+"If you're tired, it's okay to sleep."
 
 <b>
 
-俺がそう言うと、セラが手のひらをこちらに向けて待ったをかけてくる。そして彼女はゆっくりと首を振った。
+When I said that, Sera raised her palm towards me to signal me to wait. Then she slowly shook her head.
 
 <b>
 
-「その必要はない。私は今、この空間、この空気、そしてエスアールの声が癒しになっている。幼少の時に聞いた子守歌を思い出したぞ」
+"There's no need for that. Right now, this space, this air, and the voice of SR are healing me. It reminds me of the lullabies I heard in my childhood."
 
 <b>
 
-子守歌じゃなくて報告なんですけど。やっぱり眠いんじゃないか。
+It's not a lullaby; it's a report. You're definitely sleepy, aren't you?
 
 <b>
 
-聞いてみたところ、予想通り彼女たち三人は朝から晩までずっとＳランクダンジョンでノアにしごかれていたらしい。
+When I asked, as expected, the three of them had been trained by Noah in the S-rank dungeon from morning till night.
 
 <b>
 
-今回は普通に死んでしまえるダンジョンだからノアもそこまで無理な試練は与えなかったようだが、戦っている本人たちも『死んだら終わり』とわかっているため、その分精神的な疲労もすさまじかったらしい。あとは、上級ポーションはそこそこの数使うことになってしまったようだ。
+This time, since it was a dungeon where they could die normally, Noah didn't seem to give them overly difficult trials, but since they understood that "if they die, it's over," the mental fatigue was reportedly immense. Additionally, it seems they ended up using a fair number of high-grade potions.
 
 <b>
 
-別にストックは大量にあるからいいけど、痛みとか恐怖とかで心がきつそうだよなぁ。
+It's fine since we have plenty in stock, but it seems their hearts are struggling with pain and fear.
 
 <b>
 
-「フェノンとシリーは大丈夫か？」
+"Are Phenon and Shiri okay?"
 
 <b>
 
-セラはとりあえず大丈夫そうだと判断し、他の二人に話を振ってみる。
+Judging that Sera seemed to be fine for now, I turned to the other two.
 
 <b>
 
-「はい！　私も問題ありません！　ノアさんの指導は厳しいですけど、戦い方とか、彼女はすごくたくさんのことを知っていますので、自分がどんどん強くなっていくのを感じて楽しくもあるんです！」
+"Yes! I'm fine too! Noah's guidance is strict, but she knows so many things about fighting, so I feel like I'm getting stronger and it's fun!"
 
 <b>
 
-「私もノアさんに弓を教えてもらいましたが、あの方はなんでもできますよね。も、もちろんエスアールさんのほうがすごいですよ！　あれ、でも元神様よりすごいって、エスアールさんって本当にすごいんですね」
+"I also learned archery from Noah, and she can do anything, right? O-of course, SR is even more amazing! But wow, to be better than a former god, SR is really incredible."
 
 <b>
 
-フェノンとシリーの二人も、疲労は滲んでいるものの、ある種の達成感を覚えているような感じだった。ノアはテンペストでの俺たちの戦いをずっと見てきただろうから、それだけ知識も豊富なのだろう
+Although Phenon and Shiri also showed signs of fatigue, they seemed to feel a sense of accomplishment. Noah must have been watching our battles in Tempest all along, so she likely has a wealth of knowledge.
 
-。
-
-知識だけでどうにかできないのが、あのゲームの面白いところではあるが。
+It's interesting how knowledge alone can't solve everything in that game.
 
 <b>
 
-「それで、ノアのやつはどこに行ってるんだ？」
+"So, where did Noah go?"
 
 <b>
 
-「部屋で一足先に寝ているぞ。『今日はお邪魔虫になりそうだから先に寝てるね』と言っていた」
+"She's already sleeping in her room. She said, 'I might be a nuisance today, so I'm going to sleep first.'"
 
 <b>
 
-「別にお邪魔虫ってわけじゃないだろうに」
+"She's not really a nuisance, though."
 
 <b>
 
-あいつはあいつで、俺たちのために行動してくれているんだから誰も恨み言は言わないだろう。セラたちからも、感謝の言葉はしっかりと伝えているらしいし。
+She's acting for our sake, so no one would complain about her. It seems that Sera and the others have properly expressed their gratitude to her as well.
 
 <b>
 
-今度顔を合わせたら俺からも『セラたちに指導してくれてありがとう』と言っておくことにしよう。
-
-<b>
+When I see her next, I should also say, "Thank you for teaching Sera and the others."
 
 <b>
 
 <b>
 
-「そういう意味のお邪魔虫だとは思っていませんでした」
+<b>
+
+"I didn't think of it that way when she said nuisance."
 
 <b>
 
-俺の寝室に、フェノンとセラ、それからシリーが現れた。
+Phenon, Sera, and Shiri appeared in my bedroom.
 
-ここリンデールにあるパーティハウスでは、レーナス近くに建てた家と違って各自寝室は別々であり、一人部屋だ。
-
-<b>
-
-それでも部屋は広いし、ベッドも五・六人ぐらい一緒に寝ても大丈夫そうなぐらいの代物が各部屋に設置されてある。こういうところで金をつかって経済を回さないといけないんですよ。決して他意はありません。なにしろいくら散財してもお金が増え続ける一方なんですもん。
+In this party house in Lindale, unlike the house we built near Renas, each person has their own separate bedroom.
 
 <b>
 
-いやしかし……どうしてこうなった？
+Even so, the rooms are spacious, and each has beds that could comfortably accommodate five or six people. We need to spend money on things like this to keep the economy going. There's no ulterior motive. After all, no matter how much I spend, my money keeps increasing.
 
 <b>
 
-「べ、別にシリーも私たちと一緒に夜――うぐっ――と、ともかく、今日はみんなで一緒に寝ようという話になったのだ！　本当にただそれだけだからな！」
+But still... how did it come to this?
 
 <b>
 
-「今日は色々と大変でしたから、私とセラはエスアールさんと一緒にいたいと思ったんですけど、それだとシリーが一人になってしまうから可哀想で」
+"W-well, it's not like Shiri wants to sleep with us at night---ugh---anyway, we decided that we should all sleep together tonight! That's really all there is to it!"
 
 <b>
 
-「すみません……お邪魔かとは思いますが、どうぞよろしくお願いします」
+"Today was quite tough, so Sera and I wanted to be with SR, but we felt sorry for Shiri being alone."
 
 <b>
 
-おそらく呆けた表情を浮かべてしまっている俺に、セラ、フェノン、シリーがそれぞれ声を掛けてくる。ハッと現実に意識を引き戻して、彼女たちの言葉を脳で処理していく。
+"I'm sorry... I know I'm a nuisance, but please take care of me."
 
 <b>
 
-彼女たちの言葉から推測するに、今日ノアによって厳しい指導を受けて精神的にきついから、パーティハウスではあるが、セラもフェノンも俺と一緒に寝たいと。
+Sera, Phenon, and Shiri each called out to me, likely seeing the blank expression on my face. I snapped back to reality and processed their words in my mind.
 
 <b>
 
-そしてそうなると、同じようにきつい想いをしたシリーだけが一人ぼっちになってしまう。それはセラとフェノン的にはＮＧだったのだろう。
+From their words, it seems that after receiving strict guidance from Noah today, they found it mentally tough, so even though this is a party house, Sera and Phenon want to sleep with me.
 
 <b>
 
-もちろん、俺としてもここで心細く思っているらしいシリーを一人にするのは可哀想だと思う。でもその解決策って、セラたちが三人で寝ればそれでいいんじゃないか？
+And if that happens, Shiri, who also had a tough time, would be left alone. That must have been a no-go for Sera and Phenon.
 
 <b>
 
-……うん、そこまで俺も朴念仁ではない。セラとフェノンはもちろん、シリーからも異性としての好意は感じているし。そしてそれをセラとフェノンが認めていることもだいたいわかっている。
+Of course, I also think it's sad to leave Shiri, who seems to be feeling lonely. But wouldn't the solution be for Sera and the others to sleep together?
 
 <b>
 
-「……とりあえず、みんなから今日の成果とかを色々教えてもらおうかな。さっきの話ではざっくりとしたことしか聞けなかったし、俺からアドバイスできることがあるかもしれないから」
+...Yeah, I'm not that oblivious. I can feel the affection from Sera, Phenon, and even Shiri as a romantic interest. And I mostly understand that Sera and Phenon acknowledge that.
 
 <b>
 
-愛だの恋だのが絡んでしまうと、俺も色々と意識してしまうから戦闘とかダンジョンの話をすることにした。こっちの話題なら俺も前のめりで話をできるし、彼女たちの役にも立てる。
+"…For now, let's talk about today's results and other things. I only heard a rough outline earlier, and there might be some advice I can give."
 
 <b>
 
-「それと、例の『他のダンジョンと繋がっているのか』を確かめるために、近々ダンジョン内で泊まり込みをするかもしれないから、その時は一緒に行こう」
+When love and romance come into play, I tend to become conscious of various things, so I decided to talk about battles and dungeons instead. With this topic, I can engage enthusiastically, and it can also be helpful for them.
 
 <b>
 
-ベッドに腰掛けた俺がそう言うと、三人はそれぞれ嬉しそうに肯定の返事をしてくれる。
-
-うんうん、いい流れだ。別にそういう大人のアレコレが苦手というわけじゃないけど、シリーとは結婚しているわけじゃないからな。これが普通だ。ただ一緒の部屋の一緒のベッドで寝るだけなのだ。
+"Also, to check if we're connected to other dungeons, we might stay overnight in the dungeon soon, so let's go together then."
 
 <b>
 
-まぁ結局、その後は俺を代わる代わる膝枕するというよくわからないゲームをすることになってしまったけど。疲れてるのキミたちじゃないの？　なんで俺が膝枕されて、キミたちが回復するんだ。
+As I sat on the bed and said this, the three of them each responded happily in agreement.
+
+Yeah, this is a good flow. It's not that I'm particularly bad with adult matters, but I'm not married to Shiri. This is normal. We're just sleeping in the same room and the same bed.
 
 <b>
 
-――明日の朝、俺はいったいどうなってしまっているんだろうか。
+Well, in the end, we ended up playing a strange game where we took turns giving each other lap pillows. Aren't you all the tired ones? Why am I the one getting a lap pillow while you all recover?
+
+<b>
+
+---What will I be like tomorrow morning? 
 
 <b>
 

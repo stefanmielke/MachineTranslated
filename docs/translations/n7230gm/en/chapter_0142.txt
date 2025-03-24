@@ -1,4 +1,4 @@
-# Ａ－２８　呼び出し
+# A-28 Summons
 
 <b>
 
@@ -6,103 +6,103 @@
 
 <b>
 
-いまかいまかと新居ができるのを待ちわびつつ、俺たちはいつも通りの日常を過ごした。
+While eagerly waiting for our new home to be completed, we went about our daily lives as usual.
 
 <b>
 
-変わったことといえば、ノア以外の三人とそれぞれダンジョンデートをしたことぐらいだろうか。
+The only change was that I went on dungeon dates with the other three members, excluding Noah.
 
-これは以前ノアと二人でダンジョンに行った際に他のメンバーから『ノアだけずるい』と抗議を受け、約束していたモノである。
-
-<b>
-
-いやぁ、非常に楽しかった。
-
-皆と過ごしている時と、二人きりになった時とでは態度や雰囲気が違っていて、とても新鮮な気持ちになる。
+This was a promise made after the other members protested that it was unfair for Noah to go to the dungeon alone with me.
 
 <b>
 
-それから、今まではレグルスさんの働きかけによりダンジョンへ入場する際のライセンス提示を断らせてもらっていたが、正式にギルドにてＡランクダンジョンを踏破したことを告げ、証明としてライセンスの踏破歴を見せている。
+Well, it was incredibly fun.
+
+The attitude and atmosphere were different when I was with everyone and when it was just the two of us, which made it feel very refreshing.
 
 <b>
 
-もちろん、職業はまだ見られるわけにはいかないので、ダンジョンへ入場する時は相変わらず提示を拒否しているが。
+Also, until now, we had been allowed to skip showing our licenses when entering the dungeon thanks to Regulus's influence, but I officially informed the guild that I had cleared an A-rank dungeon and showed my license's clearance history as proof.
 
 <b>
 
-「陛下から呼び出しかぁ……どの件についてだろうな」
+Of course, since our professions still can't be revealed, I continued to refuse to show them when entering the dungeon.
 
 <b>
 
-レーナスの街近くにある、俺たちの家。
-
-リビングに集まったメンバーたちに問いかけるようにしながら、俺はそう呟いた。
+"Being summoned by His Majesty... I wonder what it's about."
 
 <b>
 
-ほんの数分前、俺たちの家にやってきた騎士が俺たちに陛下からの伝言を残していったのだ。
+In our house near the city of Reinas.
+
+I muttered this while looking at the members gathered in the living room.
 
 <b>
 
-曰く、ＡＳＲのメンバーで王都に来てほしいと。
-
-日程は十日後。そしてその日はまるで狙ったかのように、新居の引渡しの日でもあった。
+Just a few minutes ago, a knight had come to our house and left a message from His Majesty.
 
 <b>
 
-「Ａランクダンジョン踏破か、新居についてか――あるいは新しい使用人についての話かもしれないな」
+It said that he wanted the members of ASR to come to the royal capital.
+
+The date was ten days later. And that day, coincidentally, was also the day we would receive the keys to our new home.
 
 <b>
 
-「称号の可能性もあるかもねぇ。個人にじゃなくて、迅雷の軌跡みたくパーティに与えられる感じで」
+"Could it be about clearing the A-rank dungeon, our new home, or perhaps a discussion about new servants?"
 
 <b>
 
-「お父様がエスアールさんを見定めようとしているのかもしれませんよ？」
+"There might be a possibility of a title as well. Not for individuals, but something like how the party was given the title 'Thunderbolt's Trail.'"
 
 <b>
 
-「うーん、どれもありえそうです。……そういえば、私たちのスリ討伐に対しても、報酬はまだでしたね」
+"Perhaps my father is trying to assess SR-san?"
 
 <b>
 
-四人からそれぞれ反応が返ってくる。全部ありえそうだ。
+"Hmm, any of those could be possible. ...Speaking of which, we haven't received our reward for the slayer quest yet."
 
 <b>
 
-「どれも可能性はあるよな。なんにせよ、行ってみなきゃわからないんだが」
+Each of the four responded. All of them seemed plausible.
 
 <b>
 
-「そうだねぇ。騎士の人も詳しく知らなさそうだったし」
+"Any of them could be possible. In any case, we won't know until we go."
 
 <b>
 
-ちゃっかり相手の心の内をチェックしていたらしいノアが、残念そうに言う。
+"That's true. The knight didn't seem to know much either."
 
 <b>
 
-「まぁ陛下やディーノ様のことだし、変なことにはならないだろ。あの人たちは良い人だし」
+Noah, who had apparently been checking the knight's inner thoughts, said with a hint of disappointment.
 
 <b>
 
-陛下は俺がこの世界にやってきた時、勇者ではないただの役立たずかと思われていたのにもかかわらず、俺のことを心配して、さらに申し訳なさそうに謝罪までしてくれた人だ。
-
-ディーノ様はきちんと話せば融通が利くし、俺たちの意見もしっかりと考慮してくれそうだ。
+"Well, considering it's His Majesty and Dino-sama, it shouldn't lead to anything strange. They're good people."
 
 <b>
 
-「ふふっ、そうですね。案外ディーノあたりはエスアールさんと私たちの関係に気付いていて、黙ってくれているかもしれませんよ？」
+His Majesty was someone who, despite thinking I was just a useless person when I first arrived in this world, worried about me and even apologized for it.
+
+Dino-sama is flexible when you talk to him properly and seems to genuinely consider our opinions.
 
 <b>
 
-それはそれで見張られている感じがして怖い。だが、ディーノ様ならありえそうだ。
-
-もしかしたら王都へ出向いた時、俺だけ別室に呼び出されて、ディーノ様から尋問みたいなものを受けることになったりして。
+"Hehe, that's true. Dino might actually be aware of the relationship between SR-san and us and is keeping it quiet."
 
 <b>
 
-……考えすぎか。
+That thought was somewhat frightening, as it felt like being watched. However, it seemed plausible for Dino-sama.
+
+Perhaps when we head to the royal capital, I would be called into a separate room and subjected to some sort of interrogation by Dino-sama.
+
+<b>
+
+...Maybe I'm overthinking it.
 
 <b>
 
@@ -114,123 +114,123 @@
 
 <b>
 
-考えすぎじゃなかった。
+It turns out I wasn't overthinking.
 
 <b>
 
-「お時間を取らせてしまいすみません。エスアール殿」
+"I apologize for taking your time, SR-dono."
 
 <b>
 
-「いえいえ、今日は一日空けてますから問題ありませんよ」
+"No, no, I have the whole day free, so it's not a problem."
 
 <b>
 
-王城の中にある一室。
+In a room within the royal castle.
 
-そういえば昔、Ｂランクダンジョンを踏破した時に称号を示す腕輪を貰ったのもこの部屋だったなぁ。あの時は迅雷の軌跡やセラもいたけれど、今は俺一人。
-
-<b>
-
-お茶を持ってきてくれた使用人の人も早々に退出してしまい、今この部屋には俺とディーノ様の二人だけになっている。俺とディーノ様の話が終わったら、その後は皆と合流して陛下と謁見する予定らしい。
+Come to think of it, this was the same room where I received the bracelet indicating my title when I cleared a B-rank dungeon. Back then, Thunderbolt's Trail and Sera were here, but now it's just me.
 
 <b>
 
-「さて、陛下との謁見も控えていることですし、単刀直入に申し上げましょう。エスアール殿をお一人でお呼びしたのは、貴方とフェノン様の関係についてお聞きしたかったのです」
+The servant who brought tea left quickly, and now it's just me and Dino-sama in this room. After our conversation, it seems I'll join everyone else for an audience with His Majesty.
 
 <b>
 
-おおう。いきなり本題だな。
-
-これまでもディーノ様と顔を合わせる機会はなんどかあったが、ここまでドストレートな質問は初めてだ。これはもはや質問というよりも、最終確認と考えたほうがいいだろうか。
+"Now, since we have an audience with His Majesty coming up, I'll get straight to the point. The reason I called you alone, SR-dono, is that I wanted to ask about your relationship with Fenon-sama."
 
 <b>
 
-「……なんというか、まぁ、ディーノ様のお察しの通りです――もしかしてフェノンから何か話を聞いてましたか？」
+Oh wow. Right to the main topic.
+
+I've had a few opportunities to meet Dino-sama before, but this is the first time I've received such a straightforward question. It might be better to think of this as a final confirmation rather than just a question.
 
 <b>
 
-もともと外堀から埋める作戦だったので、フェノンが俺を持ちあげるようなことを王城内で話していた可能性も十分にある。
+"Well, as you might have guessed, Dino-sama... Did Fenon mention anything to you?"
 
 <b>
 
-「それはもちろん。フェノン様からのお話は、九割エスアール殿の話ですから」
+Since the plan was to approach from the outside, there's a good chance Fenon was talking about me within the royal castle.
 
 <b>
 
-どんだけ俺の話をしてんだよ。
-
-外堀を埋めるにしても、ミキサー車を使ってコンクリートを流し込んでいるような勢いの埋め方だった。力技すぎる。
+"Of course. Ninety percent of what Fenon-sama talked about was about you, SR-dono."
 
 <b>
 
-「私の予想としては、エスアール殿はフェノン様、セラ殿、シリーと恋仲であるのではないかと。どうでしょう？」
+How much has he been talking about me?
+
+Even if the plan was to approach from the outside, it felt like they were pouring concrete with a mixer to fill it in. It was too forceful.
 
 <b>
 
-もはやここまで的確に指摘されて、誤魔化すのは無理じゃないか？　というか、別にもう隠す理由はないのだけども。
+"My guess is that you are in a romantic relationship with Fenon-sama, Sera-dono, and Shiri. What do you think?"
 
 <b>
 
-「セラとフェノンについてはそうですね。シリーについてはまだ……といった感じです」
+At this point, being so accurately pointed out, it seems impossible to dodge the question. Moreover, I don't really have a reason to hide it anymore.
 
 <b>
 
-「なるほど」
+"About Sera and Fenon, yes. As for Shiri, it's still... something like that."
 
 <b>
 
-そう言って顎に手をあてるディーノ様からは、俺の節操のなさに憤慨するような雰囲気は見受けられない。どちらかというと、好意的に考えてくれているような気もする。希望的観測でないことを願うばかりだ。
+"I see."
 
 <b>
 
-「できれば皆様の出会いなど、詳しい話をお伺いしたかったですが、今日は時間的にも難しそうですね。私の個人的な意見としては、エスアール殿がお相手ならとても喜ばしいことだと思います」
+Dino-sama, resting his chin on his hand, didn't seem to express any outrage at my lack of restraint. Rather, it felt like he was considering it positively. I can only hope that it's not just wishful thinking.
 
 <b>
 
-そう言ってディーノ様は、目尻にシワを作って穏やかな笑みを見せる。安堵の息を吐きたい気持ちをこらえつつ「ありがとうございます」と答えた。
+"If possible, I would have liked to hear more about how you all met, but it seems difficult time-wise today. Personally, I think it would be a very happy thing if you are with someone like SR-dono."
 
 <b>
 
-「王都やレーナスの住民はＡＳＲの方々の仲睦まじい姿を目にしており、疑問には思わないでしょう。ただし、何も知らぬ人からすればただの平民と王族の婚姻です。――私の言いたいことはわかりますね？」
+Saying this, Dino-sama showed a gentle smile, creating wrinkles at the corners of his eyes. I held back the urge to sigh in relief and replied, "Thank you."
 
 <b>
 
-俺たちのことをよく知らない――そんな人をも納得させられる実績が必要――ってことだろう。
+"The residents of the royal capital and Reinas have seen the close bond between the members of ASR and won't question it. However, to those who don't know anything, it would just look like a marriage between a commoner and royalty. —You understand what I'm trying to say, right?"
 
 <b>
 
-納得させる――か。
+We need achievements that can convince those who don't know us well.
 
 <b>
 
-……いや、そんな消極的でどうする。
-
-目立つことを――特別扱いされ、腫れ物扱いされ、奇異の視線に晒されることを容認するのであれば、俺は好きなだけ暴れてもいいのだ。
-
-テンペスト時代の――この世界の住民が未だ見たことのないような戦いを見せても構わないのだ。
+Convince them—huh.
 
 <b>
 
-それに、仮に周りが納得しなかったとして俺は彼女たちを諦めるのか？　違う――そうじゃないだろ。
+...No, that's a passive way of thinking.
+
+If I accept being treated specially, being treated as a curiosity, and being exposed to strange gazes, then I can cause as much commotion as I want.
+
+I can show them battles that the residents of this world have never seen before during the Tempest era.
 
 <b>
 
-「えぇ、もちろんです。周りを納得させるだけのことは成し遂げるつもりです。ただ、もしそれでも納得できないという輩が現れたのなら――」
+And even if those around me don't accept it, would I give up on them? No—it's not like that.
 
 <b>
 
-そう言って、俺は一拍の間を置いた。
-
-次の言葉に、強い想いを乗せるために。
+"Yes, of course. I intend to achieve what is necessary to convince those around me. However, if there are still those who refuse to accept it—"
 
 <b>
 
-「――実力で説き伏せてみせましょう」
+I paused for a moment.
+
+To infuse my next words with strong conviction.
 
 <b>
 
-これからは『文句があるならかかってこい』――そんなスタンスで行くことにしてみようか。
+"—I will convince them with my strength."
+
+<b>
+
+From now on, I will adopt the stance of "If you have complaints, come at me."
 
 <b>
 
@@ -246,10 +246,8 @@
 
 <b>
 
-次回更新は8月11日(水)となります。
+The next update will be on August 11 (Wednesday).
 
-週一更新となり、皆様をお待たせしてしまいますが、なにとぞご了承ください((。´・ω・)。´_ _))ペコリ
+It will be a weekly update, and I apologize for keeping you waiting, but I appreciate your understanding ((。´・ω・)。´_ _))ペコリ
 
-<b>
-
-その日にはコミカライズの方も更新されますので、そちらもどうぞよろしくお願い致します┏○ペコッ
+On that day, the comic adaptation will also be updated, so I hope you will look forward to that as well.┏○ペコッ

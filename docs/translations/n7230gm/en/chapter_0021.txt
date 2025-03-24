@@ -1,6 +1,6 @@
-# ２０　彼の正体は……？
+# 20 His True Identity...?
 
-またまたセラ視点のお話です。
+Once again, this is a story from Sera's perspective.
 
 ----------------
 
@@ -12,67 +12,67 @@
 
 <b>
 
-Ｄランクダンジョン前へとやってきた私と迅雷の軌跡は、人目につかない所でステータスウィンドウを操作し、エスアールの言った職業へと転職した。
+Myself and the trajectory of Thunderbolt arrived at the D-rank dungeon, where we operated the status window in a place out of sight and changed jobs to the one that SR mentioned.
 
 <b>
 
-「――？　シンとスズ、今オーブを使ったか？」
+“—? Shin and Suzu, did you just use the orb?”
 
 <b>
 
-私とライカの手には、効力を失い色を失った転職のオーブがある。だが、シンとスズは手ぶらだった。私の見間違いで無ければ、彼らはステータスウィンドウをいじっただけだった。
+In my and Laika's hands were the now ineffective and colorless job change orbs. However, Shin and Suzu were empty-handed. If I wasn't mistaken, they had only fiddled with the status window.
 
 <b>
 
-「実は探索者になる時、拳闘士と剣士で迷ってたんだよ。それで、最初は拳闘士のレベルを上げてたんだ。結局、剣士にしたけどな」
+“Actually, when I was becoming an explorer, I was torn between being a brawler and a swordsman. So, I initially leveled up as a brawler. In the end, I went with swordsman though.”
 
 <b>
 
-「私もシンと同じです。レベル１５まで上げてるですよ」
+“I’m the same as Shin. I’ve leveled up to level 15.”
 
 <b>
 
-「俺は８だな」
+“I’m at 8.”
 
 <b>
 
-なるほど。私の場合、幼い頃から剣術の訓練をしていたから、剣士一択だったが、序盤で転職をするのはよくある話だ。
+I see. In my case, I had been training in swordsmanship since I was young, so it was a clear choice to become a swordsman, but it’s common to change jobs early on.
 
 <b>
 
-しかしながら、エスアールの言うステータスボーナスを獲得して、別の下級職に転職する者は、おそらくいないだろう。
+However, it’s unlikely that anyone would change to another lower class after gaining the status bonuses that SR mentioned.
 
-なぜなら、レベル３０になると上級職へ転職できるようになる。それを無視して、またＦランクダンジョンでレベル１からやり直す――なんてことをする酔狂な探索者は、ほぼいないだろう。私のような貴族ならいざ知らず、基本的に探索者は金銭が目的だからな。
-
-<b>
-
-「私もセラさんと同じレベル１だから、一緒に頑張りましょう」
+Because once you reach level 30, you can change to a higher class. Ignoring that and starting over from level 1 in an F-rank dungeon—such a crazy explorer would be almost non-existent. Unless they were a noble like me, explorers generally aim for monetary gain.
 
 <b>
 
-「あぁ、そうだなライカ。お互い頑張ろう」
+“I’m also at level 1 like Sera-san, so let’s do our best together.”
 
 <b>
 
-私と同じ境遇のライカが声を掛けてくれた。
-
-ただでさえ私はパーティの一員ではないというのに、もし私だけレベル１だったりしたら、申し訳なくてさらに肩身が狭くなっていたところだ。彼女の存在は、疎外感のある私にはありがたい。
+“Yeah, that’s right, Laika. Let’s both do our best.”
 
 <b>
 
-「じゃあ、行くぞ。さっき言った通り、厳しそうなら迷わず緊急帰還だ。エスアールの言っていたことが事実なら、そんな必要はないだろうがな」
+Laika, who was in the same situation as me, spoke up.
+
+It would have been even more embarrassing if I were the only one at level 1, given that I wasn’t even a member of the party. Her presence was a relief for me, who felt isolated.
 
 <b>
 
-シンはまだエスアールに疑いを持っているようだ。スズやライカも口には出さないが、まだ信じきれていないのだろう。その証拠に、シンの言葉を聞いた彼女たちは表情を強ばらせていた。
+“Well then, let’s go. As I said earlier, if it looks tough, don’t hesitate to use the emergency return. If what SR said is true, we probably won’t need to do that.”
 
 <b>
 
-かくいう私も、まだ彼への信頼には靄がかかっているような感じだ。心では信じたいと思っているが、自分自身が体験していない以上、全幅の信頼は置けていない。
+Shin still seems to have doubts about SR. Suzu and Laika also don’t voice it, but they probably haven’t fully trusted him yet. The proof is that upon hearing Shin’s words, their expressions stiffened.
 
 <b>
 
-もし彼の言うとおり、下級職でも問題なくＤランクダンジョンを踏破できたのなら、私の彼に対する信頼は確たるものとなるだろう。
+As for me, I also feel a fog over my trust in him. I want to believe in my heart, but since I haven’t experienced it myself, I can’t place my full trust in him.
+
+<b>
+
+If, as he says, it’s possible to conquer a D-rank dungeon without any issues even with a lower class, then my trust in him would surely solidify.
 
 <b>
 
@@ -80,87 +80,87 @@
 
 <b>
 
-Ｄランクダンジョンの１層。
+The first layer of the D-rank dungeon.
 
-このダンジョンは森林型で、１層に出現する魔物は８０センチほどの背丈があるゴブリンだ。私もレベルが低い頃は、このゴブリンに痛い目を見た経験がある。
-
-<b>
-
-それが今はどうだ。
+This dungeon is forest-type, and the monsters that appear in the first layer are goblins about 80 centimeters tall. I have painful memories of being hurt by these goblins when I was at a low level.
 
 <b>
 
-「こりゃ、エスアールの話はマジだな」
+But how is it now?
 
 <b>
 
-２０匹目――つまり、最後のゴブリンが粒子になっていく様を眺めながら、シンがうわ言のように呟いた。
+“This is serious; SR’s story is true.”
 
 <b>
 
-主に攻撃をしていたのは私とシンの２人。
+As I watched the last goblin, the 20th one, dissipate into particles, Shin muttered as if in a daze.
 
 <b>
 
-神官から魔法士に転職したスズは、ステータスボーナスにより魔法力や魔法防御力は上がっているらしいが、スキルを覚えるレベル２５までは攻撃に参加できない。よって周辺警戒の役目を担当していた。
+The main attackers were myself and Shin.
 
 <b>
 
-ライカは万が一の事態に対応するため、ポーションを片手に持って私やシンの近くで待機していたが、半分の魔物を倒し終えた頃からは、彼女も攻撃に参加し始めた。
+Suzu, who had changed from priest to mage, seems to have increased her magical power and magical defense due to the status bonuses, but she can’t participate in attacks until she reaches level 25 to learn skills. Thus, she was on lookout duty.
 
 <b>
 
-「だから言っただろう。騙されてなどいないと」
+Laika was holding a potion in one hand, waiting near me and Shin in case of an emergency, but she started participating in attacks after we had defeated half of the monsters.
 
 <b>
 
-「……そうだな。今更だが、この情報……ヤバすぎないか？」
+“I told you so. I’m not being deceived.”
 
 <b>
 
-「ですです。罰則がライセンスの永久剥奪では、軽いとさえ感じるです」
+“...Yeah. It’s late to say this, but this information... isn’t it too crazy?”
 
 <b>
 
-「私もそう思うわ。教えてくれたエスアールには、感謝しないとね」
+“Indeed. The penalty of permanent revocation of the license feels light, even.”
 
 <b>
 
-エスアールのもたらした情報がいかに非常識なモノなのか。
-
-彼の言葉が真実だと確信した彼らは、今になってようやく冷や汗をかいていた。
+“I think so too. We should be grateful to SR for sharing this with us.”
 
 <b>
 
-私も平気そうに振舞ってはいるが、実のところ、剣を持つ手が微かに震えてしまっている。
+How unreasonable the information brought by SR is.
 
-なにしろ今までの常識が、たった１人の人間の登場によって覆ってしまったのだ。この時代――まさにこの時が、後に歴史の転換点として語り継がれるのではないかとすら考えてしまう。
-
-もしかすると彼自身、この情報にどれほどの価値があるのか、ハッキリとわかっていないのかもしれない。
+Now that they are convinced that his words are true, they are finally starting to break out in a cold sweat.
 
 <b>
 
-……いや、そんなことよりも今はエリクサー入手を急がねばならない。フェノンの命は残り僅かなのだ。考えている暇があるのなら、今できることをするべきだろう。
+I’m acting calm, but in reality, my hand holding the sword is faintly trembling.
+
+After all, the common sense I had until now has been overturned by the appearance of just one person. This era—this very moment may be spoken of later as a turning point in history.
+
+Perhaps he himself doesn’t clearly understand how valuable this information is.
 
 <b>
 
-「エスアールは私たちに１層から５層の踏破を任せたのだ。感謝をするのならば、しっかりとレベルを上げて、期日までに間に合わせようじゃないか」
+...No, more than that, I must hurry to obtain the elixir. Fenon’s life is running out. If I have time to think, I should be doing what I can now.
 
 <b>
 
-私の言葉に、スズとライカの２人が頷く。
+“SR entrusted us with conquering from the first layer to the fifth layer. If we’re going to be grateful, let’s level up properly and make it in time by the deadline.”
 
 <b>
 
-「なんでお前さんが仕切ってんだよ」
+At my words, both Suzu and Laika nodded.
 
 <b>
 
-シンはそう言いながら苦笑する。
+“Why are you the one taking charge?”
 
 <b>
 
-笑うんじゃない！　パーティを組むのは初めてなんだから、いつもより気合いが入ってしまうのは仕方がないだろう！
+Shin said with a wry smile.
+
+<b>
+
+Don’t laugh! It’s my first time forming a party, so it’s natural that I’m more motivated than usual!
 
 <b>
 
@@ -170,209 +170,207 @@
 
 <b>
 
-<b>
-
-下級職のレベル上げを始めてから６日後、私たち全員のレベルが３０を超えた。夕方には達成できたので、現在私たちは王都の酒場に来ている。
+Six days after starting to level up our lower classes, all of our levels surpassed 30. We achieved this by evening, so currently, we are at a tavern in the royal capital.
 
 <b>
 
-「ひとまず目標達成ってことで、乾杯！」
+“For now, we’ve achieved our goal, so cheers!”
 
 <b>
 
-「「「乾杯！」」」
+“““Cheers!”””
 
 <b>
 
-掛け声と共にグラスをぶつけ合って、それぞれの飲み物を呷る。
+With a shout, we clinked our glasses together and took a sip of our respective drinks.
 
-シンと私はエール。ライカは葡萄酒で、スズは果物のジュースだ。
-
-<b>
-
-「予定より早く終わったのはいいが、本番はこれからだ。明日はセラを含めた連携に力を入れよう。それにお前さん、まだＣランクダンジョンを踏破してなかっただろう？」
+Shin and I had ale. Laika had wine, and Suzu had fruit juice.
 
 <b>
 
-「あぁ。よろしく頼む」
+“It’s good that we finished ahead of schedule, but the real test is just beginning. Tomorrow, let’s focus on coordination including Sera. Also, you haven’t conquered a C-rank dungeon yet, right?”
 
 <b>
 
-私がそう言うと、スズが「気にしないでいいです」と答えた。そして彼女は難しい表情で問いかけてくる。
+“Yeah. I’m counting on you.”
 
 <b>
 
-「それよりも、エスアールです。彼、本当に何者です？」
+When I said that, Suzu replied, “You don’t have to worry about it.” Then she asked with a serious expression.
 
 <b>
 
-「さぁ……実のところ、私もよく知らないんだ」
+“More importantly, what about SR? Who exactly is he?”
 
 <b>
 
-彼が別の世界の住人であることは知っているが、それが彼の知識とどう関係しているのか、さっぱりわからない。
-
-もちろん口止めされているから、彼が異世界人ということは言わないが。
+“Well... to be honest, I don’t know much either.”
 
 <b>
 
-「正直、異常です。みんな、気付いてないです？　例のボーナス以外のことで、彼の知識の凄さを」
+I know he’s from another world, but I have no idea how that relates to his knowledge.
+
+Of course, I won’t mention that he’s from another world since I’ve been told to keep it a secret.
 
 <b>
 
-スズの問いかけに、シンとライカは首を傾げる。
-
-私も、彼女がなんのことを言っているのか理解できなかった。
+“To be honest, it’s abnormal. Doesn’t everyone notice? Aside from the bonus, his knowledge is incredible.”
 
 <b>
 
-「セラさんはエスアールと模擬戦をしたことがあるですよね？」
+At Suzu’s question, Shin and Laika tilted their heads.
+
+I also didn’t understand what she was talking about.
 
 <b>
 
-「あぁ。コテンパンにやられたぞ」
+“Sera-san has fought against SR in a mock battle, right?”
 
 <b>
 
-「他に、彼に戦っているところを見られたことは？」
+“Yeah. I got completely crushed.”
 
 <b>
 
-「それは……ないな。それがどうかしたのか？」
+“Have you seen him fight anyone else?”
 
 <b>
 
-私がそう問いかけると、スズは真面目な表情でそれに答えた。
+“Well... no. Why do you ask?”
 
 <b>
 
-「セラさんに関しては模擬戦の一戦のみ。私たちなんか、現在のレベルと最高到達の階層しか答えてないですよ。なのに、彼は７日という数字を導き出してるです。もし私とシンがレベル１だったら、全員がレベル３０になるのに明日の夜まで掛かっていたと思うですよ。あまりにも的確です」
+When I asked that, Suzu answered with a serious expression.
 
 <b>
 
-言われてみれば……確かにそうだ。
-
-スズの言葉を受けて、皆言葉を失った。彼女は続ける。
+“For Sera-san, there was only that one mock battle. We’ve only told him our current levels and the highest floors we’ve reached. Yet, he deduced the number seven. If Shin and I were at level 1, it would have taken all of us until tomorrow night to reach level 30. It’s just too precise.”
 
 <b>
 
-「何年も探索者をやってきた私たちですら、そこまで正確に把握するのは無理です。彼が神様か何かじゃないかと疑ってしまいそうです」
+Now that you mention it... that’s certainly true.
+
+After hearing Suzu’s words, everyone fell silent. She continued.
 
 <b>
 
-ふむ。確かに一理あるが――、
+“Even for us who have been explorers for years, it’s impossible to grasp that accurately. It makes me wonder if he’s some kind of god or something.”
 
 <b>
 
-「仮にそうだとしたら、わざわざレベル１になって下界に降りてくるか？　それに神様だというなら、エリクサーなんて簡単に作れたりしそうなものだが」
+Hmm. There’s certainly some truth to that—but—
 
 <b>
 
-「…………それもそうですね」
+“If that were the case, would he really come down to the lower world as a level 1? And if he were a god, he should be able to easily create an elixir.”
 
 <b>
 
-私やスズはもちろん、シンとライカも腕を組んで考えている。彼が何者なのか。
-
-しばらくそうしていると、ライカが何か思い出したようで、「あっ」と声を上げた。
+“...That’s true.”
 
 <b>
 
-「そういえば、彼が『負けず嫌い』って話をしていた時に、『俺は全てを奪われても、落ちぶれるつもりはない』って言ってたわよね？　彼はもしかすると、元はとても凄い探索者だったんじゃないかしら？　それが、何かが原因でレベル１に戻ってしまったとか」
+Both I and Suzu, as well as Shin and Laika, crossed our arms and pondered. Who exactly is he?
+
+After a while, Laika seemed to remember something and exclaimed, “Oh!”
 
 <b>
 
-「それならば名前や容姿ぐらい、誰か知っていそうなものだけどな」
+“Speaking of which, when he was talking about being ‘competitive,’ he said, ‘Even if everything is taken from me, I won’t fall.’ Could it be that he was originally a very powerful explorer? Perhaps something caused him to revert to level 1?”
 
 <b>
 
-「そうよね……」
+“If that were the case, someone should at least know his name or appearance.”
 
 <b>
 
-再び４人で腕を組んで再び考える。
-
-その後も、未来や過去から来た人間だとか、神の使徒だとか、勇者だとか様々な憶測が飛び交った。が、どれも確信に至るようなものは無く、打ち上げが結局お開きになるまで、答えが出ることはなかった。
+“Yeah...”
 
 <b>
 
-彼が勇者でないことははっきりしているのだが、私は敢えて口にすることはしなかった。そのことを話すと、自然と彼が異世界人であることが露見してしまいそうだったからだ。
+Once again, the four of us crossed our arms and thought.
+
+After that, various speculations flew around, such as him being a person from the future or past, an apostle of a god, or a hero. However, none of them led to any certainty, and we didn’t come to a conclusion until the gathering eventually broke up.
 
 <b>
 
-そろそろ帰ろうか――そんな話をしている時、シンが私に聞いた。
+It’s clear that he is not a hero, but I deliberately chose not to voice that. If I talked about it, it would naturally reveal that he is from another world.
 
 <b>
 
-「そういえばお前さんとエスアールの模擬戦は、どんな感じだったんだよ。手も足も出なかったとは聞いたが、どんな風にやられたんだ？」
+As we were discussing whether to head home soon, Shin asked me.
 
 <b>
 
-彼は興味津々といった様子で、少し前のめりになっていた。
+“By the way, how was your mock battle with SR? I heard you couldn’t even lay a hand on him, but how did that go?”
 
 <b>
 
-「そうだな……私も気がたっていたから、あまり細かいことは覚えていないが、とにかく攻撃が当たらないんだ」
+He looked very interested and leaned slightly forward.
 
 <b>
 
-今思い出しても、彼の動きはまったく無駄がなかったと思える。こちらが１０の力で攻撃をしているのに対して、彼は１の力で回避をする――そんな感じだった。
+“Well... I was so tense that I don’t remember the details well, but basically, I couldn’t land a hit.”
 
 <b>
 
-「ふーん。そう言えばあいつ、Ｃランクダンジョンのボス相手に回避の訓練をしてたとか――って、もしかしてアレもマジなのか」
+Even now, I think his movements were completely without waste. While I was attacking with a power of 10, he was dodging with a power of 1—that’s how it felt.
 
 <b>
 
-「今となっては、真実である可能性が高く思えるですね」
+“Hmm. Speaking of which, I heard he was training his evasion against the boss of a C-rank dungeon—wait, could that be true too?”
 
 <b>
 
-私は２人に顔を向けて頷くと、模擬戦の時の話を進めた。
+“Now it seems likely to be true.”
 
 <b>
 
-「当たりそうなんだが、当たらないんだ。彼は一度だけ私の攻撃と同時に前に出てきてな、攻撃を躱しながら、顎を掌底で打ち抜いてきた。私はその一発で気を失ってしまったよ」
+I nodded at the two and continued with the story of the mock battle.
 
 <b>
 
-「――はっ、そりゃ手も足も出ないなんて言うわけだ」
+“It felt like I was about to hit him, but I couldn’t. There was one time he stepped forward at the same time as my attack, dodging it and striking my jaw with his palm. I lost consciousness from that one hit.”
 
 <b>
 
-「反撃が得意なのかしらね」
+“—Ah, so that’s why you said you couldn’t do anything.”
 
 <b>
 
-ライカが口にした言葉に、私は「そうだと思う」と答える。
+“Is he good at counterattacks, I wonder?”
 
 <b>
 
-「何しろ試合前に『弱そう』だとか、散々煽られたからな。彼本人も、攻められるほうが戦いやすいと言っていた」
+Laika said, and I replied, “I think so.”
 
 <b>
 
-こちらから攻撃しないと、勝つことはできない。しかしこちらから攻撃を仕掛けると、反撃されてしまう。
-
-全く攻撃の当たらない彼に勝つ光景を、私は想像することができなかった。
+“After all, before the match, he kept taunting me, saying I looked ‘weak.’ He himself said he finds it easier to fight when he’s on the offensive.”
 
 <b>
 
-そして、スズが発言する。
+If I don’t attack, I can’t win. But if I do attack, I’ll be countered.
+
+I couldn’t imagine a scene where I would win against him, who couldn’t be hit at all.
 
 <b>
 
-「彼が魔物を相手にどんな戦いをするのか、今から楽しみです。何しろ魔物は例外なく好戦的ですから」
+Then, Suzu spoke up.
 
 <b>
 
-その言葉に、私を含む他の３人は息を飲んだ。
+“I’m looking forward to seeing how he fights against monsters. After all, monsters are universally aggressive.”
 
 <b>
 
-私も彼と共に行動していたが、魔物と戦っているところはもちろん、彼が戦うところを客観的に見たことはない。
+At her words, the other three, including myself, gasped.
 
-はたして、これだけの知識を持ち、技量と才能を併せ持つ彼がどんな戦いをするのか――私は見てみたいと思う反面、見るのが怖いとさえ思ってしまった。
+<b>
+
+I had been acting alongside him, but of course, I had never seen him fight against monsters, nor had I seen him fight from an objective standpoint.
+
+Just how would he, with such knowledge and combined skills and talent, fight?—I wanted to see it, yet at the same time, I was scared to see it.
 
 <b>
 
@@ -386,12 +384,10 @@
 
 <b>
 
-お読みいただきありがとうございます┏○ペコッ
+Thank you for reading┏○ペコッ
 
 <b>
 
-広告の下にある☆☆☆☆☆をタッチすると、作者が元気になります。
+If you touch the ☆☆☆☆☆ below the advertisement, the author will feel energized.
 
-この物語を『面白い』、『続きが気になる』と思っていただけたら、
-
-私は星が色づくほど元気になりますので、ご協力お願いします┏○ペコッ
+If you find this story “interesting” or “want to know what happens next,” I will feel energized enough for the stars to change color, so I appreciate your cooperation┏○ペコッ

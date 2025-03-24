@@ -1,7 +1,7 @@
 ###### [Next Chapter](./chapter_0082.md)
 ###### [Previous Chapter](./chapter_0080.md)&nbsp;/&nbsp;
 
-# ７８　ユカリムスビ
+# 78 Yukarimusubi
 
 ## ７８　ユカリムスビ
 
@@ -11,449 +11,449 @@
 
 &nbsp;
 
-#### 俺の知らないところで企画されていたサプライズパーティは、見事に標的を驚かせることに成功したと言っていい。
+#### The surprise party that was planned without my knowledge can be said to have successfully astonished its target.
 
 *俺の知らないところで企画されていたサプライズパーティは、見事に標的を驚かせることに成功したと言っていい。*
 
-#### 件の標的は、マジでビックリしたわ――などと漏らしております。
+#### The target in question was genuinely surprised――or so they say.
 
 *件の標的は、マジでビックリしたわ――などと漏らしております。*
 
 &nbsp;
 
-#### 祝われて嬉しい気持ち。
+#### A feeling of happiness at being celebrated.
 
 *祝われて嬉しい気持ち。*
 
-#### 思いがけず主役になって恥ずかしい気持ち。
+#### A feeling of embarrassment at unexpectedly becoming the main character.
 
 *思いがけず主役になって恥ずかしい気持ち。*
 
-#### 皆の時間を奪って申し訳ない気持ち。
+#### A feeling of guilt for taking everyone’s time.
 
 *皆の時間を奪って申し訳ない気持ち。*
 
 &nbsp;
 
-#### 様々な感情が押し寄せてきたが、やはり嬉しさに勝るものはなかった。地球にいたころの俺には到底考えられないようなイベントである。
+#### Various emotions surged, but nothing surpassed the joy. It was an event unimaginable during my time on Earth.
 
 *様々な感情が押し寄せてきたが、やはり嬉しさに勝るものはなかった。地球にいたころの俺には到底考えられないようなイベントである。*
 
 &nbsp;
 
-#### わいわいと賑やかに話す迅雷の軌跡と俺のパーティメンバー。
+#### The lively conversations of the Thunderbolt's crew and my party members.
 
 *わいわいと賑やかに話す迅雷の軌跡と俺のパーティメンバー。*
 
 &nbsp;
 
-#### もちろん主役である俺も会話に加わっているが、皆が笑って楽しく食事をしている風景を見ているだけでも楽しい気分になる。シリーが準備してくれた料理も、普段見るモノとは違い豪華かつ珍しい食べ物ばかりで、非日常感を演出するのに一役買っていた。
+#### Of course, I, the main character, am also partaking in the conversation, but just watching everyone laugh and enjoy their meal brings me joy. The dishes prepared by Shiri were all luxurious and rare foods, unlike anything I usually see, contributing to the extraordinary atmosphere.
 
 *もちろん主役である俺も会話に加わっているが、皆が笑って楽しく食事をしている風景を見ているだけでも楽しい気分になる。シリーが準備してくれた料理も、普段見るモノとは違い豪華かつ珍しい食べ物ばかりで、非日常感を演出するのに一役買っていた。*
 
 &nbsp;
 
-#### 「――んっ！」
+#### “――Mmm!”
 
 *「――んっ！」*
 
 &nbsp;
 
-#### 口にチキンを咥えた状態のシンが手を打ち鳴らす。どうやら何かを思い出したらしい。
+#### Shin, with a piece of chicken in his mouth, claps his hands. It seems he remembered something.
 
 *口にチキンを咥えた状態のシンが手を打ち鳴らす。どうやら何かを思い出したらしい。*
 
-#### 称号持ちも伯爵令嬢も――さらには王族までいるのにもかかわらず、マナーもへったくれもない食事風景であるが、相手に気を許しきったこの雰囲気が俺はとても好きだ。
+#### Despite the presence of title holders, a countess, and even royalty, the dining scene is utterly lacking in manners, but I really like this atmosphere where everyone has let their guard down.
 
 *称号持ちも伯爵令嬢も――さらには王族までいるのにもかかわらず、マナーもへったくれもない食事風景であるが、相手に気を許しきったこの雰囲気が俺はとても好きだ。*
 
-#### 彼はふがふがと何かを言いながら、テーブルの上にあった料理を少し移動させてスペースを作った。
+#### He mumbles something while moving some dishes on the table to create space.
 
 *彼はふがふがと何かを言いながら、テーブルの上にあった料理を少し移動させてスペースを作った。*
 
 &nbsp;
 
-#### 「シン、さすがに行儀が悪いです」
+#### “Shin, that’s really bad manners.”
 
 *「シン、さすがに行儀が悪いです」*
 
 &nbsp;
 
-#### 「そうよ。フェノン様もいらっしゃるんだから……」
+#### “Exactly. We have Lady Phenon here, after all…”
 
 *「そうよ。フェノン様もいらっしゃるんだから……」*
 
 &nbsp;
 
-#### 迅雷の軌跡の女性陣がたしなめるように言う。シンはバツが悪そうにしつつ肉の部分を咀嚼して飲み込むと、骨を皿に置いてから「すまん」と一言。
+#### The women of Thunderbolt’s crew admonish him. Shin, looking a bit embarrassed, chews and swallows the meat, places the bone on the plate, and mutters, “Sorry.”
 
 *迅雷の軌跡の女性陣がたしなめるように言う。シンはバツが悪そうにしつつ肉の部分を咀嚼して飲み込むと、骨を皿に置いてから「すまん」と一言。*
 
-#### やーい、怒られてやんのー。
+#### Ha, you’re getting scolded.
 
 *やーい、怒られてやんのー。*
 
-#### 気落ちしているシンをニヤニヤと眺めていると、お上品に食事を進めるフェノンが彼に声を掛けた。
+#### As I watch the downcast Shin with a grin, Phenon, who is elegantly enjoying her meal, calls out to him.
 
 *気落ちしているシンをニヤニヤと眺めていると、お上品に食事を進めるフェノンが彼に声を掛けた。*
 
 &nbsp;
 
-#### 「別にマナーなんて気にしなくていいわ。ここには探索者しかいないのだし……それにエスアールさんも堅苦しい食事は嫌ですよね？」
+#### “You don’t have to worry about manners. There are only explorers here… Besides, SR doesn’t like stiff meals, right?”
 
 *「別にマナーなんて気にしなくていいわ。ここには探索者しかいないのだし……それにエスアールさんも堅苦しい食事は嫌ですよね？」*
 
 &nbsp;
 
-#### 「んー、まぁそうだな。面倒くさい」
+#### “Hmm, well, that’s true. It’s a hassle.”
 
 *「んー、まぁそうだな。面倒くさい」*
 
 &nbsp;
 
-#### 「そうですよねっ！」
+#### “Right!”
 
 *「そうですよねっ！」*
 
 &nbsp;
 
-#### ぱぁ――と満面の笑みを浮かべるフェノン。
+#### Phenon beams with a bright smile.
 
 *ぱぁ――と満面の笑みを浮かべるフェノン。*
 
-#### 俺の意見を言い当てて嬉しいのだろうけど、たったこれだけのことでよくそんな顔ができるな。
+#### She must be happy to have guessed my opinion, but I can’t believe she can make such a face over something so trivial.
 
 *俺の意見を言い当てて嬉しいのだろうけど、たったこれだけのことでよくそんな顔ができるな。*
 
 &nbsp;
 
-#### そんなことよりこのステーキ美味い。なんの肉だろ？
+#### More importantly, this steak is delicious. What kind of meat is this?
 
 *そんなことよりこのステーキ美味い。なんの肉だろ？*
 
-#### 目を閉じて舌に意識を集中させていると、ぽんぽんと肩を叩かれる。
+#### As I close my eyes and focus on the taste on my tongue, I feel a tap on my shoulder.
 
 *目を閉じて舌に意識を集中させていると、ぽんぽんと肩を叩かれる。*
 
 &nbsp;
 
-#### 「とろけた顔しているところ悪いが、エスアール。俺たちからのプレゼントだ」
+#### “Sorry to interrupt your bliss, SR. This is a gift from us.”
 
 *「とろけた顔しているところ悪いが、エスアール。俺たちからのプレゼントだ」*
 
 &nbsp;
 
-#### 女性陣に注意を受けてしまったからか、やや曇った表情でシンが言う。彼はインベントリからポーションを取り出して、テーブルの上に並べていった。
+#### Perhaps because he was scolded by the women, Shin speaks with a slightly clouded expression. He pulls out potions from his inventory and starts lining them up on the table.
 
 *女性陣に注意を受けてしまったからか、やや曇った表情でシンが言う。彼はインベントリからポーションを取り出して、テーブルの上に並べていった。*
 
-#### コト、コト、コト――と、彼は一本一本丁寧にポーションの入った瓶を並べる。
+#### Clink, clink, clink――he carefully arranges each bottle of potion.
 
 *コト、コト、コト――と、彼は一本一本丁寧にポーションの入った瓶を並べる。*
 
 &nbsp;
 
-#### １０本――２０本――３０本――。
+#### Ten――twenty――thirty――.
 
 *１０本――２０本――３０本――。*
 
 &nbsp;
 
-#### 多いなっ！！　いったい何本出すつもりだ！？
+#### That’s a lot!! How many does he plan to bring out!?
 
 *多いなっ！！　いったい何本出すつもりだ！？*
 
 &nbsp;
 
-#### 「えーっと、エリクサーが１０本と、上級ポーション５０本だな。プレゼントらしい物はたぶんそっちのメンバーが用意してるだろうから、俺たちは実用的な物を持ってきたぞ。お前さんは王都のＢランクダンジョンに潜ってないから、エリクサーが心もとなくなっているんじゃないかと思ってな。上級ポーションはついでだ」
+#### “Uh, we have ten elixirs and fifty superior potions. The more gift-like items are probably prepared by the other members, so we brought practical items. I thought you might be running low on elixirs since you haven’t been diving into the B-rank dungeons in the royal capital. The superior potions are just a bonus.”
 
 *「えーっと、エリクサーが１０本と、上級ポーション５０本だな。プレゼントらしい物はたぶんそっちのメンバーが用意してるだろうから、俺たちは実用的な物を持ってきたぞ。お前さんは王都のＢランクダンジョンに潜ってないから、エリクサーが心もとなくなっているんじゃないかと思ってな。上級ポーションはついでだ」*
 
 &nbsp;
 
-#### 「大量だな……助かるけどさ」
+#### “That’s a lot… but it’s helpful.”
 
 *「大量だな……助かるけどさ」*
 
 &nbsp;
 
-#### シンの言う通り、エリクサーは王都のダンジョンでしか手に入らないので、レーナスに拠点を置く俺からすれば取りに行くのが非常に面倒だ。
+#### As Shin said, elixirs can only be obtained in the dungeons of the royal capital, so for me, based in Renus, it’s quite a hassle to go get them.
 
 *シンの言う通り、エリクサーは王都のダンジョンでしか手に入らないので、レーナスに拠点を置く俺からすれば取りに行くのが非常に面倒だ。*
 
-#### エリクサーを使用しなければいけないような危険な戦い方はしていないが、ストックは多いに越したことはない。
+#### I’m not engaging in any dangerous fights that require using elixirs, but having a stockpile is always better.
 
 *エリクサーを使用しなければいけないような危険な戦い方はしていないが、ストックは多いに越したことはない。*
 
 &nbsp;
 
-#### 「いいのか？　こんなに貰って」
+#### “Is it really okay to receive this much?”
 
 *「いいのか？　こんなに貰って」*
 
 &nbsp;
 
-#### シン以外の女性メンバーに視線を向けて問いかける。
+#### I direct my gaze to the female members other than Shin to ask.
 
 *シン以外の女性メンバーに視線を向けて問いかける。*
 
-#### スズもライカも首を縦に振った。
+#### Suzu and Laika both nod.
 
 *スズもライカも首を縦に振った。*
 
 &nbsp;
 
-#### 「今はＡランクダンジョンに潜ってるですが、一時期は例のサイクロプスばかり倒してたですからね。陛下にもエリクサーを売ってるですが、正直言って有り余ってるですよ。欲しかったらいつでも売るです」
+#### “I’m currently diving into A-rank dungeons, but for a while, I was just defeating that cyclops. I also sell elixirs to His Majesty, and to be honest, I have plenty. If you want some, I can sell them anytime.”
 
 *「今はＡランクダンジョンに潜ってるですが、一時期は例のサイクロプスばかり倒してたですからね。陛下にもエリクサーを売ってるですが、正直言って有り余ってるですよ。欲しかったらいつでも売るです」*
 
 &nbsp;
 
-#### 「はは、そりゃ助かる」
+#### “Haha, that’s helpful.”
 
 *「はは、そりゃ助かる」*
 
 &nbsp;
 
-#### 彼女たちもエリクサーを消費するような戦い方はしていないだろうから、使う機会がないのだろう。エリクサーは保険としては有用だが、あくまで保険。滅多に使わないからな。
+#### Since they probably aren’t fighting in a way that consumes elixirs either, they likely have no opportunity to use them. Elixirs are useful as insurance, but they are just that—insurance. They are rarely used.
 
 *彼女たちもエリクサーを消費するような戦い方はしていないだろうから、使う機会がないのだろう。エリクサーは保険としては有用だが、あくまで保険。滅多に使わないからな。*
 
 &nbsp;
 
-#### とはいえ、パーティメンバーの命を預かっている俺としては、いくらでも持っておきたいアイテムだ。
+#### That said, as someone responsible for the lives of my party members, I want to have as many of those items as possible.
 
 *とはいえ、パーティメンバーの命を預かっている俺としては、いくらでも持っておきたいアイテムだ。*
 
-#### 彼女たちは絶対に死なせやしない。少なくとも、俺が生きているうちは。
+#### I will never let them die. At least, not while I’m alive.
 
 *彼女たちは絶対に死なせやしない。少なくとも、俺が生きているうちは。*
 
-#### 怪我や病気じゃなくて、幸せな老衰で死を迎えるのがベストだな。
+#### It’s best to meet death from a happy old age, not from injury or illness.
 
 *怪我や病気じゃなくて、幸せな老衰で死を迎えるのがベストだな。*
 
 &nbsp;
 
-#### なんて、サラダをシャクシャクと頬張りながら決意を新たにしていると、シリーが俺の傍に寄ってきた。
+#### As I chew on my salad and reaffirm my resolve, Shiri comes over to me.
 
 *なんて、サラダをシャクシャクと頬張りながら決意を新たにしていると、シリーが俺の傍に寄ってきた。*
 
 &nbsp;
 
-#### 「順番的には私ですね」
+#### “Next up is my turn.”
 
 *「順番的には私ですね」*
 
 &nbsp;
 
-#### そう言って、彼女がインベントリから取りだしたのは――手袋？　いや、違うな。
+#### Saying that, she pulls out from her inventory――gloves? No, that’s not it.
 
 *そう言って、彼女がインベントリから取りだしたのは――手袋？　いや、違うな。*
 
 &nbsp;
 
-#### 「これは剣士の方が好んで使用するグローブです。薄手で強い素材ですから、邪魔にもならないと思います」
+#### “These are gloves preferred by swordsmen. They’re made of a thin, strong material, so I don’t think they’ll get in the way.”
 
 *「これは剣士の方が好んで使用するグローブです。薄手で強い素材ですから、邪魔にもならないと思います」*
 
 &nbsp;
 
-#### 水色のリボンが巻かれた、黒色の指ぬきグローブ。
+#### Black fingerless gloves wrapped with a light blue ribbon.
 
 *水色のリボンが巻かれた、黒色の指ぬきグローブ。*
 
-#### ゲームの時はそもそもこんな装備がなかったし、今の俺の手の平のようにマメができるようなことも無かった。マメがつぶれた時はポーションをかけて傷口を塞いでいたけど、固くなった皮膚までは元通りにはならない。
+#### There weren’t any such equipment in the game, and my palms didn’t get calloused like they do now. When my calluses burst, I would apply potions to seal the wounds, but the hardened skin wouldn’t return to normal.
 
 *ゲームの時はそもそもこんな装備がなかったし、今の俺の手の平のようにマメができるようなことも無かった。マメがつぶれた時はポーションをかけて傷口を塞いでいたけど、固くなった皮膚までは元通りにはならない。*
 
-#### そんな俺にとってこのグローブは、とてもありがたい代物だった。
+#### For someone like me, these gloves are a very welcome item.
 
 *そんな俺にとってこのグローブは、とてもありがたい代物だった。*
 
 &nbsp;
 
-#### 「着けてみてもいいか？」
+#### “Can I try them on?”
 
 *「着けてみてもいいか？」*
 
 &nbsp;
 
-#### 「もちろんです！」
+#### “Of course!”
 
 *「もちろんです！」*
 
 &nbsp;
 
-#### 了承を得た俺はリボンをそろそろと解き、さっそく両手にそのグローブを嵌めてみる。
+#### After receiving her permission, I carefully untie the ribbon and put the gloves on both hands.
 
 *了承を得た俺はリボンをそろそろと解き、さっそく両手にそのグローブを嵌めてみる。*
 
 &nbsp;
 
-#### おぉ……これはかっこいい。
+#### Oh… these look cool.
 
 *おぉ……これはかっこいい。*
 
-#### 封印されていた中二心が刺激されてしまいそうだ。
+#### My long-suppressed inner middle schooler is being stimulated.
 
 *封印されていた中二心が刺激されてしまいそうだ。*
 
 &nbsp;
 
-#### ぴっちりと肌に吸い付くようで、シリーの言う通りまったく邪魔にならない。インベントリから刀を取りだして握ってみたが、握り心地も普段と変わりはないので、戦闘に影響はなさそうだ。もし影響があったとしても使うけど。
+#### They fit snugly against my skin, and just as Shiri said, they don’t get in the way at all. I take out my sword from my inventory and grip it, but the feel is no different from usual, so it seems it won’t affect combat. Even if it did, I would still use them.
 
 *ぴっちりと肌に吸い付くようで、シリーの言う通りまったく邪魔にならない。インベントリから刀を取りだして握ってみたが、握り心地も普段と変わりはないので、戦闘に影響はなさそうだ。もし影響があったとしても使うけど。*
 
 &nbsp;
 
-#### 「嬉しいのはわかるが、ここで刃物を振り回すなよ？」
+#### “I know you’re happy, but don’t swing around sharp objects here, okay?”
 
 *「嬉しいのはわかるが、ここで刃物を振り回すなよ？」*
 
 &nbsp;
 
-#### 「わ、わかってるよ」
+#### “I-I know.”
 
 *「わ、わかってるよ」*
 
 &nbsp;
 
-#### あぶねぇ。素振りしようかと思ってたわ。
+#### That was close. I almost thought about practicing my swings.
 
 *あぶねぇ。素振りしようかと思ってたわ。*
 
-#### いそいそとインベントリに刀とグローブを収納しつつシリーにお礼を言うと、彼女はニコニコと笑顔で「はい」と返事をしてくれた。
+#### As I hurriedly put the sword and gloves back into my inventory and thanked Shiri, she smiled and replied, “Yes.”
 
 *いそいそとインベントリに刀とグローブを収納しつつシリーにお礼を言うと、彼女はニコニコと笑顔で「はい」と返事をしてくれた。*
 
-#### 危うく惚れてしまいそうになるが、これ以上節操のない恋愛はマズイと自分に言い聞かせて事なきを得る。実に危なかった。
+#### I almost found myself falling for her, but I remind myself that such reckless romance would be bad, and I manage to avoid that. It was truly close.
 
 *危うく惚れてしまいそうになるが、これ以上節操のない恋愛はマズイと自分に言い聞かせて事なきを得る。実に危なかった。*
 
 &nbsp;
 
-#### 「最後は私とフェノンからだな。２人で協力して作ったモノだから、失くさないでくれよ」
+#### “Lastly, it’s from me and Phenon. We made it together, so don’t lose it.”
 
 *「最後は私とフェノンからだな。２人で協力して作ったモノだから、失くさないでくれよ」*
 
 &nbsp;
 
-#### 恥ずかしさを隠すように、早口かつぶっきらぼうにセラが言う。耳が赤いから照れているのは丸わかりなんだが……気付いていないことにしようか。
+#### Trying to hide her embarrassment, Sera speaks quickly and bluntly. It’s clear she’s blushing from her red ears, but… let’s pretend I didn’t notice.
 
 *恥ずかしさを隠すように、早口かつぶっきらぼうにセラが言う。耳が赤いから照れているのは丸わかりなんだが……気付いていないことにしようか。*
 
 &nbsp;
 
-#### セラが俺に向かって差し出してきた手の上には、直径五センチほどの木製の円盤――そして、それに繋がる革ひも。
+#### On the hand that Sera extends toward me is a wooden disc about five centimeters in diameter――and a leather cord connected to it.
 
 *セラが俺に向かって差し出してきた手の上には、直径五センチほどの木製の円盤――そして、それに繋がる革ひも。*
 
-#### 円盤には花の模様が彫り込まれているが、職人が作ったような完成度の高い物ではなく、手作りのぬくもりが伝わってくるような仕上がりだった。
+#### The disc has a flower pattern carved into it, but it’s not a high-quality piece made by a craftsman; it has a handmade warmth to it.
 
 *円盤には花の模様が彫り込まれているが、職人が作ったような完成度の高い物ではなく、手作りのぬくもりが伝わってくるような仕上がりだった。*
 
 &nbsp;
 
-#### ガラス細工でも触るかのように、恐る恐るその木製の物体を手に取った。
+#### I cautiously pick up the wooden object as if I were handling glasswork.
 
 *ガラス細工でも触るかのように、恐る恐るその木製の物体を手に取った。*
 
-#### 造りから考えて、首から下げるお守りってところだろうか？
+#### Considering its construction, it seems to be an amulet to hang around the neck?
 
 *造りから考えて、首から下げるお守りってところだろうか？*
 
 &nbsp;
 
-#### 「もしかしてフェノンとセラが彫ったのか？」
+#### “Did you and Phenon carve this?”
 
 *「もしかしてフェノンとセラが彫ったのか？」*
 
 &nbsp;
 
-#### 「はい！　この辺りは私が彫ったんですよ！　こっちのちょっと雑なところはセラです」
+#### “Yes! I carved this part! The slightly rough part over here is Sera’s work.”
 
 *「はい！　この辺りは私が彫ったんですよ！　こっちのちょっと雑なところはセラです」*
 
 &nbsp;
 
-#### 「ち、違うんだエスアール！　その部分はちょっと手が滑っただけで――。こ、ここ！　花びらが曲がっているのはフェノンの仕業だぞ」
+#### “N-No, SR! That part was just a slip of the hand――. Th-This part! The bent petal was Phenon’s doing.”
 
 *「ち、違うんだエスアール！　その部分はちょっと手が滑っただけで――。こ、ここ！　花びらが曲がっているのはフェノンの仕業だぞ」*
 
 &nbsp;
 
-#### 「くしゃみが出たんだから仕方ないでしょ！」
+#### “It can’t be helped if I sneezed!”
 
 *「くしゃみが出たんだから仕方ないでしょ！」*
 
 &nbsp;
 
-#### きゃいきゃいと言い合いを始めてしまった。
+#### They start bickering playfully.
 
 *きゃいきゃいと言い合いを始めてしまった。*
 
-#### といっても、本当に喧嘩をしている雰囲気ではなく、楽し気なやりとりだから放っておいても大丈夫そうだな。
+#### That said, it doesn’t feel like they’re really fighting; their exchange seems fun, so it looks fine to leave them be.
 
 *といっても、本当に喧嘩をしている雰囲気ではなく、楽し気なやりとりだから放っておいても大丈夫そうだな。*
 
-#### 聞こえているかわからないが、とりあえず二人に向かって「ありがとう」と口にする。
+#### I’m not sure if they can hear me, but I go ahead and say “thank you” to both of them.
 
 *聞こえているかわからないが、とりあえず二人に向かって「ありがとう」と口にする。*
 
 &nbsp;
 
-#### 「それはユカリムスビという花です。地中に這う根がとても長く、その長さは数十メートルにも及び、ユカリムスビ同士で繋がっているです。だからその花には、遠く離れたとしても心は繋がっているだとか、そんな意味があるですよ」
+#### “That’s a flower called Yukarimusubi. Its roots crawl underground and can extend for dozens of meters, connecting with other Yukarimusubi. So that flower symbolizes that even if we are far apart, our hearts are connected.”
 
 *「それはユカリムスビという花です。地中に這う根がとても長く、その長さは数十メートルにも及び、ユカリムスビ同士で繋がっているです。だからその花には、遠く離れたとしても心は繋がっているだとか、そんな意味があるですよ」*
 
 &nbsp;
 
-#### 俺の手元を覗き込みながらスズが言う。
+#### Suzu says while peering at my hand.
 
 *俺の手元を覗き込みながらスズが言う。*
 
-#### どうやら俺がなんの花なのかわかっていないのを察してくれたらしい。地球では聞いたことのない花の名だな。
+#### It seems she noticed that I didn’t know what kind of flower it was. It’s a name of a flower I’ve never heard of on Earth.
 
 *どうやら俺がなんの花なのかわかっていないのを察してくれたらしい。地球では聞いたことのない花の名だな。*
 
-#### スズの話を耳に入れながらその花を眺めていると、フェノンがぐいっと顔を寄せてくる。
+#### As I gaze at the flower while listening to Suzu’s explanation, Phenon leans in closer.
 
 *スズの話を耳に入れながらその花を眺めていると、フェノンがぐいっと顔を寄せてくる。*
 
 &nbsp;
 
-#### 「もちろん！　離れるつもりはありませんわっ！」
+#### “Of course! I have no intention of leaving you!”
 
 *「もちろん！　離れるつもりはありませんわっ！」*
 
 &nbsp;
 
-#### 「ユカリムスビの根は頑丈だからな。『決して離さない』なんて意味もあったりするんだぞ」
+#### “The roots of Yukarimusubi are sturdy. It also has the meaning of ‘never letting go.’”
 
 *「ユカリムスビの根は頑丈だからな。『決して離さない』なんて意味もあったりするんだぞ」*
 
 &nbsp;
 
-#### フェノンに引き続き、セラが誇らしげに胸を張って言う。
+#### Following Phenon, Sera proudly puffs out her chest as she says this.
 
 *フェノンに引き続き、セラが誇らしげに胸を張って言う。*
 
 &nbsp;
 
-#### セラよ……知識を披露して悦に入っているところ悪いが、お前はその『決して離さない』という意味がある花を俺に贈っているんだぞ？　少しは恥ずかしがれよ。
+#### Sera… I hate to burst your bubble while you’re showing off your knowledge, but you’re giving me a flower that has the meaning of “never letting go,” you know? You should be a bit embarrassed.
 
 *セラよ……知識を披露して悦に入っているところ悪いが、お前はその『決して離さない』という意味がある花を俺に贈っているんだぞ？　少しは恥ずかしがれよ。*
 
 &nbsp;
 
-#### なんてことを思っていたら、ライカがそのことをニヤニヤとしながらセラに指摘した。彼女は電池の切れたオモチャのように、ピシリと動きを止める。
+#### As I think this, Laika points it out to Sera with a grin. She freezes like a toy with dead batteries.
 
 *なんてことを思っていたら、ライカがそのことをニヤニヤとしながらセラに指摘した。彼女は電池の切れたオモチャのように、ピシリと動きを止める。*
 
 &nbsp;
 
-#### 口をアワアワと動かしたかと思うと、みるみるうちにセラの顔はよく熟れたトマトのように赤くなる。そして彼女は一目散にトイレへと走っていった。
+#### After moving her mouth in a fluster, Sera’s face quickly turns as red as a ripe tomato. Then she dashes off to the restroom.
 
 *口をアワアワと動かしたかと思うと、みるみるうちにセラの顔はよく熟れたトマトのように赤くなる。そして彼女は一目散にトイレへと走っていった。*
 
@@ -461,7 +461,7 @@
 
 &nbsp;
 
-#### まるで逃げるように去っていくセラの後ろ姿をみて笑ってしまったのは、俺だけではあるまい。
+#### I’m not the only one who laughed at Sera’s retreating figure, am I?
 
 *まるで逃げるように去っていくセラの後ろ姿をみて笑ってしまったのは、俺だけではあるまい。*
 

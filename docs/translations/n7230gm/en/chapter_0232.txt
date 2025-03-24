@@ -1,4 +1,4 @@
-# Aー１１５　新たなダンジョンは……
+# A-115 The New Dungeon is...
 
 <b>
 
@@ -6,229 +6,229 @@
 
 <b>
 
-レグルスさんにもたらされた情報を頼りに、俺たちはさっそく現地に急行した。
+Relying on the information brought to us by Regulus, we hurried to the site.
 
 <b>
 
-父さんと母さんは当たり前だがお留守番。さすがにレベル１の状態で最上級のダンジョンには連れて行けないからな。死にはしないけども。
+Of course, my father and mother stayed behind. I can't take them to a top-tier dungeon in their level 1 state. They wouldn't die, but still.
 
 <b>
 
-レグルスさんから聞いた通り、それは王都の西――道沿いに出現していた。
+As Regulus had told us, it was located to the west of the royal capital—appearing along the road.
 
 <b>
 
-しかし、それは建築物というよりも舞台のような感じで、高さは一メートルもない。段差を二段上がって、あとはだだっ広い石畳が円形に広がっているような感じだった。
+However, it felt more like a stage than a building, standing less than a meter tall. It seemed like there was a wide stone pavement spreading out in a circular shape after stepping up two levels.
 
 <b>
 
-周囲には騎士団が均等感覚で並んでいて、他の人が不用意に入らないように警戒しているようだった。
+Surrounding it, the knight order was lined up at equal intervals, seemingly on guard to prevent anyone else from entering carelessly.
 
 <b>
 
-「どうも、お邪魔します」
+"Excuse us for intruding."
 
 <b>
 
-この挨拶でいいのだろうか？　と疑問に思いつつ、顔パスで警備の内側へ。
+I wondered if this greeting was appropriate as I entered the security area without any issues.
 
-今回一緒に来ているのは、ＡＳＲ、迅雷の軌跡、そして地球組の二人。
-
-<b>
-
-おそらくＳランクダンジョン未クリアの迅雷の軌跡は入れないのだろうけど、それの確認もかねてって感じでついて来た。あとは単純に、近くで見てみたかったのだろう。
+Accompanying me this time were ASR, Thunder's Track, and two members from Earth.
 
 <b>
 
-「普通のダンジョンを大きくして装飾を無くしたような感じっすね」
+Thunder's Track, probably unable to enter since they haven't cleared an S-rank dungeon, came along to confirm that. They likely just wanted to see it up close as well.
 
 <b>
 
-「だねぇ。ボクはシンプルで好きだよ」
+"It feels like a larger version of a regular dungeon without decorations."
 
 <b>
 
-そう言いながら、段差を上るクレセントと翡翠。石畳の円は直径五十メートルはありそうなほど巨大で、それの丁度半分――中心の直径二十五メートルぐらいは、淡く光を発していた。夜でも明るそうだなぁ。
+"Yeah. I like it simple."
 
 <b>
 
-その後も俺を含むＡＳＲのメンバーが石畳の上に上がり、迅雷の軌跡も後に続こうとしていたのだが、
+As they said this, Crescent and Jade ascended the steps. The circular stone pavement seemed to have a diameter of about fifty meters, and the center, about twenty-five meters in diameter, emitted a faint glow. It looked bright even at night.
 
 <b>
 
-「――どわっ！？」
+After that, the ASR members, including myself, stepped onto the stone pavement, and Thunder's Track was about to follow.
 
 <b>
 
-シンが壁に激突したように弾かれた。どうやら頭から突っ込んだらしく、額を抑えてうずくまっている。ステータス高いんだからそこまで痛くないだろうに。
+"—Whoa!?"
 
 <b>
 
-「そんな気がしたです」
+Shin was bounced back as if he had collided with a wall. It seemed he had charged in headfirst, crouching down while holding his forehead. With his high stats, it shouldn't hurt that much.
 
 <b>
 
-「シンに先に行かせて正解だったわねスズ」
+"I had a feeling that would happen."
 
 <b>
 
-キミたちさ……いちおうシンのこと好きなんだよね？　結婚する予定なんだよね？
-
-シンに突撃させて危険を調べようとするの、ちょっと可哀想じゃない？　同性として少しだけ同情してしまった。どんまい。
+"It was a good call to let Shin go first, Suz."
 
 <b>
 
-「たぶんここから先はＳランク踏破者じゃないとダメなんだろうなぁ。残念ながらお前らはここまでみたいだ――悪いな、せっかく来てもらったのに」
+You guys... You do like Shin, right? You're planning to marry him, right?
+
+Isn't it a bit cruel to send him in first to check for dangers? I felt a little sympathy as a fellow human. Tough luck.
 
 <b>
 
-二段の階段を下りて三人に言うと、彼らは笑いながら首を横にふる。
+"Probably, you need to be an S-rank conqueror to go any further. Unfortunately, it seems you all can only go this far—sorry for bringing you all the way here."
 
 <b>
 
-「もともとそのつもりだったからいいんだよ。久しぶりに王都もぶらつく予定だしな」
+As I told the three after descending the two steps, they shook their heads with laughter.
 
 <b>
 
-「ですです。中の情報は後日たっぷり聞かせてもらうですよ」
+"That was our intention from the start, so it's fine. We're planning to wander around the royal capital for the first time in a while."
 
 <b>
 
-「そうねぇ、どんなダンジョンなのか楽しみ――だけど、私たちはその前に行ってないダンジョンがたくさんあるもの。それを安定して確実にクリアできるようになってからね」
+"Yes, yes. We'll make sure to hear all about the inside later."
 
 <b>
 
-そこはまたこのダンジョンの難易度次第な気もするなぁ。
+"Well, I'm looking forward to what kind of dungeon it is—but we have plenty of dungeons we haven't cleared yet. We'll tackle those first before we can confidently clear this one."
 
 <b>
 
-迅雷の軌跡はお金を十分に持っているだろうし、レベリングだけを考えるのなら、この死なないダンジョンもありな気がする。問題は、彼らが倒せるような魔物がいるかどうかだが。
+I feel like that depends on the difficulty of this dungeon.
 
 <b>
 
-「え？　もう行っちゃっていい感じなんですか？」
+Thunder's Track probably has enough money, and if they're just thinking about leveling, this non-lethal dungeon might be a viable option. The problem is whether there are monsters they can defeat.
 
 <b>
 
-レグルスさんがいる方向を振り返りつつ問うと、彼は肩を竦めてから頷いた。
-
-セラは苦労を表情に滲ませているギルドマスターを見て苦笑し、俺に話しかけてくる。
+"Eh? Is it okay to go in already?"
 
 <b>
 
-「エスアールは緊張とかないのか？　初めて行くダンジョンなのだろう？」
+I turned back towards Regulus and asked, and he shrugged before nodding.
+
+Sera, seeing the guild master with a troubled expression, smiled wryly and spoke to me.
 
 <b>
 
-まぁ初めてではある。初めてではあるし、難易度が高いこともわかっているのだけど、それだけだ。
+"Does SR not feel any tension? It's your first time in a dungeon, right?"
 
 <b>
 
-「だってここじゃ死なないんだぞ？　いったい何を緊張すればいいのか……あぁいや、楽しみという意味での緊張はあるぞもちろん」
+Well, it is my first time. I know it's my first time and that the difficulty is high, but that's about it.
 
 <b>
 
-なんとなくの『こうだったらいいな』という願望のようなものはあるのだけど、それを口にすると、もし違った時、落胆がすごいことになりそうなので、心のうちに秘めておくことにする。
+"Because you don't die here, right? What is there to be tense about... Ah, no, I do feel a tension of excitement, of course."
 
 <b>
 
-「エスアールさんらしくて良いと思います。ねっ、シリー」
+I have a vague wish of "I hope it's like this," but if I say it out loud and it turns out to be different, the disappointment would be immense, so I'll keep it to myself.
 
 <b>
 
-「ふふっ、本当にそうですね」
+"I think it's good that you're being yourself, SR. Right, Shiri?"
 
 <b>
 
-フェノンたちが俺を甘やかすような発言をする横で、ノアはニヤつきながら「さすがダンジョン大好き人間」と口にする。頭ぐりぐりしてやろうか貴様。
+"Indeed, that's really true."
 
 <b>
 
-なんて思っていたら逃げた。思考を読むな思考を。
+While Pheno and the others made comments that spoiled me, Noah grinned and said, "As expected of a dungeon-loving person." Should I give you a head rub, you?
 
 <b>
 
-「まぁいいや、じゃあさっそく行ってみようか」
+Just as I thought that, he ran away. Don't read my thoughts.
 
 <b>
 
-ここからの流れは、この場所にやってくるまでに決めていた。
+"Well, let's go ahead and check it out."
 
 <b>
 
-ダンジョンには五人までしか入ることができないため、七人いる俺たちは二手に分かれることに。といっても、いつものＡＳＲのメンバーと地球組に分かれるだけだが。
+The flow from here was something I had decided on before arriving at this place.
 
 <b>
 
-だがその前に、クレセント、翡翠、俺、ノアの四人だけで中に入り、中の状況を確認してから緊急帰還するという段階を踏む予定だ。
+Since only five people can enter the dungeon, we, being seven, decided to split into two groups. Though, it just meant splitting into the usual ASR members and the Earth group.
 
 <b>
 
-「いやー、張り合いのある敵だと良いっスねぇ～。ベノムもいなければ死をギリギリに感じる戦いもできないとなると、本当に退屈っスから。イデア様には感謝感謝っスよ～」
+But before that, the four of us—Crescent, Jade, me, and Noah—planned to enter first, check the situation inside, and then return urgently.
 
 <b>
 
-「ボクも退屈とまでは言わないけど……似たような気分だね」
+"I hope there are challenging enemies. If there are no Venoms and we can't feel the thrill of a near-death battle, it would be really boring. I'm so grateful to Lady Idea!"
 
 <b>
 
-「右に同じ」
+"I wouldn't say it's boring, but... I feel similarly."
 
 <b>
 
-地球組の意見に同調したのち、俺たちはいよいよ転移のエリアに足を踏み入れた。
-
-踏み入れたのだが――、
+"Same here."
 
 <b>
 
-「ん？　なんか普通じゃないな」
+After agreeing with the Earth group, we finally stepped into the transfer area.
+
+We stepped in, but—
 
 <b>
 
-いつもならば少し立ち止まっていると、ライセンスカードを嵌めるための石柱が下から生えてくるのだけど、それがない。その代わりに、光の粒子のようなものが足元からふわふわと上に浮かび上がっている。
+"Hm? Something feels off."
 
 <b>
 
-「ライセンスカードがいらないってことっスか？　でもそれだとＳランクをクリアしたって証明――あぁ、そもそもここまで来れなかったっスね」
+Normally, when we stop for a moment, a stone pillar for inserting the license card would rise from below, but there was none. Instead, particles of light floated up from the ground.
 
 <b>
 
-「そういうことか」
+"Does that mean we don't need a license card? But then, how do we prove we've cleared an S-rank—ah, but we couldn't even get here in the first place."
 
 <b>
 
-そんな普段通りのテンションで会話をしていると、パッと景色が変わる。
+"I see."
 
 <b>
 
-先ほどまで視界に映っていた風景となんら変わりはない光景だった。足元には石畳、周囲に人はいなくなっているし、細かな風景は違うけれど、道があり、草木があり、遠くのほうにはうっすらと山も見え――、
+As we chatted in our usual tone, the scenery suddenly changed.
 
 <b>
 
-「――ははっ……イデア様、最高かよ」
+The view that had been in sight moments ago was unchanged. The stone pavement was underfoot, there were no people around, and while the detailed scenery was different, there were paths, plants, and faint mountains visible in the distance—
 
 <b>
 
-呆然としながら、思わずそう口にした。
+"—Haha... Lady Idea, this is amazing."
 
 <b>
 
-遠くに見える山はただの景色ではない。その近くを、ドラゴンらしき生き物が飛び回っているのが見えた。さらにそれだけではない。
+In a daze, I couldn't help but say that.
 
 <b>
 
-ドラゴンではない別の魔物も、飛んでいるのが見えたのだ。
-
-これはいままでのダンジョンではありえない。一階層につき一種類の魔物が基本なのだ。例外はボスぐらいなものである。
+The mountains visible in the distance were not just scenery. I could see creatures resembling dragons flying around nearby. And that wasn't all.
 
 <b>
 
-すなわち、このダンジョン――いや、この世界は――、
+I also saw other monsters, not dragons, flying around.
+
+This was unprecedented in previous dungeons. Typically, there is one type of monster per floor. Exceptions are usually only for bosses.
 
 <b>
 
-「オープンワールドってことか……！」
+In other words, this dungeon—no, this world is—
+
+<b>
+
+"An open world...!" 
 
 <b>
 

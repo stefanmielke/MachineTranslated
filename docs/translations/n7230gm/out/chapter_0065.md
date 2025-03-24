@@ -1,7 +1,7 @@
 ###### [Next Chapter](./chapter_0066.md)
 ###### [Previous Chapter](./chapter_0064.md)&nbsp;/&nbsp;
 
-# ６２　同棲していいっすか！？
+# 62 Can I Live Together!?
 
 ## ６２　同棲していいっすか！？
 
@@ -11,13 +11,13 @@
 
 &nbsp;
 
-#### 国の王がわざわざ俺のために予定を空けているにもかかわらず、当の本人はダンジョンに向かってヒャッホーと自由に探索を楽しむ――なんてことはもちろんない。
+#### Despite the king of the country clearing his schedule just for me, the person in question is off exploring the dungeon freely, shouting "Yahhoo!"—of course, that’s not the case.
 
 *国の王がわざわざ俺のために予定を空けているにもかかわらず、当の本人はダンジョンに向かってヒャッホーと自由に探索を楽しむ――なんてことはもちろんない。*
 
 &nbsp;
 
-#### 無理に決まってんだろ。陛下だぞ陛下。上司の呼び出しとはわけが違う。
+#### It’s impossible, obviously. He’s the king, after all. It’s not the same as being called by a boss.
 
 *無理に決まってんだろ。陛下だぞ陛下。上司の呼び出しとはわけが違う。*
 
@@ -25,187 +25,187 @@
 
 &nbsp;
 
-#### 「そう固くなるでない。今日はエスアール殿と落ち着いて話がしたかったのだ」
+#### “Do not be so stiff. Today, I wanted to have a calm discussion with you, Sir SR.”
 
 *「そう固くなるでない。今日はエスアール殿と落ち着いて話がしたかったのだ」*
 
 &nbsp;
 
-#### 「そうですよ。貴方の世界についても伺っておりませんでしたし」
+#### “That’s right. I haven’t heard much about your world either.”
 
 *「そうですよ。貴方の世界についても伺っておりませんでしたし」*
 
 &nbsp;
 
-#### 王城の中にある応接室の一つ。
+#### One of the reception rooms in the royal castle.
 
 *王城の中にある応接室の一つ。*
 
 &nbsp;
 
-#### 対面のどデカいソファには国王のゼノ様がいて、俺から見て右側のソファには宰相であるディーノ様が座っている。
+#### On the enormous sofa across from me sits King Zeno, and on the sofa to my right is the Prime Minister, Dino.
 
 *対面のどデカいソファには国王のゼノ様がいて、俺から見て右側のソファには宰相であるディーノ様が座っている。*
 
 &nbsp;
 
-#### そういえば王女様の件が落ち着いたら、地球のことを話すとか言ってたっけ。すっかり忘れてたわ。
+#### Speaking of which, once the matter with the princess is settled, he mentioned discussing Earth. I completely forgot about that.
 
 *そういえば王女様の件が落ち着いたら、地球のことを話すとか言ってたっけ。すっかり忘れてたわ。*
 
 &nbsp;
 
-#### 「言葉遣いに関して……失礼があったらすみません。極力気をつけますので」
+#### “I apologize if my choice of words has been rude. I will do my best to be careful.”
 
 *「言葉遣いに関して……失礼があったらすみません。極力気をつけますので」*
 
 &nbsp;
 
-#### 身体を極限まで縮めて頭を下げると、陛下は「気にせずともよい」と答えた。
+#### As I shrink my body to the limit and bow my head, the king replied, “You need not worry about it.”
 
 *身体を極限まで縮めて頭を下げると、陛下は「気にせずともよい」と答えた。*
 
-#### そしてさっそく彼は、真剣な表情で問いかけてくる。
+#### And then he immediately asked me a serious question.
 
 *そしてさっそく彼は、真剣な表情で問いかけてくる。*
 
 &nbsp;
 
-#### 「エスアール殿がこの世界へ召喚されてから――Ｂランクダンジョンが踏破され、派生上級職が発見された。それまでは希望の光すら曖昧であったというのにだぞ？　迅雷の軌跡が派生上級職の発見者というのは、真か？」
+#### “Since you were summoned to this world, Sir SR— the B-rank dungeon has been conquered, and advanced classes have been discovered. Until then, even the light of hope was vague, you know? Is it true that the one who discovered the advanced class is the Thunderbolt’s Trail?”
 
 *「エスアール殿がこの世界へ召喚されてから――Ｂランクダンジョンが踏破され、派生上級職が発見された。それまでは希望の光すら曖昧であったというのにだぞ？　迅雷の軌跡が派生上級職の発見者というのは、真か？」*
 
 &nbsp;
 
-#### いきなり答えづらい話題をぶっ込んできたな。
+#### He suddenly brought up a difficult topic.
 
 *いきなり答えづらい話題をぶっ込んできたな。*
 
 &nbsp;
 
-#### 鋭い眼光。まさに蛇に睨まれたカエルになった気分だ。
+#### His sharp gaze makes me feel like a frog caught in a snake's stare.
 
 *鋭い眼光。まさに蛇に睨まれたカエルになった気分だ。*
 
-#### 実際に睨まれているわけでもないし、ナイフで脅されているわけでもないのだが、陛下がもつ重圧感のせいで自然と身体が強ばってしまう。
+#### It’s not like I’m actually being glared at or threatened with a knife, but the weight of the king’s presence naturally makes my body tense up.
 
 *実際に睨まれているわけでもないし、ナイフで脅されているわけでもないのだが、陛下がもつ重圧感のせいで自然と身体が強ばってしまう。*
 
 &nbsp;
 
-#### 迅雷の軌跡ですよ――と端的に答えればいいだけの話なのだが、タイミングを逃してしまい、妙な間が生まれてしまった。
+#### It would be easy to simply answer, “It’s the Thunderbolt’s Trail,” but I missed my timing, creating an awkward pause.
 
 *迅雷の軌跡ですよ――と端的に答えればいいだけの話なのだが、タイミングを逃してしまい、妙な間が生まれてしまった。*
 
 &nbsp;
 
-#### そこで、ディーノ様がすかさず救いの手を差し伸べてくれる。
+#### At that moment, Dino quickly extended a helping hand.
 
 *そこで、ディーノ様がすかさず救いの手を差し伸べてくれる。*
 
 &nbsp;
 
-#### 「陛下。そのように圧力を掛けてしまうと、エスアール殿も返答できません」
+#### “Your Majesty, if you apply that kind of pressure, Sir SR won’t be able to respond.”
 
 *「陛下。そのように圧力を掛けてしまうと、エスアール殿も返答できません」*
 
 &nbsp;
 
-#### 「む、そのようなつもりは無かったのだが」
+#### “Hmm, that was not my intention.”
 
 *「む、そのようなつもりは無かったのだが」*
 
 &nbsp;
 
-#### ディーノ様は困ったような表情を浮かべる陛下を見て、肩を竦める。
+#### Seeing the king with a troubled expression, Dino shrugged.
 
 *ディーノ様は困ったような表情を浮かべる陛下を見て、肩を竦める。*
 
 &nbsp;
 
-#### 「陛下は無意識に相手を威圧してしまうのですから。意識して力を抜いてください。私としては他国との会談でも、もう少し柔らかく話されてはどうかと思います」
+#### “Your Majesty unconsciously intimidates others. Please consciously relax. I think it would be better if you spoke a bit more gently during discussions with other countries as well.”
 
 *「陛下は無意識に相手を威圧してしまうのですから。意識して力を抜いてください。私としては他国との会談でも、もう少し柔らかく話されてはどうかと思います」*
 
 &nbsp;
 
-#### 呆れたような口調で話すディーノ様。
+#### Dino spoke in a tone that seemed exasperated.
 
 *呆れたような口調で話すディーノ様。*
 
-#### 陛下、怒られてんの？　宰相に？
+#### Is the king being scolded? By the Prime Minister?
 
 *陛下、怒られてんの？　宰相に？*
 
 &nbsp;
 
-#### 「わかった。すまなかったなエスアール殿」
+#### “I understand. I apologize, Sir SR.”
 
 *「わかった。すまなかったなエスアール殿」*
 
 &nbsp;
 
-#### 「あ、いえ、おかまいなく……」
+#### “Oh, no, please don’t mind me…”
 
 *「あ、いえ、おかまいなく……」*
 
 &nbsp;
 
-#### 雰囲気を柔らかくしようと試みているのか、陛下は口角をやや上げて話す。俺はペコりと頭を下げた。
+#### Trying to soften the atmosphere, the king slightly raised the corners of his mouth. I bowed my head in response.
 
 *雰囲気を柔らかくしようと試みているのか、陛下は口角をやや上げて話す。俺はペコりと頭を下げた。*
 
-#### 確かに話しやすくはなったけど、それは陛下の表情が変化したからじゃない。ディーノ様にお小言を言われるのを目撃してしまったからだ。
+#### It certainly became easier to talk, but that’s not because the king’s expression changed. It’s because I witnessed Dino scolding him.
 
 *確かに話しやすくはなったけど、それは陛下の表情が変化したからじゃない。ディーノ様にお小言を言われるのを目撃してしまったからだ。*
 
-#### なんとなく、陛下がぐっと身近な存在に感じられた。
+#### Somehow, the king felt much closer to me.
 
 *なんとなく、陛下がぐっと身近な存在に感じられた。*
 
 &nbsp;
 
-#### 「――発見者は、迅雷の軌跡ですよ。俺は多少戦闘経験があったので、彼らの助力をしたまでです」
+#### “—The one who discovered it is the Thunderbolt’s Trail. I had some combat experience, so I merely assisted them.”
 
 *「――発見者は、迅雷の軌跡ですよ。俺は多少戦闘経験があったので、彼らの助力をしたまでです」*
 
 &nbsp;
 
-#### 俺が答えると、陛下は可笑しそうに「ふっ」と小さく笑った。
+#### When I answered, the king chuckled softly, “Heh.”
 
 *俺が答えると、陛下は可笑しそうに「ふっ」と小さく笑った。*
 
 &nbsp;
 
-#### 「多少の戦闘経験であのような戦いができるはずがなかろう。武闘大会は見事だった。お主の強さを疑う者は、もうこの国にはおるまい」
+#### “There’s no way someone with only a bit of combat experience could fight like that. The martial arts tournament was impressive. There’s no one left in this country who doubts your strength.”
 
 *「多少の戦闘経験であのような戦いができるはずがなかろう。武闘大会は見事だった。お主の強さを疑う者は、もうこの国にはおるまい」*
 
 &nbsp;
 
-#### 「いやぁ……多対一だったので、手加減してくれたのでしょう」
+#### “Well… it was a one against many, so they probably went easy on me.”
 
 *「いやぁ……多対一だったので、手加減してくれたのでしょう」*
 
 &nbsp;
 
-#### 「そうは見えなかったがな」
+#### “It didn’t look that way to me.”
 
 *「そうは見えなかったがな」*
 
 &nbsp;
 
-#### 「ははは……」
+#### “Hahaha…”
 
 *「ははは……」*
 
 &nbsp;
 
-#### どう答えたら良いんだよバカ。
+#### How should I respond, damn it.
 
 *どう答えたら良いんだよバカ。*
 
-#### 運営さん、王族対応マニュアルをください。早急に。
+#### Hey, can someone give me a manual for dealing with royalty? Urgently.
 
 *運営さん、王族対応マニュアルをください。早急に。*
 
@@ -213,241 +213,241 @@
 
 &nbsp;
 
-#### それからディーノ様も混じえて、ダンジョンの探索についてや、ドロップ品のこと。エリクサーの適正価格についても相談されてしまった。
+#### After that, with Dino joining in, we discussed dungeon exploration, drop items, and the appropriate price for elixirs.
 
 *それからディーノ様も混じえて、ダンジョンの探索についてや、ドロップ品のこと。エリクサーの適正価格についても相談されてしまった。*
 
-#### なんでも、すでに迅雷の軌跡からエリクサーを複数個預かっているらしく、国としてはいくら支払うのか迷っているらしい。
+#### Apparently, they have already received several elixirs from the Thunderbolt’s Trail, and the country is unsure how much to pay.
 
 *なんでも、すでに迅雷の軌跡からエリクサーを複数個預かっているらしく、国としてはいくら支払うのか迷っているらしい。*
 
 &nbsp;
 
-#### シンたちは金に困っていないだろうし、Ｂランクダンジョンの踏破がいずれ他の探索者たちにも可能になることを知っている。俺が勝手に価格を決めたとしても、文句はでないだろう。
+#### Shin and the others probably aren’t short on money, and they know that conquering the B-rank dungeon will eventually be possible for other explorers too. Even if I set the price myself, there shouldn’t be any complaints.
 
 *シンたちは金に困っていないだろうし、Ｂランクダンジョンの踏破がいずれ他の探索者たちにも可能になることを知っている。俺が勝手に価格を決めたとしても、文句はでないだろう。*
 
-#### とりあえず俺はテンペストでの店売り価格の１０倍――２０万オルを提案した。現実世界の金額でいうと、だいたい２００万円ぐらいか。
+#### For now, I proposed ten times the shop price at Tempest—200,000 Orl. In terms of real-world currency, that’s about 2 million yen.
 
 *とりあえず俺はテンペストでの店売り価格の１０倍――２０万オルを提案した。現実世界の金額でいうと、だいたい２００万円ぐらいか。*
 
 &nbsp;
 
-#### それでも安すぎると二人から声が上がったが、俺としてはこれでも高すぎると思っている。一日二周できる俺からすれば、日給４００万円は確実だし。
+#### Even so, both of them raised their voices, saying it was too cheap, but I actually think it’s too high. For someone like me who can do two rounds a day, a daily wage of 4 million yen is guaranteed.
 
 *それでも安すぎると二人から声が上がったが、俺としてはこれでも高すぎると思っている。一日二周できる俺からすれば、日給４００万円は確実だし。*
 
 &nbsp;
 
-#### ただ、数が少ないうちは買い占めなどがおきないよう、国でしっかりと管理してもらいたい。他国にどれだけ流すのかは、国の方針に任せることにした。悪いようにはしないと思う。
+#### However, while the quantity is still low, I want the country to manage it properly to prevent stockpiling. I decided to leave how much to distribute to other countries up to the country’s policy. I don’t think they’ll do anything bad.
 
 *ただ、数が少ないうちは買い占めなどがおきないよう、国でしっかりと管理してもらいたい。他国にどれだけ流すのかは、国の方針に任せることにした。悪いようにはしないと思う。*
 
 &nbsp;
 
-#### 「フェノンはどうだ？　探索者として、楽しくやっているか？」
+#### “How about Fenon? Is she enjoying herself as an explorer?”
 
 *「フェノンはどうだ？　探索者として、楽しくやっているか？」*
 
 &nbsp;
 
-#### 地球のことも大雑把に話し終えたところで、陛下がやんわりとした口調で聞いてきた。
+#### Once I finished broadly discussing Earth, the king gently asked.
 
 *地球のことも大雑把に話し終えたところで、陛下がやんわりとした口調で聞いてきた。*
 
 &nbsp;
 
-#### 「えぇ。セラとも仲が良いですし、シリーさんもいますからね」
+#### “Yes. I get along well with Sera, and there’s also Shiri.”
 
 *「えぇ。セラとも仲が良いですし、シリーさんもいますからね」*
 
 &nbsp;
 
-#### 「ふふ、一番はエスアール殿と一緒だからだろう。元気になったのは喜ばしいことだが、フェノンは少々お転婆が過ぎる。気にかけてやってくれ」
+#### “Fufu, the main reason is that you’re with Sir SR. It’s wonderful that she has become more cheerful, but Fenon is a bit too much of a tomboy. Please keep an eye on her.”
 
 *「ふふ、一番はエスアール殿と一緒だからだろう。元気になったのは喜ばしいことだが、フェノンは少々お転婆が過ぎる。気にかけてやってくれ」*
 
 &nbsp;
 
-#### 「それはもちろんです。戦闘訓練も時々させていますが、基本的に後ろに下がってもらってますし」
+#### “Of course. I do have her do combat training from time to time, but basically, I have her step back.”
 
 *「それはもちろんです。戦闘訓練も時々させていますが、基本的に後ろに下がってもらってますし」*
 
 &nbsp;
 
-#### 「ほぅ、あの娘が戦闘訓練か。……まぁエスアール殿やセラ＝ベルノートがいるのであれば、心配はなかろう」
+#### “Oh? That girl is doing combat training? …Well, if Sir SR and Sera Bernot are there, I suppose there’s no need to worry.”
 
 *「ほぅ、あの娘が戦闘訓練か。……まぁエスアール殿やセラ＝ベルノートがいるのであれば、心配はなかろう」*
 
 &nbsp;
 
-#### そう言って陛下は、テーブルの上にある紅茶の入ったカップを手に取る。
+#### Saying that, the king picked up a cup of tea from the table.
 
 *そう言って陛下は、テーブルの上にある紅茶の入ったカップを手に取る。*
 
 &nbsp;
 
-#### 陛下もくだけた雰囲気を見せるようになったし、そろそろ俺の本題を切り出すことにしようか。
+#### Since the king has started to show a more relaxed atmosphere, I think it’s about time to bring up my main topic.
 
 *陛下もくだけた雰囲気を見せるようになったし、そろそろ俺の本題を切り出すことにしようか。*
 
 &nbsp;
 
-#### 「実はもう少ししたら、俺はしばらく拠点をレーナスの街に移すつもりなんです」
+#### “Actually, I plan to move my base to the city of Renus for a while.”
 
 *「実はもう少ししたら、俺はしばらく拠点をレーナスの街に移すつもりなんです」*
 
 &nbsp;
 
-#### 持ち上げたカップに口をつけようとした陛下は、ピタリと停止する。
+#### The king, who was about to bring the cup to his lips, suddenly stopped.
 
 *持ち上げたカップに口をつけようとした陛下は、ピタリと停止する。*
 
 &nbsp;
 
-#### 「エスアール殿やセラ＝ベルノートが行くのなら、フェノンも行くだろうな」
+#### “If Sir SR and Sera Bernot are going, then Fenon will probably go too.”
 
 *「エスアール殿やセラ＝ベルノートが行くのなら、フェノンも行くだろうな」*
 
 &nbsp;
 
-#### 「はい、まだ本人に確認を取ったわけではないですが。レーナスに滞在するのは長期になると思いますし、俺としてはここで彼女とお別れするのも嫌ですから、できれば共に来てほしいと思っています。それで……パーティメンバーとしては同じ家屋で生活したほうが効率が良いといいますか……」
+#### “Yes, I haven’t confirmed with her yet, but I think my stay in Renus will be long-term, and I don’t want to say goodbye to her here, so I would like her to come with me if possible. Also… it’s more efficient for party members to live in the same house…”
 
 *「はい、まだ本人に確認を取ったわけではないですが。レーナスに滞在するのは長期になると思いますし、俺としてはここで彼女とお別れするのも嫌ですから、できれば共に来てほしいと思っています。それで……パーティメンバーとしては同じ家屋で生活したほうが効率が良いといいますか……」*
 
 &nbsp;
 
-#### お茶を濁しながら『お義父さん！　娘さんと同棲していいっすか！？』という内容の言葉を並べる。
+#### I muddled through my words, trying to say, “Hey, can I live together with your daughter!?”
 
 *お茶を濁しながら『お義父さん！　娘さんと同棲していいっすか！？』という内容の言葉を並べる。*
 
 &nbsp;
 
-#### 陛下は俺の言いたいことをすぐに理解してくれたようで、からかうような笑みを浮かべた。
+#### It seemed the king quickly understood what I was trying to say, as he wore a teasing smile.
 
 *陛下は俺の言いたいことをすぐに理解してくれたようで、からかうような笑みを浮かべた。*
 
 &nbsp;
 
-#### 「探索者のパーティは同じ家に住むことも多い。本来なら探索者になることも認められぬことだが、フェノンは病のせいで多くの時間を失ってしまったのだ――その程度の自由なら認めよう。ただ、式を挙げるまで同衾はナシだぞ」
+#### “Explorers often live in the same house. Normally, it wouldn’t even be allowed to become an explorer, but Fenon has lost a lot of time due to illness— I will allow that degree of freedom. However, no cohabitation until the ceremony, understood?”
 
 *「探索者のパーティは同じ家に住むことも多い。本来なら探索者になることも認められぬことだが、フェノンは病のせいで多くの時間を失ってしまったのだ――その程度の自由なら認めよう。ただ、式を挙げるまで同衾はナシだぞ」*
 
 &nbsp;
 
-#### 「もちろんですよ！　婚約に関しては……前向きに考えていますが、もう少し時間をください」
+#### “Of course! Regarding the engagement… I’m considering it positively, but please give me a little more time.”
 
 *「もちろんですよ！　婚約に関しては……前向きに考えていますが、もう少し時間をください」*
 
 &nbsp;
 
-#### 「ふふ、かまわぬよ。ただ、その反応を見るにフェノンは無事にエスアール殿の心を掴んだようだな。娘をよろしく頼むぞ」
+#### “Fufu, that’s fine. However, judging by your reaction, it seems Fenon has successfully captured Sir SR’s heart. I entrust my daughter to you.”
 
 *「ふふ、かまわぬよ。ただ、その反応を見るにフェノンは無事にエスアール殿の心を掴んだようだな。娘をよろしく頼むぞ」*
 
 &nbsp;
 
-#### 国の王ではなく、父親としての優しい笑みを浮かべた陛下は、安心した様子で紅茶に口をつける。娘の恋愛事情を気にかけていたのだろうか。
+#### The king, no longer just a monarch but a father, smiled gently and took a sip of his tea, looking relieved. Perhaps he had been concerned about his daughter’s romantic situation.
 
 *国の王ではなく、父親としての優しい笑みを浮かべた陛下は、安心した様子で紅茶に口をつける。娘の恋愛事情を気にかけていたのだろうか。*
 
 &nbsp;
 
-#### 国王といっても、やっぱり俺たちと同じ人間なんだなぁ……と考えていると、ディーノ様が「それにしても」と会話に入ってきた。
+#### Even though he is a king, he’s still just a human like us… As I pondered this, Dino interjected into the conversation, saying, “By the way…”
 
 *国王といっても、やっぱり俺たちと同じ人間なんだなぁ……と考えていると、ディーノ様が「それにしても」と会話に入ってきた。*
 
 &nbsp;
 
-#### 「報告によると、以前からフェノン様たちと共にレーナスのＢランクダンジョンに足を踏み入れていたそうですが、危険ではないのですか？」
+#### “According to reports, it seems that Fenon and the others have been entering the B-rank dungeon in Renus for some time now. Isn’t that dangerous?”
 
 *「報告によると、以前からフェノン様たちと共にレーナスのＢランクダンジョンに足を踏み入れていたそうですが、危険ではないのですか？」*
 
 &nbsp;
 
-#### おおう、やはり監視はつけられていたのか。
+#### Oh, so they really have been keeping an eye on us.
 
 *おおう、やはり監視はつけられていたのか。*
 
-#### もしくはドラグ様が報告したのか？　どっちでもいいけど。
+#### Or did Drag report it? Either way, it doesn’t matter.
 
 *もしくはドラグ様が報告したのか？　どっちでもいいけど。*
 
 &nbsp;
 
-#### 「問題ありませんよ。シリーさんも強くなりましたし、一番戦闘に不慣れな王女様でも、Ｃランクダンジョン下層の魔物なら単独で討伐できるようになりましたから」
+#### “There’s no problem. Shiri has also become stronger, and even the princess, who is the least experienced in combat, can now defeat monsters in the lower levels of C-rank dungeons on her own.”
 
 *「問題ありませんよ。シリーさんも強くなりましたし、一番戦闘に不慣れな王女様でも、Ｃランクダンジョン下層の魔物なら単独で討伐できるようになりましたから」*
 
 &nbsp;
 
-#### 「ぶふぉっ――」
+#### “Bwah—”
 
 *「ぶふぉっ――」*
 
 &nbsp;
 
-#### 陛下がむせた。
+#### The king choked.
 
 *陛下がむせた。*
 
 &nbsp;
 
-#### 勢いよく口の中の紅茶を吐き出し、アロマ加湿器の如く、いい香りのミストを部屋中に拡散させる。といっても、正面にいる俺の被害は甚大だが。
+#### He forcefully expelled the tea from his mouth, spreading a pleasant mist throughout the room like an aroma humidifier. Although, the damage to me, sitting directly across from him, was significant.
 
 *勢いよく口の中の紅茶を吐き出し、アロマ加湿器の如く、いい香りのミストを部屋中に拡散させる。といっても、正面にいる俺の被害は甚大だが。*
 
 &nbsp;
 
-#### きったねぇ！　と、すぐに顔を拭いたい衝動に駆られたが、失礼だと気づき我慢。笑顔で「大丈夫ですか？」と問いかけた。本当は俺がその言葉をかけてほしいんだが。
+#### That’s disgusting! I was immediately overwhelmed with the urge to wipe my face, but realizing it would be rude, I held back. I smiled and asked, “Are you okay?” In truth, I wanted to hear those words directed at me.
 
 *きったねぇ！　と、すぐに顔を拭いたい衝動に駆られたが、失礼だと気づき我慢。笑顔で「大丈夫ですか？」と問いかけた。本当は俺がその言葉をかけてほしいんだが。*
 
 &nbsp;
 
-#### 「ふぇ、ふぇ、フェノンがＣランクダンジョン、下層の魔物を、一人で？」
+#### “Wha, wha, what? Fenon defeated the monsters in the lower levels of a C-rank dungeon by herself?”
 
 *「ふぇ、ふぇ、フェノンがＣランクダンジョン、下層の魔物を、一人で？」*
 
 &nbsp;
 
-#### 入れ歯取れてませんか？　なんて言ったら不敬罪になるだろうか。もちろんそんなことを言う度胸はないが。
+#### Would it be disrespectful to ask if his dentures fell out? Of course, I don’t have the courage to say something like that.
 
 *入れ歯取れてませんか？　なんて言ったら不敬罪になるだろうか。もちろんそんなことを言う度胸はないが。*
 
 &nbsp;
 
-#### 「危ないと判断したら、サポートはしてますよ」
+#### “If it seems dangerous, I provide support.”
 
 *「危ないと判断したら、サポートはしてますよ」*
 
 &nbsp;
 
-#### フェノンさんの動きは軽いし、魔法の的中率もなかなかのものだ。
+#### Fenon’s movements are light, and her magic accuracy is quite good.
 
 *フェノンさんの動きは軽いし、魔法の的中率もなかなかのものだ。*
 
-#### 突出した才能があるわけではないが、探索者として十分に活動できる程度の運動神経は持ち合わせている。
+#### While she doesn’t have outstanding talent, she possesses enough athletic ability to function adequately as an explorer.
 
 *突出した才能があるわけではないが、探索者として十分に活動できる程度の運動神経は持ち合わせている。*
 
-#### 危なっかしい部分を正せば、後衛として活躍してくれるだろう。
+#### If we correct the dangerous parts, she should be able to thrive as a rear guard.
 
 *危なっかしい部分を正せば、後衛として活躍してくれるだろう。*
 
 &nbsp;
 
-#### 「エスアール殿はやはり恐ろしいですな……。それともまさか、フェノン様に隠れた才能が――？」
+#### “Sir SR is indeed terrifying… Or could it be that Fenon has hidden talents—?”
 
 *「エスアール殿はやはり恐ろしいですな……。それともまさか、フェノン様に隠れた才能が――？」*
 
 &nbsp;
 
-#### 思案顔になり、陛下と宰相は口を閉じる。
+#### With a thoughtful expression, the king and the prime minister fell silent.
 
 *思案顔になり、陛下と宰相は口を閉じる。*
 
-#### 何を考えてるかは知らないが、俺は声を大にして言いたい。
+#### I don’t know what they’re thinking, but I want to shout out loud.
 
 *何を考えてるかは知らないが、俺は声を大にして言いたい。*
 
@@ -455,7 +455,7 @@
 
 &nbsp;
 
-#### 早くタオル持ってこいや。
+#### Hurry up and bring me a towel.
 
 *早くタオル持ってこいや。*
 

@@ -1,7 +1,7 @@
 ###### [Next Chapter](./chapter_0157.md)
 ###### [Previous Chapter](./chapter_0155.md)&nbsp;/&nbsp;
 
-# A－４１　修羅道を進む
+# A－４１　進む修羅道
 
 ## A－４１　修羅道を進む
 

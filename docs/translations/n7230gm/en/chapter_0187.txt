@@ -1,4 +1,4 @@
-# Ａ－７０　いざ新居へ
+# A-70 Off to the New Home
 
 <b>
 
@@ -6,63 +6,63 @@
 
 <b>
 
-俺を含むＡＳＲの五人を乗せた馬車は、あまり必要性を感じない護衛の方々とともにレーナスの街に到着。
+The carriage carrying the five members of ASR, including myself, arrived in the city of Leinas, accompanied by guards who seemed to feel little necessity for their presence.
 
-彼らも王族に仕えているのだから、身を挺してでもフェノンを庇おうという心意気を持っているのだろう。たぶん、そんじょそこらの攻撃ではリンデールの第一王女は屈しないと思うが。
-
-<b>
-
-馬車に揺られながら、迅雷の軌跡たちはどこにいるのだろうか――そう考えていたのだけど、どうやら俺がこの街に向かったことはすでに通達されていたようで、迅雷の軌跡は街の入り口で俺たちを待ち構えていた。
+Since they serve the royal family, they probably have the spirit to protect Fenon at all costs. I doubt that the first princess of Lindale would easily succumb to any ordinary attack.
 
 <b>
 
-「おかえり。お前さん、ちょっと背伸びたか？」
+As I swayed in the carriage, I wondered where the Thunder Trails were――but it seemed that my arrival in this city had already been communicated, as the Thunder Trails were waiting for us at the entrance of the city.
 
 <b>
 
-まずシンが、二日ぶりに会ったぐらいの何気ない雰囲気で話しかけてくる。
+"Welcome back. Have you grown a bit taller?"
 
 <b>
 
-「三ヶ月程度でそんなに伸びないだろ……いや、ありえるのか？」
+First, Shin casually spoke to me as if we had just met two days ago.
 
 <b>
 
-つい日本にいた時の自分を基準に考えていたけど、よくよく考えたらこの体はまだ成長期なのかもしれない。いやでもなぁ……それだけ当たり判定の範囲が増えると思うと複雑な気分だ。リーチが伸びるのも染みついた感覚が狂いそうで怖いし。
+"I don't think you can grow that much in just three months... or can you?"
 
 <b>
 
-そんなゲーム的思考回路で頭を働かせていると、シンの両脇に立つスズとライカも声を掛けてきた。
+I was thinking based on my past self in Japan, but upon reflection, this body might still be in its growth phase. But then again... the thought of my hitbox expanding complicates things. I'm also worried that my reach extending might mess with my ingrained instincts.
 
 <b>
 
-「おかえりなさいみんな。旅行は楽しかったかしら？」
+As I was lost in such game-like thoughts, Suzu and Laika, who were standing beside Shin, also chimed in.
 
 <b>
 
-「お土産はなにかあるですか？」
+"Welcome back, everyone. Did you enjoy your trip?"
 
 <b>
 
-もはや貰えるものがあることが確定しているようなスズの言葉に、俺は思わず身体を強張らせる。めちゃくちゃ忘れてた。
-
-どう言い訳をしようかと必死に頭を働かせていると、シリーが「もちろんご準備しております」と綺麗にラッピングされた包みを取りだして、シンに渡す。
+"Did you bring back any souvenirs?"
 
 <b>
 
-人知れずホッと息を吐いて二人の会話を聞いてみると、どうやらシリーが渡した物はパルムール王国の名物のお菓子らしい。いったいいつの間に購入したんだろうか。メイドの特殊能力的ななにかだろうか？　というか俺も食べたいのだけど、俺の分はあるのかね？
+Suzu's words, which seemed to imply that receiving something was a given, made me tense up. I had completely forgotten.
+
+As I desperately tried to think of an excuse, Shiri pulled out a beautifully wrapped package and handed it to Shin, saying, "Of course, we have prepared something."
 
 <b>
 
-「エスアールは色々大変そうだったからな、私たちで良さそうなものを選んでおいたぞ。問題なかったか？」
+I let out a quiet sigh of relief and listened to their conversation. It seemed that what Shiri had given was a famous sweet from the Palmour Kingdom. When did she even buy it? Is it some kind of special ability of maids? I want to eat some too, but do I have my own portion?
 
 <b>
 
-「あ、ハイ。問題ナイデス」
+"Since ASR seemed to have a lot going on, we picked out some nice things for you. Was there any problem?"
 
 <b>
 
-忘れていても仕方ないだろ。元ボッチはこういったイベントは慣れていないんだ。
+"Ah, no. No problem at all."
+
+<b>
+
+It's not like I could help forgetting. A former loner isn't accustomed to such events.
 
 <b>
 
@@ -74,129 +74,129 @@
 
 <b>
 
-元々パーティハウス的な役割を果たしていたレーナス近くにある俺たちの家は、俺、セラ、そしてフェノンの三人の新居となる予定――とはいったものの、ここまで一緒に過ごしているノアやシリーが蚊帳の外というのも可哀想だ。
+Originally serving as a party house, our home near Leinas is set to become the new residence for me, Sera, and Fenon――though it seems a bit unfair that Noah and Shiri, who have spent so much time together with us, are left out.
 
 <b>
 
-たしかそんな風な話になって、新たに増築することとなった家は王都のパーティハウスと同じく寝室の数は合計五つ分作ってもらっている。その話し合いが行われた時に、シリーはやや恥ずかしそうにしていて、そしてノアがニヤニヤしていたのが印象的だった。
+I believe it was decided that the newly expanded house would have a total of five bedrooms, just like the party house in the royal capital. During the discussions about this, Shiri seemed a bit embarrassed, and Noah's smirk was quite memorable.
 
 <b>
 
-俺たちはレーナスで一泊したのち、王都から一緒に来たメンバーに迅雷の軌跡を加え、いよいよ新居へ。
+After spending a night in Leinas, we added the members who came with us from the royal capital to the Thunder Trails and finally headed to our new home.
 
-迅雷の軌跡が加わったことにより、一層護衛の人達の肩身が狭そうに見えた。というか申し訳なさそうな表情が時折見え隠れしている。
+With the addition of the Thunder Trails, the guards looked even more uneasy. I could occasionally see expressions of apology on their faces.
 
-万が一盗賊なんかが現れた場合、俺たちは守られるよりも戦う側だろうからなぁ。そうなるのも仕方がないか。
-
-<b>
+In the unlikely event that bandits showed up, we would probably be the ones fighting rather than being protected. I suppose that's just how it is.
 
 <b>
 
-「でっか！！」
+<b>
+
+"Wow!!"
 
 <b>
 
-そしてようやくたどり着いた新たな我が家。
+Finally, we arrived at our new home.
 
-馬車から降りるなり、俺はついそんなありきたりな言葉を口にしてしまった。だってでかいんだもん。
-
-<b>
-
-家はもちろん大きいのだけど、とにかく庭が広い。池っぽいものまである。
-
-周りに家がないのをいいことにこれでもかと敷地を拡げており、綺麗な植栽があちらこちらに植えられている。塀で見えない部分も、きっと花とかが植えてあったりするのだろう。
-
-レンガ塀の上には侵入防止用の柵が備え付けられているが……はたしてあれはこの世界でどれだけ有効なのだろうか……。そこそこレベルを上げた探索者なら普通に飛び越えられるだろうに。
+As soon as I got off the carriage, I couldn't help but utter such a cliché phrase. Because it really is big.
 
 <b>
 
-「まず業者の方から説明がありますので、ゆっくり見るのはその後ですね」
+The house is, of course, large, but the garden is enormous. There's even something resembling a pond.
+
+Taking advantage of the lack of nearby houses, the property has been expanded extensively, with beautiful landscaping planted here and there. The parts hidden by the fence are probably filled with flowers as well.
+
+A fence for preventing intrusions is installed on top of the brick wall, but... I wonder how effective that is in this world... A moderately leveled explorer could probably just jump over it.
 
 <b>
 
-浮足立つ俺をいさめるように、シリーが苦笑しながら言う。
-
-はい……門の前で背筋をピンと伸ばしている人を見た時から何となく察してましたとも。そりゃ引き渡し時に誰もいないなんてことはないよな。
+"First, the contractor will give us an explanation, so we can take our time looking around afterward."
 
 <b>
 
-「なぁシン。俺たちの代わりにあの人たちから話を聞いておいてくれないか？」
+To calm my excitement, Shiri said with a wry smile.
+
+Yes... I had a feeling when I saw the person standing straight in front of the gate. There's no way there wouldn't be anyone present during the handover.
 
 <b>
 
-「そりゃ無理があるだろ。それはここに住む奴の仕事だ」
+"Hey, Shin. Can you talk to those people for us?"
 
 <b>
 
-「じゃあノアよろしく」
+"That's a bit unreasonable. That's the job of the people living here."
 
 <b>
 
-「はいはい。我儘言ってもダメだよ。ちゃんと家主が話を聞かないとね」
+"Then Noah, it's up to you."
 
 <b>
 
-うるせぇやい。
-
-俺は探索者なのだから事細かく案内されるより、手探り状態のほうが楽しい性分なのだよ。
+"Alright, alright. You can't just say whatever you want. The homeowner needs to listen to the details."
 
 <b>
 
-「案内は軽く済ませてもらいましょうか。私も身内だけでゆっくりと見てみたいですし」
+Shut up.
+
+As an explorer, I find it more enjoyable to be in a trial-and-error state rather than being guided in detail.
 
 <b>
 
-不満顔を浮かべる俺に、フェノンがニコニコとした表情で助け舟を出してくれる。
-
-おぉ……さすが我が嫁――なんて恥ずかしいことを思ってみたり。
+"Let's keep the tour brief. I want to take my time looking around with just family."
 
 <b>
 
-「今お兄ちゃん、フェノンのこと『さすが我が嫁』――とか言ってたよ」
+Fenon offered a helping hand with a cheerful expression, seeing my dissatisfied face.
+
+Oh... as expected of my wife――I thought something embarrassing like that.
 
 <b>
 
-ぶっ飛ばすぞクソ神。
+"Hey, big brother, you just thought, 'as expected of my wife'――didn't you?"
 
 <b>
 
-「ちょっと待とうかクソガキ。いつ俺が心を読んでいいなんて言ったかなぁ？　言ってないよなぁ？　これはお仕置きが必要かなぁ？　お尻ぺんぺんして欲しいのかお前は？　んんっ？」
+I'll knock you out, you little brat.
 
 <b>
 
-「お尻？　僕のお尻が触りたいのなら素直にそう言えばいいのに」
+"Hold on, you little brat. When did I say it was okay to read my mind? I never said that, did I? Is a punishment necessary? Do you want a spanking? Huh?"
 
 <b>
 
-「そうじゃないだろ！　あぁ……この世界にはお尻ぺんぺんの文化がないのか――ってノアは地球のこともわかってるだろうが！　騙されんぞ！」
+"My bottom? If you want to touch my bottom, you should just say so honestly."
 
 <b>
 
-小声で叫ぶという芸当をこなしながら「てへ」と悪びれた様子のないノアを責めていると、恥ずかしそうに顔を俯かせているフェノンと、そして何やら張り切った様子のセラが視界に入ってくる。
+"That's not what I meant! Ah... is there no culture of spanking in this world――though Noah knows about Earth too! I won't be fooled!"
 
 <b>
 
-「え、エスアール！　お尻ならば私の鍛え上げられたモノが――」
+As I scolded Noah, who was acting all innocent while whispering, "tee hee," I caught sight of Fenon, who was shyly looking down, and Sera, who seemed to be all fired up.
 
 <b>
 
-「その、人前ではあまりそういう話は……嫌という訳ではないのですけど」
+"Uh, SR! If it's about bottoms, my well-trained one is――"
 
 <b>
 
-なぜか俺のお嫁さんたちは、自らのお尻を触られる前提の話をし始めてしまった。
-
-フェノンの言う通り、人前ですべき話ではないだろう。しかも口にしているのは王女様と伯爵家のお嬢様である。俺、王様に怒られるんじゃなかろうか。
+"Um, I don't mind talking about that, but maybe not in front of others..."
 
 <b>
 
-「ごめん二人とも。俺が悪かったから、この話は忘れてくれ」
+For some reason, my wives started talking about the premise of having their bottoms touched.
+
+As Fenon said, it's not a conversation meant for public discussion. Moreover, the ones speaking are a princess and a count's daughter. Am I going to get scolded by the king?
 
 <b>
 
-そして会話に参加していなかったシリーさんよ。
+"I'm sorry, both of you. It was my fault, so please forget about this conversation."
 
-ひっそりと自分のお尻を撫でて感触を確かめていたようだけど、俺は触るつもりないですからね？
+<b>
+
+And then there's Shiri, who hadn't participated in the conversation.
+
+She seemed to have been quietly stroking her own bottom to check the sensation, but I have no intention of touching it, okay?
 
 <b>
 

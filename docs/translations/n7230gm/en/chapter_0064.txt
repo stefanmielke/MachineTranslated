@@ -1,8 +1,8 @@
-# ６１　陛下と伯爵からの呼び出し
+# 61 The Summons from His Majesty and the Count
 
 <b>
 
-第三章、開幕！！
+Chapter Three, Opening!!
 
 <b>
 
@@ -18,23 +18,23 @@
 
 <b>
 
-思い返してみれば、俺はとうの昔に知っていたのだ。
+Looking back, I had known it long ago.
 
 <b>
 
-それこそ生まれ変わったその日に、この世界が壊れているということを。
+From the very day I was reborn, I knew that this world was broken.
 
 <b>
 
-ただ、それを俺が『壊れている』と認識できなかったがために、今のいままで気付くことができなかった。
+However, because I couldn't recognize it as "broken," I had not realized it until now.
 
 <b>
 
-――取り返しのつかないところにくるまで、気付くことができなかった。
+――I couldn't notice it until it was too late.
 
 <b>
 
-大切な人を失うその日まで、気付くことができなかったのだ。
+I couldn't realize it until the day I lost someone important.
 
 <b>
 
@@ -46,285 +46,285 @@
 
 <b>
 
-武闘大会が終わり、一ヶ月の月日が流れた。
+A month has passed since the martial arts tournament ended.
 
-俺たち名もなきパーティは、王城の犬小屋を拠点としてＣランクダンジョンに通い続けている。目的としては、フェノンさんにダンジョン慣れしてもらうことと、シリーさんの技量の把握だ。
-
-<b>
-
-俺は経験則をもとに全員の指導を行いつつ、３人との交流を心から楽しんでいた。
+Our nameless party continues to visit C-rank dungeons, using the doghouse of the royal castle as our base. The purpose is to help Fenon get accustomed to dungeons and to gauge Shiri's skills.
 
 <b>
 
-それに伴いレベルも順調に上昇し、セラたち３人は二次職を一つレベル３０にまで上げ、プレイヤーボーナスを獲得済みである。
-
-俺の場合は合間にＢランクダンジョンに潜っているため、重騎士と賢者のレベルを３０まで上げることができた。
+I was enjoying the interaction with the three of them while providing guidance based on my experience.
 
 <b>
 
-現在の俺は魔弓術士。
+As a result, our levels have been steadily rising, and the three of them—Sera, Shiri, and Fenon—have each raised their secondary classes to level 30 and have obtained player bonuses.
 
-レベルは低いが、プレイヤーボーナスのおかげでステータスはこの世界にきた頃と比べると雲泥の差である。
-
-<b>
-
-☆ステータス☆
+In my case, I have been diving into B-rank dungeons in between, allowing me to raise the levels of my heavy knight and sage to 30.
 
 <b>
 
-名前︰ＳＲ
+Currently, I am a magic archer.
 
-年齢︰１８
-
-職業︰魔弓術士
-
-レベル︰７
-
-ＳＴＲ︰Ｄ
-
-ＶＩＴ︰Ｄ
-
-ＡＧＩ︰Ｅ
-
-ＤＥＸ︰Ｄ
-
-ＩＮＴ︰Ｄ
-
-ＭＮＤ︰Ｆ
-
-スキル︰隠密　射出魔法
+My level is low, but thanks to the player bonus, my stats are vastly different compared to when I first came to this world.
 
 <b>
 
-それぞれ隠密は弓士、射出魔法は魔法士のスキルだ。
-
-まぁ、スキルは使わずに相変わらずドラグ公爵に貰った赤刀で敵を切り刻む毎日なんだが。
+☆Status☆
 
 <b>
 
-「エスアール様、明日は何かご予定がありますか？」
+Name: SR
+
+Age: 18
+
+Occupation: Magic Archer
+
+Level: 7
+
+STR: D
+
+VIT: D
+
+AGI: E
+
+DEX: D
+
+INT: D
+
+MND: F
+
+Skills: Stealth, Projectile Magic
 
 <b>
 
-夕食後、ふいにフェノンさんが言った。
+Stealth is a skill of archers, and projectile magic is a skill of mages.
 
-シリーさんは「これは私の仕事です！」と言い張り、１人で４人分の食器を片付けている。
-
-申し訳ない気持ちもあるが、これで給料を貰っているのならば仕事を奪う形になってしまうので、お礼を言うに留めた。
+Well, I still spend my days slicing enemies with the red sword given to me by Duke Drag, without using my skills.
 
 <b>
 
-明日はパーティでの活動が休みの日なので、家でごろごろして、暇になり次第ダンジョンに行く予定だったが……、
+"Lord SR, do you have any plans for tomorrow?"
 
 <b>
 
-「予定っていう予定はないですよ。それがどうかしましたか？」
+After dinner, Fenon suddenly said.
+
+Shiri insisted, "This is my job!" and was cleaning up the dishes for four all by herself.
+
+I felt a bit guilty, but since she was getting paid for this, I decided to just thank her instead of taking her job.
 
 <b>
 
-「大したことではないのですが、お父様がエスアール様とお話をしたいらしく、明日の予定を空けているそうなので」
+Tomorrow is a day off for our party activities, so I had planned to lounge around at home and head to the dungeon as soon as I got bored...
 
 <b>
 
-お父様って――陛下じゃん！　それ、大した用事だろ！
-
-しかも俺と話すために予定まで空けているのなら、一般市民の俺が断れるわけがない。いや、称号があるから一般市民じゃないのか？　その辺り、未だによくわからん。
+"I don't have any specific plans. Why do you ask?"
 
 <b>
 
-「行きます！　行きますよ！　行かせていただきます！」
+"It's not a big deal, but my father wants to talk to you, Lord SR, and he has cleared his schedule for tomorrow."
 
 <b>
 
-無駄に三段活用で返事をする。多少うるさくても許してほしい。
+Your father—it's His Majesty! That's a big deal!
+
+Moreover, if he has cleared his schedule just to talk to me, there's no way I can refuse as an ordinary citizen. Wait, am I not an ordinary citizen because I have a title? I still don't quite understand that part.
 
 <b>
 
-「ありがとうございます。お父様もきっと喜びますわ」
+"I'll go! I'll definitely go! I will be honored to attend!"
 
 <b>
 
-ニコリとフェノンさんが微笑む。
-
-元々の造形は見事としか言いようがないし、彼女は笑顔がとても愛らしい。本当にこんな可愛い子に好かれてるのか疑いたくなるな。
+I responded with unnecessary enthusiasm. I hope they forgive me for being a bit loud.
 
 <b>
 
-聞くところによると、陛下が俺を呼び出したのはダンジョン探索の進捗や、今後の方針などについて意見を聞きたいとのこと。
+"Thank you. My father will surely be pleased."
 
 <b>
 
-それならば迅雷の軌跡でも良かったのでは？　と思ったのだが、やはり陛下にもＢランクダンジョンの踏破に俺が大きく貢献していると思われているのだろうか？　ディーノ様が俺たちの内情を漏らしてなくとも、俺を召喚した陛下なら気づいていてもおかしくはないが。
+Fenon smiled brightly.
+
+Her original features are nothing short of magnificent, and her smile is incredibly charming. It makes me doubt if I really am liked by such a cute girl.
 
 <b>
 
-「あの、エスアール？」
+From what I've heard, His Majesty summoned me to hear my opinions on the progress of dungeon exploration and future plans.
 
 <b>
 
-「ん？　どうした？」
+Wouldn't it have been fine to just ask me about the Thunderbolt Trail? I wonder if His Majesty thinks I have greatly contributed to conquering B-rank dungeons? Even if Lord Dino hasn't leaked our circumstances, it wouldn't be surprising if His Majesty, who summoned me, has noticed.
 
 <b>
 
-今度はセラが声を掛けてきた。おずおずと、どこか言いにくそうにしながら。
+"Um, SR?"
 
 <b>
 
-「実は私の父も、貴方と話をしたいと言ってるんだ。日程については後日伝えるから、その時はよろしく頼む」
+"Hm? What is it?"
 
 <b>
 
-陛下に続いて、今度は伯爵様かよ……。
-
-王様や公爵より立場は弱いものの、お貴族様に変わりはない。当然、緊張はする。
+This time, Sera called out to me, hesitantly and somewhat awkwardly.
 
 <b>
 
-「それは構わないが……用件は知っているか？」
+"Actually, my father also wants to talk to you. I'll let you know the date later, so please take care of it then."
 
 <b>
 
-問いかけると、彼女は困ったように眉間に皺を寄せる。
+Following His Majesty, now it's Count's turn...
+
+Though his position is weaker than the king or duke, he is still a noble. Naturally, I feel nervous.
 
 <b>
 
-「この場所に滞在していることは伝えているし、ベルノート領の免税の件で礼を言いたいとは言っていたが、正直なところよくわからない。Ｂランクダンジョンを共に踏破したシンたちには特に声を掛けようとしていないしな」
+"That's fine, but... do you know what the matter is?"
 
 <b>
 
-「ふーん……なんだろうな？　もしかして、娘に変な虫がついていないか確認したいとか？」
+When I asked, she frowned as if troubled.
 
 <b>
 
-「エスアールは虫などではない！　ちゃんとした人間だ！」
+"I've told him that I'm staying here, and he mentioned wanting to thank you regarding the tax exemption in the Bernault territory, but to be honest, I'm not sure. He hasn't particularly reached out to Shin and the others who conquered the B-rank dungeon with us."
 
 <b>
 
-そりゃ人間だけども！　そうじゃなくてだな！
+"Hmm... I wonder what it could be? Maybe he wants to check if his daughter is being courted by any strange bugs?"
 
 <b>
 
-「変な男に引っかかってないか確かめたいんじゃないか？　親なんだから、心配してるんだろう」
+"SR is not a bug! He is a proper human!"
 
 <b>
 
-「そ、そうだろうか？　べ、べべべつに私はそそそそんなつもりはないが、も、もしそうだとしても、エスアールならば、問題ないだろう。なにせフェノンや陛下のお墨付きなのだからな」
+Well, I am human! But that's not what I meant!
 
 <b>
 
-お前は壊れたブリキのおもちゃか。例えばの話に動揺しすぎだろ。
+"Isn't he just worried about whether you're getting involved with some weird guy? Parents worry, you know."
 
 <b>
 
-おかしくなってしまった友人を見てクスクスと笑いながら、フェノンさんが「そうですわ」と肯定の意を示す。
+"Is that so? I-I-I don't have any such intentions, but if that were the case, with SR, it should be fine. After all, he has the endorsement of Fenon and His Majesty."
 
 <b>
 
-「もしエスアール様に不満があるなどと言ったら、その時はたとえ伯爵といえど――」
+You sound like a broken tin toy. You're overreacting to a hypothetical situation.
 
 <b>
 
-「それは勘弁してくれ」
+Watching my friend, who has gone a bit crazy, I chuckled as Fenon affirmed, "That's right."
 
 <b>
 
-「ふふっ――冗談よ」
+"If there are any complaints about Lord SR, even if it's the Count—"
 
 <b>
 
-呆れたような表情を浮かべるセラと、楽しそうに笑うフェノンさん。
-
-怖ぇよ。いったい彼女は何を言おうとしたんだ。
+"Please spare me from that."
 
 <b>
 
-こういうやり取り、セラはきっと慣れているんだろうな。幼い頃からの付き合いと言っていたし。
-
-俺とシリーさんを見てみろ。王族の権力に怯えて冷や汗だらだらだぞ。
+"Hehe—just kidding."
 
 <b>
 
-ひそひそと、俺は食器を片付けているシリーさんの耳元で呟いた。
+Sera looked exasperated, while Fenon laughed happily.
+
+That's scary. What on earth was she about to say?
 
 <b>
 
-「権力が絡むと、俺たちにはなかなか口を挟みにくいですよね」
+Sera is probably used to these kinds of exchanges. She mentioned that they've known each other since childhood.
+
+Look at Shiri and me. We're sweating bullets, intimidated by the power of royalty.
 
 <b>
 
-くすぐったそうに首を縮めた彼女は、俺の目を見て、キョトンとした表情をする。そして、笑顔で言った。
+In a whisper, I leaned closer to Shiri, who was cleaning the dishes.
 
 <b>
 
-「エスアール様も、セラ様たちと同じ権力者なのですよ？　きちんとご自覚なさってくださいね」
+"When it comes to power, it's hard for us to interject, isn't it?"
 
 <b>
 
-優しい顔の裏に、暗い部分が見え隠れしている。言外に『一緒にするな』と言われたような気がした。ごめんなさい。
+She shrank her neck as if tickled, looked into my eyes, and then gave me a puzzled expression. Then, she smiled and said,
+
+<b>
+
+"Lord SR, you are also a power holder like Sera and the others, you know? Please be aware of that."
+
+<b>
+
+Behind her gentle face, a dark side peeked through. I felt as if she was subtly telling me, "Don't compare yourself to us." I'm sorry.
 
 <b>
 
 <b>
 
-彼女たちはそれぞれの家に帰宅し、俺は広い家に一人。孤独を存分に味わうことのできるシンセツ設計だ。心を折ると書いて、心折設計。
+They returned to their respective homes, and I was left alone in the spacious house. It was a design that allowed me to fully savor loneliness. It could be written as "heartbroken design."
 
 <b>
 
-「タイミングとしては、ちょうど良かったな」
+"The timing is just right."
 
 <b>
 
-ベッドに寝転がり、今日２人と交わした会話を思い出す。
+Lying on the bed, I recalled the conversations I had with the two today.
 
-俺は元々、陛下やベルノート伯爵に挨拶がてら『あるお願い』をする予定だったのだ。
-
-<b>
-
-娘さんをください！　なんて言うつもりではない。
+Originally, I had planned to greet His Majesty and Count Bernault while making "a certain request."
 
 <b>
 
-フェノンさんやシリーさんの指導もある程度できたので、そろそろステータスアップの指輪がドロップするＢランクダンジョンの近く――すなわち、レーナスの街に拠点を移したいのだ。
+I don't intend to say, "Please give me your daughter!"
 
 <b>
 
-長期にわたり滞在する予定なので、家を買うことにした。空き家を探すか、一から建てるのかは未定だが、拠点を移すことは確定事項だ。
+Since I had been able to teach Fenon and Shiri to some extent, I wanted to move my base closer to the B-rank dungeon where the status-up rings drop—specifically, to the city of Renus.
 
 <b>
 
-つまり、フェノンさんやセラ、そしてシリーさんを王都から連れ出し、共に暮らそうという計画である。
-
-シリーさんはフェノンさんに仕えているので、彼女に関しては問題ないだろうが、王女様たちに関しては後々問題にならないよう親の了承を得ておきたい。
+Since I plan to stay for a long time, I decided to buy a house. Whether to look for an empty house or build one from scratch is undecided, but relocating my base is a certainty.
 
 <b>
 
-もし無理なのであれば、別々の家に住むことになるだろうが、毎日待ち合わせをするよりは、一緒に暮らしたほうがストレスもないだろう。
+In other words, the plan is to take Fenon, Sera, and Shiri out of the royal capital and live together.
 
-彼女たちの家が近くにあるならまだしも、他所の街に来て別々に住むメリットはあまりない。
-
-<b>
-
-「どんな家がいいかなぁ……ふあぁ」
+Since Shiri serves Fenon, there shouldn't be any issues regarding her, but I want to get the parents' approval for the princesses so that it doesn't become a problem later.
 
 <b>
 
-ヒノキ風呂もいいなぁ……。そういえばこの世界にヒノキはあるのだろうか？　まぁ似たような木材で一向に構わないけど。
+If it's not possible, we might end up living in separate houses, but it would be less stressful to live together than to meet up every day.
+
+If their houses are nearby, it wouldn't be a problem, but there isn't much benefit to living separately in another town.
 
 <b>
 
-後はウッドデッキも欲しい。
-
-ロッキングチェアに揺られながら、コーヒーを飲んでゆっくりしたい。
+"I wonder what kind of house would be good... yawn."
 
 <b>
 
-お金は腐るほどあるし、もし足らないとしてもエリクサーを売ればどうとでもなるだろう。
-
-彼女たちと一緒に住むかにかかわらず、色々な要望を叶えたいのなら一から建てるほうが良さそうだな。
+A hinoki bath would be nice... I wonder if hinoki exists in this world? Well, I wouldn't mind any similar wood.
 
 <b>
 
-楽しみだ。
+I also want a wooden deck.
+
+I want to relax while sipping coffee in a rocking chair.
+
+<b>
+
+I have plenty of money, and even if I run short, selling elixirs should solve the problem.
+
+Whether I live with them or not, if I want to fulfill various requests, it seems better to build from scratch.
+
+<b>
+
+I'm looking forward to it.
 
 <b>
 

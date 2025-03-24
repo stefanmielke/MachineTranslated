@@ -1,7 +1,7 @@
 ###### [Next Chapter](./chapter_0021.md)
 ###### [Previous Chapter](./chapter_0019.md)&nbsp;/&nbsp;
 
-# １９　お前は俺のかーちゃんか
+# 19 You're My Mom
 
 ## １９　お前は俺のかーちゃんか
 
@@ -11,63 +11,63 @@
 
 &nbsp;
 
-#### 迅雷の軌跡とセラさんには、転職後、早速Ｄランクダンジョンへと潜ってもらうことになった。彼らには今日を含めて７日間、みっちりダンジョンでレベルを上げて、ステータスボーナスを獲得してもらわなければならない。
+#### After changing jobs, Jinrai no Kiseki and Sera-san immediately went to dive into a D-rank dungeon. They needed to spend a full seven days, including today, leveling up in the dungeon and earning status bonuses.
 
 *迅雷の軌跡とセラさんには、転職後、早速Ｄランクダンジョンへと潜ってもらうことになった。彼らには今日を含めて７日間、みっちりダンジョンでレベルを上げて、ステータスボーナスを獲得してもらわなければならない。*
 
 &nbsp;
 
-#### 俺がそのハードスケジュールを告げても、誰１人として嫌そうな顔をする者はなく、レグルスさんが用意した『ステータス確認不要』の封書を手に、嬉々としてＤランクダンジョンへ向かっていった。
+#### Even when I informed them of the hard schedule, no one showed any signs of displeasure, and they happily headed to the D-rank dungeon with the 'No Status Check' sealed letter prepared by Regulus-san.
 
 *俺がそのハードスケジュールを告げても、誰１人として嫌そうな顔をする者はなく、レグルスさんが用意した『ステータス確認不要』の封書を手に、嬉々としてＤランクダンジョンへ向かっていった。*
 
-#### セラさんは「こちらのことは任せておけ」と言っていたが、その後ろでは迅雷の軌跡が苦笑していた。そりゃそうだ。セラさん、一番レベル低いし。
+#### Sera-san said, "Leave this to us," but behind her, Jinrai no Kiseki was smiling wryly. That’s understandable. Sera-san has the lowest level after all.
 
 *セラさんは「こちらのことは任せておけ」と言っていたが、その後ろでは迅雷の軌跡が苦笑していた。そりゃそうだ。セラさん、一番レベル低いし。*
 
 &nbsp;
 
-#### 俺のほうも武闘剣士のレベルを３０まで上げて、ＳＴＲを少しでも上げておかなければならない。でないと、長期戦となってＶＩＴ不足に嘆くことになってしまう。
+#### I also needed to raise my martial artist level to 30 and increase my STR as much as possible. Otherwise, I would end up lamenting my lack of VIT in a long battle.
 
 *俺のほうも武闘剣士のレベルを３０まで上げて、ＳＴＲを少しでも上げておかなければならない。でないと、長期戦となってＶＩＴ不足に嘆くことになってしまう。*
 
-#### 大見得をきった手前、無様な姿を晒すわけにはいかないし、全力でレベル上げに励むとしよう。
+#### Having made a bold declaration, I couldn't afford to show a pathetic appearance, so I decided to devote myself to leveling up.
 
 *大見得をきった手前、無様な姿を晒すわけにはいかないし、全力でレベル上げに励むとしよう。*
 
 &nbsp;
 
-#### 効率的には、やはりＢランクダンジョンの魔物を倒すより、Ｃランクダンジョンで数をこなすほうが早いはず。
+#### In terms of efficiency, it should be faster to defeat monsters in a C-rank dungeon than to tackle B-rank dungeon monsters.
 
 *効率的には、やはりＢランクダンジョンの魔物を倒すより、Ｃランクダンジョンで数をこなすほうが早いはず。*
 
 &nbsp;
 
-#### 「――いっちょ頑張るか」
+#### "---Let's give it our all."
 
 *「――いっちょ頑張るか」*
 
 &nbsp;
 
-#### 彼らとは、７日後に探索者ギルドで落ち合うことになった。
+#### I was set to meet them again at the Explorer's Guild in seven days.
 
 *彼らとは、７日後に探索者ギルドで落ち合うことになった。*
 
-#### 是非、王女様を助けるために――つまり俺に体力を温存させるために、頑張ってほしいものだ。
+#### I really hope they do their best to help the princess—meaning, to conserve my stamina.
 
 *是非、王女様を助けるために――つまり俺に体力を温存させるために、頑張ってほしいものだ。*
 
 &nbsp;
 
-#### 俺はギルドを出たところで、目覚ましと気合いを入れる意味で頬を叩く。
+#### As I left the guild, I slapped my cheeks to wake myself up and get motivated.
 
 *俺はギルドを出たところで、目覚ましと気合いを入れる意味で頬を叩く。*
 
-#### 疲れていようが時間が迫っていようが関係ない。レベル上げとか、ステータスとか、経験値とか、そんなゲームみたいなこの世界が、俺はやはり好きなのだ。
+#### It doesn't matter if I'm tired or if time is running out. I really do like this world, which feels like a game with leveling up, status, and experience points.
 
 *疲れていようが時間が迫っていようが関係ない。レベル上げとか、ステータスとか、経験値とか、そんなゲームみたいなこの世界が、俺はやはり好きなのだ。*
 
-#### ダンジョンへ向かう俺の顔は、自然と笑顔になっていた。
+#### My face naturally broke into a smile as I headed toward the dungeon.
 
 *ダンジョンへ向かう俺の顔は、自然と笑顔になっていた。*
 
@@ -81,85 +81,85 @@
 
 &nbsp;
 
-#### 「――間に合ったぁあああああ」
+#### "---I made it!"
 
 *「――間に合ったぁあああああ」*
 
 &nbsp;
 
-#### 約束の日の前日、時刻は夕方の５時過ぎだ。
+#### The day before the promised day, it was just past 5 PM.
 
 *約束の日の前日、時刻は夕方の５時過ぎだ。*
 
-#### 俺はＣランクダンジョンの４層を突破したところで、念願のレベル３０へと到達することができた。
+#### I had just broken through the fourth layer of the C-rank dungeon and finally reached my long-awaited level 30.
 
 *俺はＣランクダンジョンの４層を突破したところで、念願のレベル３０へと到達することができた。*
 
-#### 残りの５層とボス？　そんなもの知らん。帰還一択だわ。レベル上げがいくら好きとはいえ、限界ってのはあるんだよ。
+#### The remaining five layers and the boss? I don't care about those. I'm heading back. No matter how much I like leveling up, there are limits.
 
 *残りの５層とボス？　そんなもの知らん。帰還一択だわ。レベル上げがいくら好きとはいえ、限界ってのはあるんだよ。*
 
 &nbsp;
 
-#### いまからどれだけ頑張ろうと、明日までにレベル４０に到達するのは無理だし、４０に到達しないのであれば、別にいま頑張る必要は無い。
+#### No matter how hard I try now, reaching level 40 by tomorrow is impossible, and if I can't reach 40, there's no need to push myself right now.
 
 *いまからどれだけ頑張ろうと、明日までにレベル４０に到達するのは無理だし、４０に到達しないのであれば、別にいま頑張る必要は無い。*
 
 &nbsp;
 
-#### 当初の予定では、俺は合計７日――つまり、迅雷の軌跡たちと話をした日から５日もあれば、派生二次職をレベル３０にできる予定だった。
+#### Initially, I had planned to reach level 30 in a total of seven days—meaning, I thought I could do it in five days since I talked to Jinrai no Kiseki.
 
 *当初の予定では、俺は合計７日――つまり、迅雷の軌跡たちと話をした日から５日もあれば、派生二次職をレベル３０にできる予定だった。*
 
-#### だが、予想以上に疲労が溜まっていたようで、身体の動きは鈍く、踏破に時間がかかってしまった。
+#### However, it seemed I was more fatigued than I expected, and my body was sluggish, taking longer to progress.
 
 *だが、予想以上に疲労が溜まっていたようで、身体の動きは鈍く、踏破に時間がかかってしまった。*
 
-#### 彼らに合わせて７日ということにしていたけど、７日間必要なのは俺のほうだったみたいだ。
+#### I had set it to seven days to match them, but it turned out I was the one who needed the full seven days.
 
 *彼らに合わせて７日ということにしていたけど、７日間必要なのは俺のほうだったみたいだ。*
 
 &nbsp;
 
-#### ダンジョンを出て、フラフラした足取りで王都の宿を目指す。
+#### After exiting the dungeon, I staggered toward the inn in the royal capital.
 
 *ダンジョンを出て、フラフラした足取りで王都の宿を目指す。*
 
-#### 受付の人や他の探索者に『顔色が悪い』と心配されたが、「寝れば治る」と答えて立ち去った。実際その通りだしな。
+#### The receptionist and other explorers expressed concern, saying I looked pale, but I replied, "I'll be fine after some sleep," and left. That was indeed true.
 
 *受付の人や他の探索者に『顔色が悪い』と心配されたが、「寝れば治る」と答えて立ち去った。実際その通りだしな。*
 
 &nbsp;
 
-#### 「そういえばセラさんたちは、ちゃんとレベル３０にできたのか……？」
+#### "By the way, did Sera-san and the others manage to reach level 30...?"
 
 *「そういえばセラさんたちは、ちゃんとレベル３０にできたのか……？」*
 
 &nbsp;
 
-#### 宿の場所は教えていたから、何かあれば連絡があるはずだ。それが無かったということは、おそらく問題なくレベル上げに成功したということだろう。
+#### I had told them where the inn was, so they should contact me if anything happened. The lack of contact likely meant they had successfully leveled up without any issues.
 
 *宿の場所は教えていたから、何かあれば連絡があるはずだ。それが無かったということは、おそらく問題なくレベル上げに成功したということだろう。*
 
 &nbsp;
 
-#### 栄養ドリンク代わりに、Ｃランクダンジョンでドロップした中級ポーションを一気飲みする。あくまで治癒目的のポーションなので、気休めにしかならない。
+#### As a substitute for an energy drink, I downed an intermediate potion dropped in the C-rank dungeon. Since it was a healing potion, it only served as a temporary relief.
 
 *栄養ドリンク代わりに、Ｃランクダンジョンでドロップした中級ポーションを一気飲みする。あくまで治癒目的のポーションなので、気休めにしかならない。*
 
-#### 味は、美味くも不味くもない。水に少しハーブと薬っぽい風味を足したような味だ。若干甘みもあるが、嫌いな人は嫌いかもな。
+#### The taste was neither good nor bad. It tasted like water with a hint of herbs and a medicinal flavor. It had a slight sweetness, but those who dislike it might find it unpalatable.
 
 *味は、美味くも不味くもない。水に少しハーブと薬っぽい風味を足したような味だ。若干甘みもあるが、嫌いな人は嫌いかもな。*
 
 &nbsp;
 
-#### 「彼らが俺を信じてくれたように、俺も彼らを信じるしかないよな。うん。違いない。というわけで早く寝たい」
+#### "Just as they believed in me, I have to believe in them as well. Yes, there's no doubt about it. So, I want to sleep quickly."
 
 *「彼らが俺を信じてくれたように、俺も彼らを信じるしかないよな。うん。違いない。というわけで早く寝たい」*
 
 &nbsp;
 
-#### 寝不足で変なテンションになってしまっているのか、俺はいつもより多い独り言を呟きながら、覚束無い足取りで宿へと帰った。
+#### Perhaps due to lack of sleep, I was in a strange mood, muttering more to myself than usual as I returned to the inn with unsteady steps.
 
 *寝不足で変なテンションになってしまっているのか、俺はいつもより多い独り言を呟きながら、覚束無い足取りで宿へと帰った。*
 
@@ -167,93 +167,93 @@
 
 &nbsp;
 
-#### 宿に帰るなりベッドにダイブした俺は、そのまま翌日の朝８時まで寝続けた。それで全回復したかと問われれば、否と答える他ない。
+#### As soon as I returned to the inn, I dove into bed and slept straight through until 8 AM the next morning. If asked whether I had fully recovered, I would have to answer no.
 
 *宿に帰るなりベッドにダイブした俺は、そのまま翌日の朝８時まで寝続けた。それで全回復したかと問われれば、否と答える他ない。*
 
-#### 限界まで蓄積した疲労と睡眠不足は、たかだか１４時間程度の睡眠ではどうにもならなかった。
+#### The accumulated fatigue and sleep deprivation could not be resolved with just 14 hours of sleep.
 
 *限界まで蓄積した疲労と睡眠不足は、たかだか１４時間程度の睡眠ではどうにもならなかった。*
 
 &nbsp;
 
-#### 「んー……まだ寝足りん」
+#### "Hmm... still not enough sleep."
 
 *「んー……まだ寝足りん」*
 
 &nbsp;
 
-#### ベッドの上で思いっきりあくびをして、寝返りをうつ。うつ伏せになってから枕に向かって「うふぉひふぁふふぁーい（動きたくなーい）」などと叫んでいると、扉がノックされた。
+#### I yawned widely on the bed and turned over. Lying face down, I shouted into my pillow, "Ufohifuhafuhai (I don't want to move)," when there was a knock on the door.
 
 *ベッドの上で思いっきりあくびをして、寝返りをうつ。うつ伏せになってから枕に向かって「うふぉひふぁふふぁーい（動きたくなーい）」などと叫んでいると、扉がノックされた。*
 
 &nbsp;
 
-#### 「エスアール、入ってもいいか？」
+#### "SR, can I come in?"
 
 *「エスアール、入ってもいいか？」*
 
 &nbsp;
 
-#### 声の主は、セラさんだった。
+#### The voice belonged to Sera-san.
 
 *声の主は、セラさんだった。*
 
-#### ベッドから身体を起こし、最低限の身だしなみを整えてから「どうぞ」と返事をした。
+#### I sat up from bed, tidied myself up a bit, and replied, "Please come in."
 
 *ベッドから身体を起こし、最低限の身だしなみを整えてから「どうぞ」と返事をした。*
 
 &nbsp;
 
-#### 「今日は寝坊させられないからな。迎えにきたぞ」
+#### "I can't let you oversleep today. I'm here to pick you up."
 
 *「今日は寝坊させられないからな。迎えにきたぞ」*
 
 &nbsp;
 
-#### 彼女は入室するなり、にやりと笑みを浮かべて言った。
+#### She entered the room with a grin.
 
 *彼女は入室するなり、にやりと笑みを浮かべて言った。*
 
-#### 確かに俺は前科があるからな。心配するのも無理はないだろう。
+#### It's true that I have a history of oversleeping. It's understandable for her to worry.
 
 *確かに俺は前科があるからな。心配するのも無理はないだろう。*
 
-#### そして、彼女のその判断は間違っていなかった。気を抜いたら全てを忘れて二度寝してしまいそうだったし。
+#### And her judgment was not wrong. If I let my guard down, I might forget everything and fall back asleep.
 
 *そして、彼女のその判断は間違っていなかった。気を抜いたら全てを忘れて二度寝してしまいそうだったし。*
 
 &nbsp;
 
-#### 「お気遣いありがとうございます……９時集合ですよね？」
+#### "Thank you for your concern... We're meeting at 9, right?"
 
 *「お気遣いありがとうございます……９時集合ですよね？」*
 
 &nbsp;
 
-#### あと３０分は寝られるだろう？
+#### I could still sleep for another 30 minutes, right?
 
 *あと３０分は寝られるだろう？*
 
 &nbsp;
 
-#### 「あぁ。さすがに寝起きでダンジョンに入るわけにはいかないだろう？　今ぐらいから目を覚ましておかなければな」
+#### "Yeah. There's no way we can enter a dungeon right after waking up, right? You need to wake up by now."
 
 *「あぁ。さすがに寝起きでダンジョンに入るわけにはいかないだろう？　今ぐらいから目を覚ましておかなければな」*
 
 &nbsp;
 
-#### 「ですよねー」
+#### "You're right."
 
 *「ですよねー」*
 
 &nbsp;
 
-#### わかりましたよ起きますよ。
+#### Alright, I get it, I'm getting up.
 
 *わかりましたよ起きますよ。*
 
-#### お前は俺のかーちゃんか。
+#### Are you my mom or something?
 
 *お前は俺のかーちゃんか。*
 
@@ -261,77 +261,77 @@
 
 &nbsp;
 
-#### 顔を洗い、宿１階にある食堂で朝食を取りながら、セラさんから話を聞いていた。内容はもちろん、ここ７日間のこと。
+#### After washing my face and having breakfast in the dining room on the first floor of the inn, I listened to Sera-san talk. The content was, of course, about the past seven days.
 
 *顔を洗い、宿１階にある食堂で朝食を取りながら、セラさんから話を聞いていた。内容はもちろん、ここ７日間のこと。*
 
 &nbsp;
 
-#### 「では皆さん、３０レベルまでは上げられたんですね」
+#### "So everyone managed to level up to 30."
 
 *「では皆さん、３０レベルまでは上げられたんですね」*
 
 &nbsp;
 
-#### 「あぁ。迅雷の軌跡の皆は、ダンジョンに入るまではステータスボーナスに関して半信半疑だったが、問題なく倒せたことで、エスアールの言ったことが真実だと確信したようだ。それからは怒涛の魔物狩りだった。もちろん、私は貴方の言ったことは本当だと信じていたがな」
+#### "Yeah. The members of Jinrai no Kiseki were half in doubt about the status bonuses before entering the dungeon, but after defeating monsters without any issues, they seemed to have confirmed that what SR said was true. After that, it was a whirlwind of monster hunting. Of course, I believed what you said was true from the start."
 
 *「あぁ。迅雷の軌跡の皆は、ダンジョンに入るまではステータスボーナスに関して半信半疑だったが、問題なく倒せたことで、エスアールの言ったことが真実だと確信したようだ。それからは怒涛の魔物狩りだった。もちろん、私は貴方の言ったことは本当だと信じていたがな」*
 
 &nbsp;
 
-#### ふふん。と誇らしげにセラさんは言う。
+#### With a proud smile, Sera-san said this.
 
 *ふふん。と誇らしげにセラさんは言う。*
 
-#### そして、彼女はそのまま話を続けた。
+#### Then she continued her story.
 
 *そして、彼女はそのまま話を続けた。*
 
 &nbsp;
 
-#### 「レベル３０に到達したのは一昨日で、昨日はずっと職業を元に戻してから、Ｃランクダンジョンで連携の確認をしていた。迅雷の軌跡はともかく、私もエスアールと同じでソロの探索者だからな」
+#### "I reached level 30 the day before yesterday, and yesterday I spent the whole day reverting my job and confirming our coordination in the C-rank dungeon. Unlike Jinrai no Kiseki, I'm a solo explorer like you, SR."
 
 *「レベル３０に到達したのは一昨日で、昨日はずっと職業を元に戻してから、Ｃランクダンジョンで連携の確認をしていた。迅雷の軌跡はともかく、私もエスアールと同じでソロの探索者だからな」*
 
 &nbsp;
 
-#### 「なるほど。セラさんもついにＣランクダンジョンを踏破したんですね」
+#### "I see. So Sera-san finally conquered the C-rank dungeon."
 
 *「なるほど。セラさんもついにＣランクダンジョンを踏破したんですね」*
 
 &nbsp;
 
-#### 「もちろんだ。でないと、Ｂランクダンジョンに入れないだろう？　いざ決戦の地へ向かおうと言う時に、１人だけ取り残されるなど笑い話にもならん」
+#### "Of course. Otherwise, I wouldn't be able to enter a B-rank dungeon, would I? It wouldn't be a laughing matter if I were left behind when heading to the battlefield."
 
 *「もちろんだ。でないと、Ｂランクダンジョンに入れないだろう？　いざ決戦の地へ向かおうと言う時に、１人だけ取り残されるなど笑い話にもならん」*
 
 &nbsp;
 
-#### 「はははっ、それは見てみたかった気もします」
+#### "Haha, I would have liked to see that."
 
 *「はははっ、それは見てみたかった気もします」*
 
 &nbsp;
 
-#### 「ひどいじゃないか」
+#### "That's cruel."
 
 *「ひどいじゃないか」*
 
 &nbsp;
 
-#### セラさんはそう言いつつも、顔は笑顔だ。
+#### Even as she said that, Sera-san's face was smiling.
 
 *セラさんはそう言いつつも、顔は笑顔だ。*
 
-#### だが、これからの戦闘に緊張でもしているのか、若干の強ばりも見える。
+#### However, perhaps due to the tension for the upcoming battle, there was a slight stiffness visible.
 
 *だが、これからの戦闘に緊張でもしているのか、若干の強ばりも見える。*
 
-#### ダンジョンを踏破し、王女様の命が救われた時、いったい彼女はどんな顔で笑うのだろうか？
+#### When we conquer the dungeon and save the princess's life, I wonder what kind of smile she will have?
 
 *ダンジョンを踏破し、王女様の命が救われた時、いったい彼女はどんな顔で笑うのだろうか？*
 
-#### またひとつ、Ｂランクダンジョン踏破の目的が増えたな。
+#### Another purpose for conquering the B-rank dungeon has been added.
 
 *またひとつ、Ｂランクダンジョン踏破の目的が増えたな。*
 
@@ -339,193 +339,193 @@
 
 &nbsp;
 
-#### 朝食を終えてから、俺たちは待ち合わせ時間に間に合うように宿を出た。
+#### After finishing breakfast, we left the inn to make it in time for our meeting.
 
 *朝食を終えてから、俺たちは待ち合わせ時間に間に合うように宿を出た。*
 
-#### 探索者ギルドに着くと、受付付近をソワソワした様子で歩くレグルスさんがいた。近づいて、声をかける。
+#### When we arrived at the Explorer's Guild, we found Regulus-san pacing nervously near the reception area. I approached him and spoke.
 
 *探索者ギルドに着くと、受付付近をソワソワした様子で歩くレグルスさんがいた。近づいて、声をかける。*
 
 &nbsp;
 
-#### 「おはようございます。迅雷の軌跡の皆さんは来てますか？」
+#### "Good morning. Are the members of Jinrai no Kiseki here?"
 
 *「おはようございます。迅雷の軌跡の皆さんは来てますか？」*
 
 &nbsp;
 
-#### 「おぉ、時間通りにちゃんと来たな。あいつらは酒場のテーブルにいるぞ」
+#### "Ah, you made it on time. They're at a table in the tavern."
 
 *「おぉ、時間通りにちゃんと来たな。あいつらは酒場のテーブルにいるぞ」*
 
 &nbsp;
 
-#### レグルスさんが視線と顎で場所を示す。その方向に顔を向けると、シンさんがジョッキを片手に持ったまま手を上げた。
+#### Regulus-san indicated the location with his gaze and chin. When I turned my face in that direction, Shin-san raised his hand while holding a mug.
 
 *レグルスさんが視線と顎で場所を示す。その方向に顔を向けると、シンさんがジョッキを片手に持ったまま手を上げた。*
 
 &nbsp;
 
-#### 「まさかとは思いますが、酒は飲んでないですよね……？」
+#### "I can't believe it, but you guys aren't drinking alcohol, right...?"
 
 *「まさかとは思いますが、酒は飲んでないですよね……？」*
 
 &nbsp;
 
-#### 「そこまでバカな奴らじゃねぇよ。飲んでるのは水だ」
+#### "They're not that foolish. They're drinking water."
 
 *「そこまでバカな奴らじゃねぇよ。飲んでるのは水だ」*
 
 &nbsp;
 
-#### 「なぜジョッキで……」
+#### "Why with mugs...?"
 
 *「なぜジョッキで……」*
 
 &nbsp;
 
-#### 「さぁな。気合いでも入れてるんじゃねえか？」
+#### "Who knows? Maybe they're just trying to get pumped up?"
 
 *「さぁな。気合いでも入れてるんじゃねえか？」*
 
 &nbsp;
 
-#### はたしてジョッキで水を飲むことでやる気が出るのだろうか？　少なくとも俺はコップで飲みたいけど。
+#### Does drinking water from a mug really motivate someone? At least I would prefer to drink from a cup.
 
 *はたしてジョッキで水を飲むことでやる気が出るのだろうか？　少なくとも俺はコップで飲みたいけど。*
 
 &nbsp;
 
-#### シンさん、スズさん、ライカさんの３人が、椅子から立ち上がってこちらに向かってくる。俺は「おはようございます」と挨拶をした。
+#### Shin-san, Suzu-san, and Raika-san stood up from their chairs and approached us. I greeted them with, "Good morning."
 
 *シンさん、スズさん、ライカさんの３人が、椅子から立ち上がってこちらに向かってくる。俺は「おはようございます」と挨拶をした。*
 
 &nbsp;
 
-#### 「おはよう。お前さんちゃんと寝たのか？」
+#### "Good morning. Did you sleep well?"
 
 *「おはよう。お前さんちゃんと寝たのか？」*
 
 &nbsp;
 
-#### 「おはようです」
+#### "Good morning."
 
 *「おはようです」*
 
 &nbsp;
 
-#### 「おはよう。セラさんも一緒だったのね」
+#### "Good morning. So Sera-san was with you."
 
 *「おはよう。セラさんも一緒だったのね」*
 
 &nbsp;
 
-#### ３人はそれぞれ返事をしてくれて、俺とセラさんもそれに対して、ちゃんと寝ましたよ――とか、エスアールは寝坊するかもしれないから――などと返答する。
+#### The three of them replied, and Sera-san and I responded that we had indeed slept well—or that SR might oversleep, etc.
 
 *３人はそれぞれ返事をしてくれて、俺とセラさんもそれに対して、ちゃんと寝ましたよ――とか、エスアールは寝坊するかもしれないから――などと返答する。*
 
 &nbsp;
 
-#### コミュニケーションも大事だとは思うが、長々と話している暇はない。
+#### While I think communication is important, we don't have time to chat for long.
 
 *コミュニケーションも大事だとは思うが、長々と話している暇はない。*
 
 &nbsp;
 
-#### 「では、さっそくダンジョンへ向かいましょう。装備やポーションは万全ですか？」
+#### "Now, let's head to the dungeon right away. Are your equipment and potions ready?"
 
 *「では、さっそくダンジョンへ向かいましょう。装備やポーションは万全ですか？」*
 
 &nbsp;
 
-#### 「あぁ。俺たちが何年探索者やってると思ってるんだ。そういうお前さんはどうなんだ？　武器はインベントリの中なんだろうが、その服は防具とは呼べねぇぞ？」
+#### "Yeah. How many years do you think we've been explorers? What about you? Your weapon is in your inventory, but that outfit can't be called armor."
 
 *「あぁ。俺たちが何年探索者やってると思ってるんだ。そういうお前さんはどうなんだ？　武器はインベントリの中なんだろうが、その服は防具とは呼べねぇぞ？」*
 
 &nbsp;
 
-#### 「大丈夫ですよ。下手な防具は動きを阻害するだけですから、むしろ逆効果です」
+#### "I'm fine. Poor armor only hinders movement, so it's actually counterproductive."
 
 *「大丈夫ですよ。下手な防具は動きを阻害するだけですから、むしろ逆効果です」*
 
 &nbsp;
 
-#### 武器に関しても問題ない。
+#### There are no issues with my weapon either.
 
 *武器に関しても問題ない。*
 
 &nbsp;
 
-#### 本当はＣランクダンジョン踏破前に、街の武器屋で鋼鉄の剣を買っていたので、こいつでそのまま挑むつもりだった。だがそれよりも少しだけ性能の良い刀が、Ｃランクダンジョンのボスがドロップしてくれたのだ。
+#### Actually, before conquering the C-rank dungeon, I had bought a steel sword at the town's weapon shop, intending to use it for the challenge. However, I got a slightly better sword dropped from the boss of the C-rank dungeon.
 
 *本当はＣランクダンジョン踏破前に、街の武器屋で鋼鉄の剣を買っていたので、こいつでそのまま挑むつもりだった。だがそれよりも少しだけ性能の良い刀が、Ｃランクダンジョンのボスがドロップしてくれたのだ。*
 
-#### ゲーム時代からあったドロップなのか、この世界ならではなのかわからない。細々したドロップ品まで覚えていないからな。
+#### I don't know if it was a drop that existed since the game era or something unique to this world. I can't remember all the small drops.
 
 *ゲーム時代からあったドロップなのか、この世界ならではなのかわからない。細々したドロップ品まで覚えていないからな。*
 
 &nbsp;
 
-#### その刀は、『黒刀』という見た目通りの名前をしており、刃渡りは１メートルに満たないぐらい。軽く、切れ味もそこそこ。
+#### That sword is named "Kuroto," which fits its appearance, and its blade length is just under a meter. It's light and has decent sharpness.
 
 *その刀は、『黒刀』という見た目通りの名前をしており、刃渡りは１メートルに満たないぐらい。軽く、切れ味もそこそこ。*
 
-#### 微量の戦力アップだが、ないよりはマシだ。
+#### It's a slight boost in power, but better than nothing.
 
 *微量の戦力アップだが、ないよりはマシだ。*
 
 &nbsp;
 
-#### 「無理はするなよ」
+#### "Don't push yourself too hard."
 
 *「無理はするなよ」*
 
 &nbsp;
 
-#### レグルスさんが俺たちそれぞれに目を向けて、そう言った。
+#### Regulus-san looked at each of us and said that.
 
 *レグルスさんが俺たちそれぞれに目を向けて、そう言った。*
 
-#### 彼は徹頭徹尾、身分など関係なく――それこそ王女様と同じぐらい、俺を含む探索者を心配してくれている。
+#### He genuinely cares about us explorers, regardless of status—just like he does for the princess.
 
 *彼は徹頭徹尾、身分など関係なく――それこそ王女様と同じぐらい、俺を含む探索者を心配してくれている。*
 
-#### 彼のような人間が上司だと、仕事も楽しいだろう。地球で仕事をしていた頃の俺の上司と比べると、ドラゴンとスライムぐらいの差がある。
+#### Having a person like him as a boss must make work enjoyable. Compared to my boss back on Earth, the difference is like that between a dragon and a slime.
 
 *彼のような人間が上司だと、仕事も楽しいだろう。地球で仕事をしていた頃の俺の上司と比べると、ドラゴンとスライムぐらいの差がある。*
 
-#### なんて、ファンタジーな比喩表現をしてみたり。
+#### What a fantastical metaphor.
 
 *なんて、ファンタジーな比喩表現をしてみたり。*
 
 &nbsp;
 
-#### 「あぁ。行ってくる」
+#### "Yeah. I'm off."
 
 *「あぁ。行ってくる」*
 
 &nbsp;
 
-#### セラさんはそう言ってから、身を翻し、颯爽と探索者ギルドを出ていった。俺と迅雷の軌跡もその後に続く。途中、シンさんと目が合うと、彼は首を傾げた。
+#### Sera-san said that and then turned, leaving the Explorer's Guild with a flourish. I followed along with Jinrai no Kiseki. As we walked, I made eye contact with Shin-san, who tilted his head.
 
 *セラさんはそう言ってから、身を翻し、颯爽と探索者ギルドを出ていった。俺と迅雷の軌跡もその後に続く。途中、シンさんと目が合うと、彼は首を傾げた。*
 
 &nbsp;
 
-#### 「俺、国のトップパーティのリーダーなんだが……なんでセラが俺たちを率いてるんだ？」
+#### "I'm the leader of the country's top party... so why is Sera leading us?"
 
 *「俺、国のトップパーティのリーダーなんだが……なんでセラが俺たちを率いてるんだ？」*
 
 &nbsp;
 
-#### 「あえてツッコムのも可哀想ですから、許してあげましょう」
+#### "Let’s not point that out; it would be cruel, so let's just let it slide."
 
 *「あえてツッコムのも可哀想ですから、許してあげましょう」*
 
 &nbsp;
 
-#### 俺たちは揃って肩を竦め、苦笑する。元気よく腕を振って歩くセラさんは、まるで子供が冒険ごっこでもしているかのようだった。
+#### We all shrugged and smiled wryly. Sera-san, walking energetically with her arms swinging, looked like a child playing at adventure.
 
 *俺たちは揃って肩を竦め、苦笑する。元気よく腕を振って歩くセラさんは、まるで子供が冒険ごっこでもしているかのようだった。*
 

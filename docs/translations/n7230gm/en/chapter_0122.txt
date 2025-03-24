@@ -1,4 +1,4 @@
-# Ａ－８　両手を上げろ！
+# A-8 Raise Your Hands!
 
 <b>
 
@@ -6,49 +6,49 @@
 
 <b>
 
-「これは嫌な視線の浴び方だなぁ」
+"This is an unpleasant way to be stared at."
 
 <b>
 
-パレードの時間が近づくに連れて、城下町を歩く人の数も徐々に増えてきていた。だが、朝方のまだ人が少ない時間よりも、現在のほうがまだ歩きやすい。原因は考えるまでもなく、俺の背に担がれた白シャツの男である。
+As the time for the parade approached, the number of people walking in the castle town gradually increased. However, it was still easier to walk now than it was in the early morning when there were fewer people. The reason for this was obvious: the man in the white shirt slung over my back.
 
 <b>
 
-ちょっとした手違いで卑猥な縛り方になってしまっているが、セラたちは『不思議な縛り方』という認識だし、とりあえずセーフということで。
+Due to a slight mishap, he was tied up in a rather indecent manner, but Serah and the others recognized it as a 'mysterious way of binding,' so for now, it was safe.
 
-ノアだけはニヤニヤしながら「よくそんな縛り方を知っているね」と言っていたので、強めの手刀を振り下ろしておいた。
-
-<b>
-
-「ズタ袋にでも入れたほうが良かったんじゃないか？」
+Only Noah, grinning, said, "You really know how to tie someone up like that," so I brought down a strong hand chop on him.
 
 <b>
 
-縄を噛みしめながら唸っている男を横目で見つつ、セラが言った。
+"Wouldn't it have been better to put him in a sack or something?"
 
 <b>
 
-「こいつが入るような大きい袋持ってねぇよ……それに、どうせそろそろ着くだろ」
+While glancing at the man groaning with the rope in his mouth, Serah said.
 
 <b>
 
-最初にこの白シャツの男を捕えてから、だいたい十五分ぐらい歩いただろうか。
-
-ノアの読心術を頼りにスリ集団のたまり場を目指して街を歩いていたのだが、その短い間だけでも、俺たちはスリを十人以上捕縛している。いくらなんでも多すぎだろ。
+"I don't have a big enough bag for him to fit in... and besides, we'll be arriving soon anyway."
 
 <b>
 
-騎士団の人たちはライレスさんから俺たちが警備に加わっているということを知らされていたようで、すんなりと窃盗犯の受け渡しはできたが、皆が皆、不思議そうに首を傾げていた。
+It had been about fifteen minutes since we captured this man in the white shirt.
+
+We had been walking through the city, relying on Noah's mind-reading abilities to head toward the thieves' hideout, and even in that short time, we had captured over ten pickpockets. That's just too many.
 
 <b>
 
-それもそのはず。
+It seemed that the knights had been informed by Mr. Riles that we were assisting with security, so the handover of the thieves went smoothly, but everyone looked puzzled.
 
 <b>
 
-だって俺たちがライレスさんに頼まれていた仕事って、街中で起こったケンカを収めることだし。
+And rightly so.
 
-もし今ライレスさんに見つかったらややこしくなりそうなので、見つからないうちに全てを終わらせてしまいたいところだな。
+<b>
+
+After all, the job we had been asked to do by Mr. Riles was to settle fights occurring in the city.
+
+If Mr. Riles were to find us now, things could get complicated, so I wanted to finish everything before we were spotted.
 
 <b>
 
@@ -60,193 +60,191 @@
 
 <b>
 
-「……ここみたいだね。中にいる人たちは全員そうだよ。地下にたくさんいるみたいだ」
+"...This seems to be the place. Everyone inside is definitely involved. It seems there are many in the basement."
 
 <b>
 
-「地下まであんのか……」
+"There's a basement, huh..."
 
 <b>
 
-たどり着いた場所は、いたって普通の宿屋。
+The place we arrived at was an entirely ordinary inn.
 
-しかもまったく見知らぬ場所というわけでもなく、そこは俺とノアが先日訪れたばかりの宿屋だった。その時は部屋が埋まっているということで別の宿に泊まることになったが、まさかスリ集団のアジトだったとは。
-
-<b>
-
-ここまでの道のりを示してくれたスリの男は、通りにいた二人組で見回りをしていた騎士団の人に引き渡した。場所さえわかれば用済みだからな。
+Moreover, it wasn't a completely unfamiliar place; it was the inn that Noah and I had visited just a few days ago. At that time, we had to stay at a different inn because the rooms were full, but I never expected it to be the hideout of a thieves' group.
 
 <b>
 
-「ノアは前に来たときに気付かなかったのか？」
+The thief who guided us here was handed over to the knights who were patrolling in pairs on the street. Once we knew the location, he was no longer needed.
 
 <b>
 
-「僕も周囲の声を全部拾っていたら頭がパンクしちゃうからね……気付けなくてごめん」
+"Didn't you notice it when we came here before, Noah?"
 
 <b>
 
-ノアはそう返答しながら、まるで叱られた子供のように顔を俯かせる。
-
-その元管理者様とは思えないような姿を見て、俺はため息を吐きながらノアの頭に手刀を振り下ろした。先程スリの縛り方をからかわれた時よりも軽く。
+"I would have gone crazy if I had picked up all the surrounding voices... Sorry for not noticing."
 
 <b>
 
-「非難するつもりで言ったわけじゃねぇよバカ。そもそもお前がいなきゃこの場所をこんなに早く見つけられなかったんだ。ノアは十分働いてくれてる――だから、後は俺たちに任せとけ」
+Noah replied, looking down like a scolded child.
+
+Seeing that appearance, which was hard to believe belonged to a former administrator, I sighed and brought my hand down lightly on Noah's head. Lighter than when I was teased about the way I tied up the thief earlier.
 
 <b>
 
-と、見た目幼女の神様に少し格好つけてみたり。
+"I didn't say that to criticize you, you idiot. Besides, if it weren't for you, we wouldn't have found this place so quickly. You've done enough work—so just leave the rest to us."
 
 <b>
 
-それからセラ、フェノン、シリーの順に目配せすると、彼女たちは自信に満ち溢れたような表情でコクリと頷いた。
-
-セラたちの実力を考えれば、俺抜きでも余裕でこの集団を殲滅できてしまうだろう。もし相手に実力があるのなら、スリなどせずに大人しくダンジョンに潜っているだろうし。
+I tried to look a bit cool in front of the goddess who looked like a little girl.
 
 <b>
 
-「俺は後ろから三人をサポートしつつ、漏れが無いように見張っておくよ。だから皆は好きに暴れ回ってくれ」
+After exchanging glances with Serah, Fenon, and Shiri in order, they nodded confidently.
+
+Considering Serah and the others' abilities, they could easily wipe out this group even without me. If the opponents were capable, they wouldn't be pickpockets but would quietly delve into dungeons.
 
 <b>
 
-「わかった」「わかりました！」「はいっ！」
+"I'll support the three of you from the back while keeping an eye out to ensure nothing slips through. So you all can go wild."
 
 <b>
 
-俺が激励の言葉を掛けると、元気の良い返事が三つ。
+"Understood," "Got it!" "Yes!"
 
-張り切っているところ申し訳ないが、彼女たちが相手を殺してしまわないか少し不安だ……まぁ、エリクサーはまだまだあるし、使用することになったらその分は犯罪者どもに請求すればいいか。
+<b>
+
+When I encouraged them, I received three energetic replies.
+
+I felt a bit sorry for their enthusiasm, but I was a little worried they might end up killing the opponents... Well, we still had plenty of elixirs, and if it came to that, I could just bill the criminals for the usage.
 
 <b>
 
 <b>
 
-「全員武器を捨てて両手を上げろっ！」
+"Everyone, drop your weapons and raise your hands!"
 
 <b>
 
-宿の扉を蹴り飛ばすと、俺は昔ドラマや映画で何度も見た憧れの台詞を口にした。
+Kicking the inn's door open, I uttered the line I had admired from dramas and movies many times.
 
 <b>
 
-だがしかし、カウンターの内側でキョトンとした表情になってしまっている受付のオッサンも、隅のテーブルで酒を飲んでいる二人組の男も、持っているのはナイフでも鈍器でもなく酒の入っているジョッキだ。とても悲しい失敗である。
+However, the receptionist behind the counter, who looked bewildered, and the two men drinking at a corner table were holding not knives or blunt weapons, but mugs filled with alcohol. It was a very sad failure.
 
-というか受付で酒飲むなやオッサン。
-
-<b>
-
-「セラたちに任せるんじゃなかったの？」
+I mean, don't drink at the reception, old man.
 
 <b>
 
-「いやまぁ……そうなんだけどさ、好奇心の赴くままに行動したらこうなってしまった」
+"Weren't you supposed to leave it to Serah and the others?"
 
 <b>
 
-「スリ集団の隠れ家の制圧だよ？　結構マジメな仕事だと思うんだけど……お兄ちゃんはいつまでもゲーム感覚だねぇ」
+"Well, yeah... but I acted on curiosity, and this is what happened."
 
 <b>
 
-「そうかなぁ。自分でもわからんが、難易度が低すぎるから緊張感がないのかもしれん」
+"We're taking down a thieves' hideout, you know? I think it's quite a serious job... You still see it as a game, don't you?"
 
 <b>
 
-などと。
+"Is that so? I can't really tell, but maybe the low difficulty is making it feel less tense."
 
 <b>
 
-偽物の兄妹を演じつつ呑気に会話をしている間にも、セラたち三人はあっという間に男どもの意識を刈り取り、うつ伏せにして縄で縛っていた。仕事が速いですね。
+And so on.
 
 <b>
 
-セラは探索者として活動していた期間が長いし、荒事に慣れていても不思議ではない。だから俺はフェノンとシリーの様子を見守っていたのだが、それぞれ魔法と膝蹴りで危うげなく男どもを倒していた。きちんと手加減はできているようで、うっかり内臓が破裂しちゃった――なんてこともなさそうだ。
+While we were leisurely chatting, pretending to be fake siblings, Serah and the other three quickly incapacitated the men, binding them face down with ropes. They were fast at their jobs.
+
+Serah had been active as an explorer for a long time, so it wasn't surprising she was used to rough situations. I was watching Fenon and Shiri, and they were both taking down the men effortlessly with magic and knee strikes. It seemed they were managing to hold back, so it didn't look like anyone's insides would burst.
 
 <b>
 
-「しまった……一人ぐらい意識を残させておいたほうが良かったな」
+"Oops... I should have left at least one of them conscious."
 
 <b>
 
-やってしまった――そんな雰囲気の声色でセラが言う。
+Serah said with a tone that suggested she felt she had messed up.
 
-彼女の足元には、顔面が少しへこんで白目を剥いている店主の横顔。ご愁傷さまです。
-
-<b>
-
-「大丈夫だよ。僕はだいたい相手の居る場所がわかるし、お兄ちゃんもうっすらとわかってるでしょ？」
+At her feet lay the shopkeeper, whose face was slightly dented and eyes rolled back. My condolences.
 
 <b>
 
-「まぁ……俺に直接悪意を向けられてるわけじゃないから、はっきりとはしないが」
+"Don't worry. I can generally sense where the others are, and you can too, right?"
 
 <b>
 
-もしわかってしまうのなら、それはもはや『気配察知』ではなく『索敵』みたいなスキルだろう。
+"Well... since they aren't directing any malice toward me, I can't tell for sure."
 
 <b>
 
-それはいいとして、
+If I could sense them, it would no longer be 'presence detection' but more like a 'searching' skill.
 
 <b>
 
-「これだけドタバタやれば、中にいる奴らもさすがに気付いただろうな。奴らも逃げるなり応戦するなりするだろうから――ノアは建物の外から、俺は内側から逃がさないようにするか」
+That aside,
 
 <b>
 
-「わかりました！　では、私たちは犯罪者を殺さない程度に痛めつけて捕縛すれば良いのですね！」
+"After all this commotion, the ones inside must have noticed by now. They'll either try to escape or fight back—so Noah will keep watch outside, and I'll make sure they don't escape from the inside."
 
 <b>
 
-「お、おう。フェノンたちなら大丈夫だとは思うけど、気を付けろよ」
+"Understood! So we just need to subdue the criminals without killing them, right?"
 
 <b>
 
-「ありがとうございます！　そのお言葉だけで元気百倍です！　相手が何人だろうと討ち取ってみせます！」
+"Y-yeah. I think Fenon and the others will be fine, but be careful."
 
 <b>
 
-やる気十分――といった様子で、フェノンがガッツポーズをとる。討ち取ったらダメだからね？
+"Thank you! Just those words give me a hundred times more energy! No matter how many opponents there are, I will take them down!"
 
 <b>
 
-「私も頑張るぞ！　もし一番多く敵を倒すことができたら、あ、あああ頭を撫でてくれてもいいからなっ！」
+Fenon struck a triumphant pose, looking full of determination. But remember, you can't actually take them down, okay?
 
 <b>
 
-「それは良い考えねセラっ！　そうしましょうっ！」
+"I'll do my best too! If I can defeat the most enemies, um, you can pat my head!"
 
 <b>
 
-俺の意見など言う暇もなく、きゃぴきゃぴと女性陣が盛り上がっている。何気にシリーも「負けませんよ」なんて言って参戦しているし。
+"That's a great idea, Serah! Let's do that!"
 
 <b>
 
-俺はそんなやりとりを傍から見ながら、建物の外に出ようと歩きだしたノアに声を掛ける。
+Before I could even voice my opinion, the women were excitedly getting into it. Shiri casually chimed in with, "I won't lose either."
 
 <b>
 
-「俺よりも、セラたちのほうがゲーム感覚じゃないか？」
+As I watched their exchange, I called out to Noah, who was starting to walk outside the building.
 
 <b>
 
-「はははっ、それは君が見守っているという安心感のせいだよ」
+"Aren't Serah and the others more in a game-like mindset than I am?"
 
 <b>
 
-「はぁ……なるほど？」
+"Hahaha, that's because you feel secure knowing you're watching over them."
 
 <b>
 
-納得できるようなできないような……まぁ彼女たちが笑ってくれているのなら、なんでもいいか。
+"Ah... I see?"
 
 <b>
 
-ただ一人、ノアだけは少し不満そうな表情だったけど……まさか元神様が俺に頭を撫でてもらいたかった――なんてことはないよな。さすがにないない。
+I couldn't quite agree or disagree... Well, as long as they were smiling, I guess it was fine.
 
 <b>
 
-とりあえず、敵味方関係なく死者がでないように見張っとくとしよう。
+Only Noah looked a bit dissatisfied, but... there's no way the former goddess wanted me to pat her head, right? Surely not.
+
+<b>
+
+For now, I'll keep an eye out to ensure that no one dies, regardless of friend or foe.
 
 <b>
 

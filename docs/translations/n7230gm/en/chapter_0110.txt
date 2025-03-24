@@ -1,432 +1,432 @@
-# １０７　油断
+# 107 Carelessness
 
 <b>
 
 <b>
 
-腹にぽっかりと空いた風穴。
+A gaping hole in my abdomen.
 
-熱いと思っていた刺激は痛みへと変わり、思考速度は急激に落ち込んだ。
+The heat I thought was a stimulus turned into pain, and my thought process rapidly declined.
 
 <b>
 
-きっとこれが俺一人の戦いだったならば、エリクサーをまともに使うこともなくここでゲームオーバーだったはずだ。
+Surely, if this had been a battle fought alone, I would have reached game over here without even properly using an elixir.
 
-世界は救えず、そしてセラたちと再会することもできず、俺は永遠に意識を取り戻すことはなかっただろう。
+I wouldn't have been able to save the world, nor reunite with Sera and the others, and I would have never regained consciousness.
 
 <b>
 
-だが、いまこの場所には俺とベノム――それ以外にもう一人が確かに存在していた。いや、『一人』といっていいのかもわからないけど。
+However, at this moment, there was certainly me and Venom here—along with someone else. Though I’m not sure if I can even call it "someone."
 
 <b>
 
-吐血し、膝から崩れ落ちる俺の頭に、パシャと液体が降り注いできた。
+As I collapsed to my knees, coughing up blood, liquid splashed onto my head.
 
 <b>
 
-『すぐに態勢を整えてっ！　１０秒は僕が時間を稼ぐからっ！！』
+"Get ready immediately! I'll buy you ten seconds!!"
 
 <b>
 
-腹に穴を空けられた人に対して『１０秒でなんとかしろ』とは……なんて鬼畜な神なんだろうか。
+Telling someone with a hole in their abdomen to "manage in ten seconds"… what a cruel god this is.
 
 <b>
 
-「……了解」
+"…Understood."
 
 <b>
 
-口の中の血を地面に吐き出し、小さく返事をする。
+I spat the blood in my mouth onto the ground and replied softly.
 
 <b>
 
-視線の先にいるベノムは、いつの間にか戦闘前に見たものと同じような結界に覆われていた。しかしその結界はゆらゆらと不安定で――薄い。
+Venom, who was in my line of sight, was covered in a barrier similar to the one I had seen before the battle. However, that barrier was swaying and unstable—thin.
 
-１０秒というベノムを拘束する時間も、きっとかなり無理をして捻り出しているのだろうということがわかる。
+It was clear that the ten seconds to restrain Venom was likely being squeezed out with considerable effort.
 
 <b>
 
-腹の傷跡は光に包まれて絶賛治療されている最中だったが、念の為ということで俺はインベントリからエリクサーを取り出し、口の中に溢れている血と共に喉へと勢いよく流し込んだ。
+The wound on my abdomen was enveloped in light and was being treated, but just in case, I took an elixir from my inventory and poured it down my throat along with the blood pooling in my mouth.
 
 <b>
 
-これで回復が不十分になる部位はないと思う。
+I don't think there are any areas that won't be sufficiently healed now.
 
-服の袖で口元の血を拭いながら、俺はベノムを睨みつけた。
+Wiping the blood from my mouth with the sleeve of my clothes, I glared at Venom.
 
 <b>
 
-「…………座標で攻撃場所を指定してるのか？　それとも不可視のレーザーみたいな感じか？」
+"…Are you specifying the attack location with coordinates? Or is it like an invisible laser?"
 
 <b>
 
-深く考えている時間はない。
+There was no time to think deeply.
 
-１０秒という時間はあっという間に過ぎ、ベノムは容易く結界を打ち破った。
+The ten seconds passed in the blink of an eye, and Venom easily broke through the barrier.
 
-苦しげなノアの声が頭に響くが、それを心配してやれるほど今の俺に余裕はなかった。仮にこいつに何かあったとしても、俺はなにもしてやれないし。
+Noah's pained voice echoed in my head, but I didn't have the luxury to worry about that. Even if something happened to him, I couldn't do anything.
 
 <b>
 
-俺が成すべき事は、ベノムを倒す――それだけだ。
+What I needed to do was defeat Venom—that's all.
 
 <b>
 
-素早くインベントリから３本の上級ポーションを取り出して、親指以外の指の間にそれぞれを挟み込む。
+Quickly, I took out three advanced potions from my inventory and held one between each finger except my thumb.
 
 <b>
 
-「初見の攻撃とはいえ、全く対応できないとはな」
+"Even though it's my first time seeing this attack, I can't respond at all."
 
 <b>
 
-まずは解析だ。
+First, I needed to analyze.
 
-敵の攻撃を正しく理解することが勝利を掴むには不可欠である。
+Correctly understanding the enemy's attack is essential to seize victory.
 
 <b>
 
-ベノムが再び瞼を下ろし始めたのを確認した俺は、横に向かって全力疾走。そして瓶の中に入った液体を散らしながら、ベノムが目を開くタイミングを予測して、斜め上に跳んだ。
+Confirming that Venom had begun to lower his eyelids again, I sprinted sideways with all my might. As I scattered the liquid from the bottle, I predicted the timing for Venom to open his eyes and jumped diagonally upward.
 
 <b>
 
-すると、ちょうど俺が跳ぶために脚を踏み切った位置の液体がぽっかりと消失した。
+Then, the liquid at the spot where I had pushed off to jump suddenly vanished.
 
-新たにインベントリからポーションの入った瓶を取り出しながら着地。再びベノムを中心として円を描くように走る。
+I landed while taking out another potion from my inventory. I ran in a circle around Venom again.
 
 <b>
 
-「瞼を閉じ始めた時にいた場所のポーションが消えてくれたら随分と楽だったんだがな。さすがにそんな簡単なわけないか」
+"It would have been much easier if the potion had vanished from the spot where I was when he started closing his eyelids. But I guess it can't be that simple."
 
 <b>
 
-次は身体を地面に這いつくばらせて回避。確認したのは、この攻撃がベノムの視線の延長線全てに影響するのか、それともピンポイントで指定されているのか――ということだ。
+Next, I crawled on the ground to dodge. What I confirmed was whether this attack affected the entire line of sight of Venom or if it was pinpointed.
 
 <b>
 
-これに関しては、後者。
+Regarding this, it was the latter.
 
-つまり新たなベノムの攻撃範囲は、だいたい自分と同じ体積を持っているということだ。これならばまだ、色々とやりようはある。
+In other words, the new attack range of Venom had roughly the same volume as himself. With this, there were still various things I could do.
 
 <b>
 
-この攻撃が発動するまでは結構隙ができているし、ベノムに俺の動きを完全に予測されることがなければ大丈夫。同じ動きを二度しなければ問題ないだろう。
+There was quite a gap before this attack activated, and as long as Venom couldn't completely predict my movements, I should be fine. As long as I didn't repeat the same movement twice, it shouldn't be a problem.
 
 <b>
 
-「短期で決めなきゃな」
+"I need to finish this quickly."
 
 <b>
 
-とはいえ、回避行動の選択肢は無限にあるわけではない。
+That said, the options for evasive actions weren't infinite.
 
 <b>
 
-俺の中で選択肢が底を付いた時、残りは運との戦いになってしまう。俺の回避先を、ベノムが当てることができるか。１００通りの回避行動の種類があったとしても、それを出し切ってしまえばベノムが攻撃をするたびに１パーセントで死ぬのだから。
+When my options ran out, it would turn into a battle of luck. Could Venom guess my evasive direction? Even if there were a hundred types of evasive actions, if I exhausted them all, I would die with a one percent chance every time Venom attacked.
 
 <b>
 
-というわけで、
+So,
 
 <b>
 
-「攻め、あるのみっ！」
+"Attack is the only option!"
 
 <b>
 
-グッ――と地面を勢いよく踏み、全力で前へ。
+I stomped the ground with force and charged forward.
 
 <b>
 
-ベノムから放たれる十を超える火の弾丸をすんでのところで躱しつつ、懐へと潜り込む。半月を描くように、俺は全力で白蓮を振るった。
+Dodging the more than ten fire projectiles shot from Venom just in time, I slipped into his range. With all my might, I swung my white lotus.
 
 <b>
 
-――が、
+—But,
 
 <b>
 
-「――っち、まじかよ」
+"—Damn, seriously?"
 
 <b>
 
-俺の攻撃がベノムにダメージを与えることは無かった。
+My attack did not deal any damage to Venom.
 
-ガラスのような六角形の障壁が、ヴン――という音と共にベノムの前に出現し、俺の攻撃を阻む。
+A glass-like hexagonal barrier appeared with a sound, blocking my attack.
 
 <b>
 
-幸い、一撃でその障壁は破壊できたものの、完全に攻撃の勢いは殺されてしまっていた。白蓮の全力でギリギリ破壊できるということは、魔法での破壊は難しいだろう。
+Fortunately, I was able to destroy that barrier with a single blow, but the momentum of my attack was completely halted. The fact that I could barely destroy it with all my might meant that breaking it with magic would be difficult.
 
 <b>
 
-ベノムから距離を取り、敵に狙いを定められないように再び走る。
+I distanced myself from Venom and ran again to avoid being targeted.
 
 <b>
 
-あの攻撃が当たらないとなると、敵の予測できない攻撃をするか――もしくは強烈な攻撃を二連続で繰り出すか。
+If that attack couldn't hit, I had to either perform an unpredictable attack or unleash two consecutive powerful attacks.
 
-両者ともに成功すれば、白蓮の効果である『白煌』をいかんなく発揮できるが。
+If both succeeded, I could fully utilize the effect of "White Radiance" from the white lotus.
 
 <b>
 
-そんなことを考えていると、ベノムの身体がブレ始めた。
+While I was thinking about this, Venom's body began to blur.
 
-俺の視界に映る他のモノは普通に見えているのに、ベノムだけがブレて見える――つまりコレは、
+Although everything else in my field of vision looked normal, Venom alone appeared to be blurring—meaning this was,
 
 <b>
 
-「ここで幻覚かよ……キッついな」
+"An illusion here… how tough."
 
 <b>
 
-ブレは徐々に大きくなり、そしてやがて完全に二つの個体ができあがった。片方のベノムは身体がやや透けている――幻覚魔法とはいうが、事実上は分身だ。
+The blurring gradually intensified, and soon two distinct figures of Venom formed. One of them was slightly transparent—though it was called an illusion magic, it was essentially a clone.
 
 <b>
 
-幻覚のほうのベノムが、ゆっくりと瞼を下ろしはじめる。
+The illusionary Venom slowly began to close its eyelids.
 
-俺はそれを確認してすぐに方向転換。逆回りに走り始めた。
+As soon as I confirmed that, I changed direction and started running the opposite way.
 
 <b>
 
-すると、ズン――っと急に身体が重くなる。
+Then, suddenly, my body felt heavy.
 
 <b>
 
-「重力魔法とコンボとか、やめて、ほしいんだがっ！！」
+"Combining gravity magic with this? I really don't want that!!"
 
 <b>
 
-再び走る方向を変更。ベノムが目を見開いたと同時、左耳の上部に痛みが襲ってきた。痛みを感じた場所を手で確認したところ、見事に無くなっている。ドロっとした切り口の感触が手に残った。
+I changed my running direction again. Just as Venom opened his eyes, pain struck the upper part of my left ear. When I checked the spot where I felt the pain with my hand, it was completely gone. I felt the slimy sensation of a cut remaining on my hand.
 
 <b>
 
-「――つぅ……クソ痛ぇ……」
+"—Ugh… that hurts…"
 
 <b>
 
-痛いが、この耳はしばらくの間放置するしかない。エリクサーは時間制限で使えないし、そもそもこれしきの傷でポーションを使っていては、キリがない。
+It hurt, but I had no choice but to leave this ear alone for a while. I couldn't use an elixir due to the time limit, and using a potion for such a wound would be pointless.
 
 <b>
 
-アドレナリンを頼りにして、本体に向かって駆け出す。
+Relying on adrenaline, I dashed toward the main body.
 
-あの身体を削り取る魔法がある以上、どちらのベノムからも一瞬たりとも目を逸らせない。動き始めを確認しておかないと、こちらの対応が遅れてしまうからだ。
+As long as that body-slicing magic existed, I couldn't take my eyes off either Venom for even a moment. I needed to confirm the start of their movements; otherwise, my response would be delayed.
 
 <b>
 
-両者から放たれる数々の魔法、そして時折重力魔法を加えてくるが、これぐらいならばゲームの中で何度も経験した。
+Numerous spells were unleashed from both sides, and occasionally gravity magic was added, but I had experienced this much in the game many times.
 
 <b>
 
-俺は走りながらインベントリから赤刀を取り出し、左手で握る。
+While running, I took out the red sword from my inventory and gripped it with my left hand.
 
-接近し、そして赤刀をベノムに向かって振るうと――想定通り障壁を破壊することもできずに弾かれた。
+As I got closer and swung the red sword toward Venom—just as I had anticipated, I was repelled without being able to destroy the barrier.
 
 <b>
 
-「こっちはどうだっ！？」
+"How about this!?"
 
 <b>
 
-正面から放たれる岩の弾丸を紙一重で回避し、ノータイムで障壁が展開されていない場所を狙い、白蓮を振るう。
+I narrowly dodged a rock projectile launched from the front and aimed for a spot where the barrier wasn't deployed, swinging the white lotus.
 
-たとえ障壁が複数展開できたとしても、間に合うまい。俺の攻撃はしっかりとベノムの眼球に切り傷を与えた。
+Even if multiple barriers could be deployed, they wouldn't be in time. My attack successfully left a cut on Venom's eyeball.
 
 <b>
 
-眼球だけの身体をしているが、ベノムは確かに怯んでいることがわかる。
+Though it had a body made solely of eyeballs, it was clear that Venom was indeed flinching.
 
-ここが勝負どころだろっ！
+This was the decisive moment!
 
 <b>
 
-「うぉおおあああああっ！！」
+"Whoaahhh!!"
 
 <b>
 
-切る、切る、切る、切る、切る――！
+Slice, slice, slice, slice, slice—!
 
 <b>
 
-抗う敵の攻撃を交わしながら、両方の腕を限界の力で振るう、そして叫ぶ。この勝負にさえ耐えてくれたら、あとはちぎれてしまっても構わない。それぐらいの気持ちで赤と白の刀を振り続けた。
+Dodging the enemy's resisting attacks, I swung both arms with all my strength and shouted. If I could just endure this battle, I wouldn't mind if I fell apart afterward. With that mindset, I continued to swing the red and white swords.
 
 <b>
 
-勝ちたい――負けたくない――！
+I want to win—I don't want to lose—!
 
 <b>
 
-「終われっ！」
+"End it!"
 
 <b>
 
-身体が小さくなった影響の一つなのか、ベノムは少し打たれ弱くなっているように感じた。体積に対する傷口の大きさが、ゲームの中と段違いだからだろうか。
+Perhaps due to the effect of my body shrinking, Venom seemed a bit more vulnerable than before. The size of the wounds relative to its volume was drastically different from in the game.
 
 <b>
 
-なんにせよ、願ってもない好機である。
+In any case, this was an opportunity I couldn't have wished for.
 
 <b>
 
-「――終われっ！！」
+"—End it!!"
 
 <b>
 
-幻覚のほうのベノムが重力魔法を仕掛けてくるが、無視。
+The illusionary Venom attempted to cast gravity magic, but I ignored it.
 
-俺は陥没する地面を気にもとめずに、ただ目の前の本体を切りつけ続ける。この勝負が、この痛みが、この壊れた世界が早く終わるようにと願いながら。
+I continued to slash at the main body right in front of me, disregarding the ground that was caving in. I wished for this battle, this pain, and this broken world to end quickly.
 
 <b>
 
-攻撃の最中、脇腹の肉を抉られるがそれも歯を食いしばって耐える。ここで引くわけにはいかない。
+During my attack, I felt my side being gouged, but I gritted my teeth and endured. I couldn't back down now.
 
 <b>
 
-どれだけ身体を壊されようと、もう下がることはできなくなった。きっとこの身体では、持久戦に持ち込むことはできない。
+No matter how much my body was damaged, I could no longer retreat. Surely, in this state, I couldn't drag this into a war of attrition.
 
 <b>
 
-いま、この時に勝負を終わらせなければならないっ！！
+Right now, I had to end this battle!!
 
 <b>
 
-「負けて、たまるかぁあああああっ！！」
+"I won't lose!!"
 
 <b>
 
-歯を食いしばった時に出た血なのか、脇腹の傷が影響しているのかはわからないが、口の中には鉄の味が広がっている。
+Whether it was blood from gritting my teeth or from the wound on my side, I didn't know, but the taste of iron spread in my mouth.
 
-口の端から血を流しながら、俺はまるで壊れた人形のように刀をひたすらに振るい続けた。
+As blood flowed from the corner of my mouth, I swung the sword relentlessly like a broken doll.
 
 <b>
 
 <b>
 
-そして――。
+And—.
 
 <b>
 
 <b>
 
-ゴロゴロ、とベノムの目玉が地面に転がる。
+With a rumble, Venom's eyeball rolled onto the ground.
 
-それと同時に、幻覚のもう一体は霧となって空気の中に溶けていった。
+At the same time, the other illusionary figure dissolved into mist and vanished into the air.
 
 <b>
 
-ベノムの視点は合っておらず、俺とは全く別の方向を向いて転がっている。少し離れたところから、放出魔法、そして重力魔法を使用してみるが、完全に無抵抗だった。
+Venom's gaze was misaligned and rolling in an entirely different direction from me. I tried using release magic and gravity magic from a short distance, but it was completely defenseless.
 
 <b>
 
-ゆっくりとベノムの瞼が下りていく。
+Slowly, Venom's eyelids began to lower.
 
 <b>
 
-「……終わった――か？」
+"…Is it over?"
 
 <b>
 
-肩で息をしながら呟き、俺はインベントリから上級ポーションを取り出して傷ついた部位に振りかけ、最後に胃にも流し込む。
+I murmured, panting heavily, and took an advanced potion from my inventory, sprinkling it on my injured areas and finally pouring some into my stomach.
 
 <b>
 
-もちろん、まだ油断はしていない。
+Of course, I wasn't letting my guard down.
 
-ゲームだと地に転がった時点で消滅していたが、今のこいつはまだ姿形を保っている。
+In the game, it would have vanished the moment it rolled on the ground, but this one still maintained its form.
 
 <b>
 
-「ノア、お前は生きてるか？」
+"Noah, are you alive?"
 
 <b>
 
-視線をベノムに向けたまま空に向かって問いかけると、瞼を下ろしたベノムの前にすぅっとノアが姿を現した。
+As I asked, keeping my gaze on Venom, Noah appeared before the eyelid-lowered Venom.
 
-身体の半分ぐらいが変色してしまっていた彼女だが、現在は八割ほどにまで及んでいる。かなり無理をしたらしい。
+Though half of her body had changed color, she had now recovered to about eighty percent. It seemed she had pushed herself quite hard.
 
 <b>
 
-「……大丈夫だよ。ちょっと休めば、徐々に回復すると思うから」
+"…I'm fine. If I rest a bit, I think I'll gradually recover."
 
 <b>
 
-「じゃあ寝とけ寝とけ。どうせ新しく世界を創るのに、めいいっぱい力が必要なんだろ？」
+"Then just lie down. You'll need all your strength to create a new world anyway, right?"
 
 <b>
 
-「まぁね。それにしても、君はやっぱりすごいよ。人の身でありながら破壊神を倒してしまうなんて」
+"Well, yes. But still, you really are amazing. To defeat a god of destruction while being human."
 
 <b>
 
-黒ずんだ顔で、はにかみながらノアが言う。
+With a darkened face, Noah said shyly.
 
 <b>
 
-「俺が人間じゃないみたいな言い方するなよ」
+"Don't say it like I'm not human."
 
 <b>
 
-「ふふっ、褒めてるだけだよ。君は本当にすごい――間違いなく、君はこの世界の頂点だ」
+"Hehe, I'm just complimenting you. You truly are incredible—without a doubt, you are at the pinnacle of this world."
 
 <b>
 
-「そりゃどうも」
+"Thanks for that."
 
 <b>
 
-嬉しいことを言ってくれる。
+It was nice to hear such things.
 
-といってもベノムを倒した今、この世界には俺とノアしかいないんだがな。
+Though now that I had defeated Venom, there were only Noah and me left in this world.
 
 <b>
 
-そう思いながら地面に転がるベノムに再び視線を向けると、本当に僅かに、ピクリと瞼が動いた。ベノムの身体は、ノアがいるほうを向いている。
+As I thought that and looked back at the rolling Venom, I noticed that, very slightly, its eyelids twitched. Venom's body was facing Noah.
 
 <b>
 
-油断した。
+I let my guard down.
 
 <b>
 
-ずっとソロでベノムと戦ってきた記憶が――そしてベノムの身体が別方向に向いていることが――自分に危険はないと判断を下してしまっていた。
+The memory of having fought Venom solo all this time—and the fact that Venom's body was facing a different direction—led me to mistakenly judge that I was in no danger.
 
-たとえまだベノムが生きており、動き出し、攻撃をしかけてきたとしても、自分の身は守ることができると確信してしまっていた。
+Even if Venom was still alive, moving, and about to attack, I had convinced myself that I could protect myself.
 
 <b>
 
-「――っ！？　逃げろっ！！」
+"—What!? Run!!"
 
 <b>
 
-焦って声を上げる。気づけば俺は地面を蹴っていた。
+I shouted in panic. Before I knew it, I was kicking off the ground.
 
 <b>
 
-冷静になって考えたら、ベノムのあの攻撃ぐらいならばノアは耐えることができただろう。ホログラムのように、実はノアは実体を持っていなかったという可能性だってある。神様だし。
+If I had thought calmly, Noah would likely have been able to withstand that attack from Venom. There was even the possibility that, like a hologram, Noah didn't actually have a physical form. After all, she was a god.
 
-そうでなくとも、俺がベノムをサッカーボールのように蹴り飛ばしでもすれば、なんとかなっていたはずだ。
+Even if that weren't the case, if I had kicked Venom like a soccer ball, I could have managed somehow.
 
 <b>
 
-だがパニックになった俺は白蓮と赤刀を投げ捨てて、彼女を突き飛ばすことを選択していた。彼女を助けることを、無意識に選んでいた。
+But in my panic, I had thrown away the white lotus and red sword and chose to push her away. I had unconsciously chosen to save her.
 
 <b>
 
-伸ばした右手が彼女の左肩を強く押す。
+My outstretched right hand pushed hard against her left shoulder.
 
-吹き飛ばされながら、目を見開き、驚いた表情でこちらを見るノア。
+As she was blown away, Noah looked at me with wide eyes and a surprised expression.
 
 <b>
 
-全ての景色が、スローモーションのように見える。
+Everything around me appeared to be in slow motion.
 
 <b>
 
-俺は地に足を付けていない状態で、顔を横に向けた。
+I was in a state of not having my feet on the ground, turning my face sideways.
 
-するとそこには、目を開ききる直前のベノムの姿があった。
+And there, just before Venom opened its eyes fully, was its figure. 
 
 <b>
 

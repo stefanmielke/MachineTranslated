@@ -1,4 +1,4 @@
-# Ａ－７７　お嫁さんだからな！
+# A-77 Because she's my bride!
 
 <b>
 
@@ -8,37 +8,37 @@
 
 <b>
 
-「じゃあよろしくお願いするッス！　勝敗はどちらかが負けを認めたら――って感じでいいッスか？」
+"Well then, I'll leave it to you! The outcome will be decided when one of us admits defeat—does that sound good?"
 
-「それで頼む。あとは、審判のエスアールに判断してもらおう」
-
-<b>
-
-俺から少し距離をとったところでクレセントさんとシンが向かい合って話をしている。シンの後ろにはパーティメンバーの二人とセラもいるが、会話はシンに任せているようだ。
-
-というか自然に俺が審判役をすることになったな――まぁ別にそれぐらいやりますけども。どうせ暇だし。
+"That works for me. Let's leave the rest to the referee, SR."
 
 <b>
 
-このＢランクダンジョンは草原タイプ――もともと障害物があまりないダンジョンなので、お互いに真っ向勝負をせざるを得ないステージだ。つまりは、対人戦とさして変わらない状況であるということ。
+Crescent and Shin are facing each other a short distance away, talking. Behind Shin are two party members and Sera, but it seems they are leaving the conversation to Shin.
+
+I naturally ended up being the referee—well, I don't mind doing that. I'm just bored anyway.
 
 <b>
 
-セラが不安げな表情で俺に目を向けていたので、俺は手を振りながら声を張り上げた。
+This B-rank dungeon is a grassland type—originally, it's a dungeon with not many obstacles, so both sides have no choice but to confront each other head-on. In other words, it's a situation not much different from a PvP battle.
 
 <b>
 
-「いまやれる全力でやってみな！　俺と戦うつもりで挑むんだぞ！」
+Sera looked at me with a worried expression, so I waved my hand and raised my voice.
 
 <b>
 
-「絶望しかないんだが！」
+"Give it your all! Challenge me as if you're fighting against me!"
 
 <b>
 
-俺の言葉に対し、即座にセラが反応する。まぁ負けイベントみたいなものだからしょうがない。
+"There's nothing but despair!"
 
-もしシンたちがクレセントさんに攻撃をあてられるとしたら、開始一分が勝負だろうなぁ。それ以降は全て適応されてしまうだろう――さて、どんな試合になることやら。
+<b>
+
+Sera immediately reacted to my words. Well, it's kind of a losing event, so it can't be helped.
+
+If Shin and the others manage to land an attack on Crescent, it will probably be within the first minute. After that, everything will be adapted—now, I wonder what kind of match this will turn out to be.
 
 <b>
 
@@ -48,127 +48,125 @@
 
 <b>
 
-はじめ――という俺の掛け声を合図に、セラとシンがクレセントさんに向かって突っ込んでいく。愚直に真っ直ぐ特攻するわけではなく、エックス状に斜めから攻めていく形だ。
+At my shout of "Start!" Sera and Shin charged towards Crescent. They didn't just charge straight ahead; they approached diagonally in an X formation.
 
 <b>
 
-「おー、たしかにＳＲさんの言う通り、まだステータスは上げてないみたいッスねぇ」
+"Oh, it seems like SR was right; their stats haven't been raised yet."
 
 <b>
 
-そう言いながら彼女は一足で大きく後退――したかと思うと、強く踏み込んで一瞬で彼らの頭上を飛び越えた。そしてライカとスズがいる場所へ脱兎のごとく駆け出す。
+As she said this, she took a big step back—then, with a strong push, she leaped over their heads in an instant. She then dashed towards where Laika and Suzu were like a rabbit fleeing.
 
 <b>
 
-「さて、お二人はどうするッスか？」
+"Now, what will you two do?"
 
 <b>
 
-慌ててこちらに戻ってくるシンたちを気にする様子もなく、一瞬でライカたちの元に訪れたクレセントさんは、動揺する二人に声を掛けた。
+Without paying any mind to Shin, who hurriedly returned, Crescent arrived at Laika and the others in an instant and called out to the two, who were flustered.
 
 <b>
 
-「散るわよ！」
+"We're scattering!"
 
 <b>
 
-「了解です！」
+"Understood!"
 
 <b>
 
-クレセントさんに襲う様子はないけれど、すさまじいスピードで突撃してきた彼女を警戒して二人は躊躇いなく散開する。
+Although Crescent showed no signs of attacking, the two hesitated and spread out, wary of her incredible speed.
 
-クレセントさんは逃げていく二人を追うことなく、ゆっくりと振り返る。
-
-<b>
-
-「ステータス的には間に合わないッスよねぇ。じゃあスピードはなんとなくわかったんで、次は技を見るッスよ」
+Crescent did not chase after the fleeing duo but slowly turned around.
 
 <b>
 
-そう言って、彼女はトントンと一定のリズムでその場で跳ねはじめた。そして、ドン――という音とともに、彼女の姿がその場から消える。まぁ正確には消えたわけではなくて、ただ速いだけなのだけども。
+"Stat-wise, it's not enough time. Well, I have a rough idea of your speed, so next, let's see your techniques."
 
 <b>
 
-彼女はシンたちとは比較にならないほどのスピードで――敵を翻弄するように左右に大きく動きながら迫っていく。
+Saying this, she began to bounce in place with a steady rhythm. Then, with a sound like a bang, her figure disappeared from the spot. Well, to be precise, she didn't disappear; she was just that fast.
 
 <b>
 
-やはり彼女はステータスを引き継いだだけじゃなくて、装備もそのままらしいな。いつも通り指輪と防具によってＡＧＩをＳＳＳまで上げきっているらしい。そこに剣聖のレベル１００で覚える『武の極地』によってＡＧＩ二割増しがあるから、そりゃ速いわな。
+She approached, moving left and right in large motions, playing with her enemies at a speed incomparable to Shin and the others.
 
 <b>
 
-魔王でランキング戦に出ていた俺からすれば、剣聖職でＭＡＸＡＧＩの相手をするのは面倒で仕方がなかった。あいつら速ぇんだもん。まぁその分、火力では俺が上回っていたけれど。
+It seems she not only inherited the stats but also kept her equipment. As usual, her AGI was raised to SSS by her rings and armor. Plus, with the 20% increase in AGI from "The Peak of Martial Arts," learned at level 100 as a Sword Saint, it's no wonder she's fast.
 
 <b>
 
-素早く動き回るクレセントさんと対峙して、セラたちはどう動いていいのか戸惑っている様子だ。しかし彼女は容赦なくセラへと迫り、横薙ぎの攻撃を加える。
+From my perspective as someone who participated in ranking battles as a Demon Lord, dealing with a Sword Saint with MAX AGI was a hassle. Those guys are just too fast. Well, I had the upper hand in firepower, though.
 
 <b>
 
-「――ぐっ！？」
+Faced with the swiftly moving Crescent, Sera and the others seemed at a loss as to how to act. However, she relentlessly closed in on Sera and launched a horizontal slash.
 
 <b>
 
-クレセントさんは、剣を振るスピードを少し落としてセラの腹部に攻撃したが、その攻撃はギリギリセラの剣によって受け止められてしまう。
+"—Guh!?"
 
 <b>
 
-だが受け止めたからといって無事で済むわけもなく、彼女は力の差によって軽く飛ばされてしまった。体格的にはセラの方が大きいんだけど、軽々と吹っ飛ばしたな。さすがゲームの世界。
-
-くるりと回って空中で体勢を整えたセラは、シンの隣に着地。
+Crescent slightly reduced the speed of her sword swing and attacked Sera's abdomen, but that attack was barely blocked by Sera's sword.
 
 <b>
 
-「反応速度はまぁまぁってところッスねぇ。こういう攻撃にはあんまり慣れてない感じッスか？」
+However, just because she blocked it doesn't mean she was unscathed; she was lightly sent flying due to the difference in power. Sera was physically larger, but she was blown away effortlessly. As expected of a game world.
+
+Sera spun around and adjusted her posture in mid-air before landing next to Shin.
 
 <b>
 
-「慣れてないどころかこんなのは初めてだ！　本当に凄まじいな……エスアールの世界の人間は！」
+"Her reaction speed is not bad. It seems you're not very used to this kind of attack, are you?"
 
 <b>
 
-「じゃあ初見ってことッスか！　それは凄いッスね！」
+"I'm not just not used to it; this is my first time! It's truly incredible... the people from SR's world!"
 
 <b>
 
-「ふふ……わざと受けられるスピードに落としておきながらよくいう」
+"So it's your first time! That's impressive!"
 
 <b>
 
-「そこまで見えてたッスか！？」
+"Hehe... you say that while intentionally slowing down to a speed I could handle."
 
 <b>
 
-どうやらクレセントさんは、自分の手加減が見破られたことに心から驚いているらしい。
-
-俺も見えてたもんね！　俺だってわかってたもんね！
-
-心の中でセラに対抗心を燃やしているなか、彼女は褒められたのが嬉しかったのか、胸を張ってどや顔を浮かべていた。
+"You could see that much!?"
 
 <b>
 
-「ふっふっふ――なにせ私はエスアールの弟子であり――お嫁さんだからな！」
+It seems Crescent was genuinely surprised that her hand was seen through.
+
+I could see it too! I understood it too!
+
+While I was burning with rivalry against Sera in my heart, she seemed pleased to be praised and puffed out her chest with a smug expression.
 
 <b>
 
-……いったい急に何を言い出すんだこの子は。
+"Fufufu—after all, I am SR's disciple—and—your bride!"
 
 <b>
 
-「…………へ？　お嫁さん？」
+...What on earth is this girl suddenly saying?
 
 <b>
 
-突如として嫁ムーブをし始めたセラに、俺もクレセントさんも、そして試合中のシンたちもキョトンとしてしまった。クレセントさんはその表情のままこちらを見てくるが、俺は彼女と目を合わさずに、手で顔を覆って視界を真っ暗にする。
+"…Huh? Your bride?"
 
 <b>
 
-いやせめて紹介の順番を逆にしようぜ……それだと『弟子』よりも『お嫁さん』の方が重要みたいに聞こえるじゃないか。普段ならばそれは嬉しいことなのだけど、現在敵と交戦中であることを考慮するとどう考えても間違っている。
+Suddenly starting a bride move, both Sera and I, as well as Shin, who was in the middle of the match, were left dumbfounded. Crescent looked at us with that expression, but I avoided her gaze and covered my face with my hands to darken my vision.
 
 <b>
 
-まさか審判に精神攻撃が飛んでくるとは思わなかったぞ。
+At least let's reverse the order of the introduction... It sounds like "bride" is more important than "disciple." Normally, that would be a nice thing to say, but considering we are currently in combat with an enemy, it is clearly wrong.
+
+I never expected a mental attack to come at the referee.
 
 <b>
 

@@ -1,4 +1,4 @@
-# Ａ－６　ＡＳＲへの依頼
+# A-6 Request to ASR
 
 <b>
 
@@ -6,79 +6,79 @@
 
 <b>
 
-式典があった日の翌日。
+The day after the ceremony.
 
-まだ午前の９時だというのに、すでに城下の街は喧騒に包まれていた。
+Even though it was only 9 AM, the town below the castle was already enveloped in noise.
 
-昨日も宿をとるのに数軒回る羽目になったし、迅雷の軌跡のパレードを見るために他の街からもたくさんの人が押し寄せているとみていいだろう。
-
-<b>
-
-「パレードが始まるのは正午からだというのに……すでに人が多いな」
+I had to visit several inns yesterday to find a place to stay, and it’s safe to say that many people from other towns have flocked here to see the Thunderbolt Parade.
 
 <b>
 
-俺の左隣を歩くセラが、道行く人を眺めながら言う。
-
-歩く隙間がないというほどではないが、それでも普段と比べるとかなりの人口密度だ。とても横一列に並んで歩ける状況ではないので、俺とセラ、そしてフェノンが前を歩き、ノアとシリーがその後ろを歩く形になっている。
+"I hear the parade starts at noon, yet... there are already so many people."
 
 <b>
 
-「変装しているとはいえ、わかる奴にはわかるだろうから気を付けておけよ」
+Sera, walking to my left, says while observing the passersby.
+
+It's not so crowded that there's no room to walk, but compared to usual, the population density is quite high. It’s not a situation where we can walk side by side, so Sera, Fenon, and I are walking ahead, while Noah and Shiri follow behind us.
 
 <b>
 
-一時的に治安が悪くなっている可能性もあるので、念のために注意喚起。
-
-顔が知れ渡っている四人はもちろん、今日は俺も用心して髪色を魔道具によって変化させている。色は銀。かっこいい。
+"Even though we're in disguise, those who know us will recognize us, so be careful."
 
 <b>
 
-「わかっています！　それにおそらく、私の護衛がどこかで見ているでしょうから大丈夫ですよ」
+Since there's a possibility that the security might be temporarily worse, I give a precautionary warning.
+
+Of course, the four of us whose faces are well-known are being cautious, and today I’ve also changed my hair color using a magical tool. It’s silver. Cool.
 
 <b>
 
-俺の言葉にフェノンがハキハキと回答する。続いてセラも俺に対して「もちろんだ」と答えた。
+"I understand! Besides, my bodyguards are probably watching from somewhere, so it’ll be fine."
 
 <b>
 
-「僕もいるから安心していいよ」
+Fenon replies promptly to my words. Following that, Sera also responds to me with "Of course."
 
 <b>
 
-「あぁ……犯罪者にとってノアは天敵だろうなぁ」
+"You can relax because I'm here too."
 
 <b>
 
-「ノアさんの前で悪い考えはできませんからね」
+"Ah... Noah must be a nemesis for criminals."
 
 <b>
 
-シリーが口にした通り、ノアの前で変なことをしようとしてもバレバレだ。何しろ考えていることが読まれてしまうのだから。
-
-実行するよりも先に潰されてしまいそうだし、たとえ俺がいなかったとしても、この面々を相手にしたら間違いなく逃げられないだろう。
+"With Noah around, it's impossible to have any bad thoughts."
 
 <b>
 
-ステータスボーナスなどの知識を持っている彼女たちは当然、この世界の住人の中ではトップクラスの実力がある。迅雷の軌跡がいなければ、彼女たちが国際武闘大会で優勝していたことは間違いないだろう。
+As Shiri pointed out, trying to do something strange in front of Noah would be obvious. After all, she can read what you're thinking.
+
+It seems like any plans would be crushed before they could be executed, and even if I weren't here, there’s no way anyone could escape from this group.
 
 <b>
 
-それに周辺警戒に関して言えば、俺は現在職業を覇王にしているため、剣士のスキルである『気配察知』の効果が働いている。
+Having knowledge of status bonuses and such, they are undoubtedly among the top tier of inhabitants in this world. If it weren't for the Thunderbolt, they would have definitely won the international martial arts tournament.
 
 <b>
 
-ゲーム時代では魔物や人の気配を察知するという大雑把なものだったが、多少であれば悪意を持つ者の判別もできるようになっていた。
-
-もしかするとスキルと関係なく、大切な人たちを守るために目覚めた第六感的なものかもしれないけれど……まぁ、それはどうでもいいか。
+As for vigilance, I currently have the profession of Overlord, so the effect of the swordsman skill 'Presence Detection' is in effect.
 
 <b>
 
-「普段見ない店もたくさん出ているからな、色々見て回ろうか」
+In the game era, it was a rough ability to sense the presence of monsters and people, but now I can also somewhat discern those with malicious intent.
+
+It might be something akin to a sixth sense that awakened to protect my loved ones, but... well, that doesn’t really matter.
 
 <b>
 
-ＡＳＲの四人にそれぞれ目配せしながら言うと、全員が全員――目を輝かせながらコクコクと頷いた。まだ見て回る前だというのに、楽しそうで何よりだ。
+"There are many shops we don’t usually see, so let’s look around."
+
+<b>
+
+As I say this while glancing at each of the four members of ASR, they all nodded enthusiastically, their eyes sparkling. Even before we started looking around, they seemed to be having a great time.
 
 <b>
 
@@ -90,96 +90,94 @@
 
 <b>
 
-射的、輪投げ、くじ引き。
+Shooting games, ring toss, lottery.
 
-日本の夏祭りで見るような屋台もちらほらと見受けられ、メンバーの中では精神年齢が二番目に高いはずの俺も、女性陣と同等――もしくはそれ以上にこの騒がしくなった王都の街を楽しんでいた。夜には花火も上がるらしいから、それも是非見ておきたい。
-
-<b>
-
-中でも一番祭りを楽しんでいるのは、見た目は最年少、中身は最年長のノアだろう。
-
-その姿はまるで神様業務で溜まったストレスを発散しているかのようで、どこからどう見ても元管理者様とは思えない。ついさきほどは射的で店員のオッサンに玉をぶつけていたし。
+There were stalls reminiscent of summer festivals in Japan, and even I, who should have the second highest mental age among the members, was enjoying the bustling capital city as much as the women—if not more. Apparently, there will be fireworks at night, so I definitely want to see that too.
 
 <b>
 
-「お前はオッサンを持ち帰りたかったのか？　あの人は景品じゃないぞ」
+Among them, the one enjoying the festival the most is probably Noah, who looks the youngest but is actually the oldest at heart.
+
+Her demeanor is as if she is releasing the stress accumulated from her divine duties, and she looks nothing like the former administrator. Just a moment ago, she was shooting at the vendor with a toy gun.
 
 <b>
 
-「違うよっ！　あれは手元が狂っただけだもん！」
+"Were you trying to take the vendor home? That guy isn’t a prize."
 
 <b>
 
-「わ、私も違うからな！　店主を持ち帰りたいなどと思ってはいない！　だから浮気ではないぞっ！　か、勘違いしないでくれよっ！」
+"That’s not it! I just misfired!"
 
 <b>
 
-ノアに続いて、慌てたようにセラが言う。
-
-彼女も彼女で、先程輪投げに使う輪っかを店主の頭に綺麗に乗せていたからな……そっちのほうが難しいと思うんだが。
+"I-I’m not trying to take the shopkeeper home either! So it’s not cheating! D-Don’t misunderstand!"
 
 <b>
 
-セラに対して「わかってるよ」と笑いながら返したが、当の本人は「本当か！？　本当にわかっているのか！？」と必死の形相で訴えてくる。フェノンとシリーにＨＥＬＰの視線を送るが、苦笑いが返ってくるだけだった。
+Following Noah, Sera hurriedly says.
+
+She also had just perfectly placed a ring used for the ring toss on the shopkeeper's head... I think that’s the more difficult feat.
 
 <b>
 
-と、そんな平和なやりとりをしていると――、
+I replied to Sera with a smile, "I know," but she looked at me with a desperate expression, asking, "Is that really true!? Do you really understand!?" I sent a HELP glance to Fenon and Shiri, but they only returned a wry smile.
 
 <b>
 
-「間違っていたらすまない。君たちはもしかして、探索者パーティのＡＳＲじゃないか？」
+As we were having such a peaceful exchange――
 
 <b>
 
-正面から小走りでやってきた人物は、膝に手を置き、肩で息をしながら俺たちに向かって声を掛けてくる。表情や雰囲気から察するに、どうやら急ぎの用事らしい。
-
-突如として現れた意外な人物に多少面食らってしまったが、俺は頷きつつ返答をする。
+"I apologize if I’m mistaken. Are you perhaps the explorer party ASR?"
 
 <b>
 
-「変装していたのに――よくわかりましたね。ですが、レーナスのギルドマスターがなぜ王都に？」
+A person came running towards us, placing their hands on their knees and breathing heavily as they called out to us. From their expression and demeanor, it seemed they had urgent business.
+
+I was somewhat taken aback by the unexpected appearance of this individual, but I nodded and responded.
 
 <b>
 
-「歩き方とかを見ればね、わかるものだよ。僕はパレードを見るついでに警備の仕事を請け負ったんだ。こっちは人手が足りないみたいだし、レーナスでの仕事は落ち着いているからね。ところで、えぇっと――君がノアちゃんのお兄さん……確かエスアール君だったかな？　初めまして」
+"Even though we were in disguise―― you recognized us well. But why is the guild master of Reinas in the capital?"
 
 <b>
 
-中腰のまま、レーナスのギルドマスター――ライレスさんが俺に向かって手を差し出してくる。俺はそれを握り返しながら「初めまして」と彼と同様の挨拶をした。
+"If you observe the way we walk, you can tell. I took on a security job while watching the parade. It seems they are short on personnel here, and work in Reinas is calm right now. By the way, um―― you’re Noah-chan’s brother, right? I believe it’s Esu-aru-kun? Nice to meet you."
 
 <b>
 
-「俺は彼女たちがギルドに行っている間、アイテムの補充とかの雑用をやっていましたからね。挨拶をするのが遅れてすみません」
+Still in a crouched position, the guild master of Reinas―― Mr. Raires extended his hand towards me. I shook it back while greeting him with "Nice to meet you" as well.
 
 <b>
 
-雑用係とはいえ俺は一応はＡＳＲのメンバーなので、彼女たちと共にギルドに報告に行っても違和感はないはずだ。だが、俺だけライレスさんの前に姿を現さなかったのにはきちんと理由がある。
+"I was doing chores like restocking items while they were at the guild. I’m sorry for the late introduction."
 
 <b>
 
-「「「………………」」」
+Even though I’m just a chore boy, I’m still a member of ASR, so it shouldn’t feel out of place for me to report to the guild with them. However, there’s a proper reason why I didn’t show myself in front of Mr. Raires.
 
 <b>
 
-自分のことを『雑用係』と言ったり、自分は無能ですアピールをすると、ノア以外の三人が非常に不満そうな顔になるのだ。気持ちは嬉しいんだが、その想いは表情に出ないようにしてほしい。
+"「「「………………」」」"
 
 <b>
 
-「そんなことは気にしなくていいよ。君ともゆっくり話をしたいところなんだけど、それはまた別の機会にしよう」
+When I refer to myself as a "chore boy" or make a display of my incompetence, the other three, except for Noah, show very dissatisfied expressions. I appreciate their feelings, but I wish they wouldn’t let it show on their faces.
 
 <b>
 
-幸い、ライレスさんは彼女たちの表情の変化に気付いた様子はない。気付かれたところで俺のＡＳＲにおける本当の立ち位置がバレるとは思わないが、用心するにこしたことはないだろう。
+"You don’t need to worry about that. I’d like to talk with you more leisurely, but let’s save that for another time."
 
 <b>
 
-ライレスさんはそれから何度か深呼吸をして、姿勢を正した。そして申し訳なさそうな表情で、ゆっくりと口を開く。
+Fortunately, it seemed Mr. Raires didn’t notice the change in their expressions. Even if he did, I don’t think my true position in ASR would be revealed, but it’s better to be cautious.
 
 <b>
 
-「君たちＡＳＲに仕事を依頼したいんだ」
+Mr. Raires then took a few deep breaths and straightened his posture. With an apologetic expression, he slowly opened his mouth.
 
 <b>
+
+"I’d like to request a job from you ASR." 
 
 <b>

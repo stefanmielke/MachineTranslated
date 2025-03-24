@@ -1,152 +1,150 @@
-# Ａ－４６　移動、疲労
+# A-46 Movement, Fatigue
 
 <b>
 
 <b>
 
-世界中――主に探索者界隈を賑やかにさせた試合を終えてから、約二ヶ月が経過した。
+About two months have passed since the match that stirred up the world—mainly the realm of explorers.
 
-人の噂も七十五日とは言うが、残念ながら目立ったイベントというのが闘技場での試合だけではなく、フェノンとセラとの結婚式という大きな祝い事もあったために、俺が人々の視線にさらされる日々はまだまだ継続しそうだった。
+They say that rumors last for seventy-five days, but unfortunately, the prominent events weren't just the matches in the arena; there was also the grand celebration of the wedding between Phenon and Sera, which meant that my days of being exposed to people's gazes would likely continue for a while longer.
 
-覚悟していたとはいえ、こうも視線を向けられ続けるとさすがに精神的にクるものがある。好奇の視線を気にしなくてもいいダンジョンだけが俺の癒しだ。
-
-<b>
-
-この二ヶ月間、俺はフェノンの家族と何度も顔を合わせて打ち合わせをしたり、ベルノート伯爵家にお邪魔したり、陛下から『覇王』の称号を頂いたり、領地を与えられそうになったりと怒涛の日々をおくっていた。もちろん、領地は断った。面倒くさいにもほどがある。
-
-俺をこの国に縛り付けておきたいという想いがあるのだろうけど、政治関係のお話はよそでやって欲しい。
+Even though I was prepared for it, having my attention drawn like this for so long was mentally taxing. The only solace I found was in the dungeons where I didn't have to worry about curious stares.
 
 <b>
 
-それから、闘技場での試合が記憶の彼方に追いやられてしまうほどの盛大な結婚式が行われたのち、俺たちＡＳＲは業者に建物の増築と改築を依頼。そして騒がしいリンデール王国から逃げるようにして、隣国パルムールへと馬車を走らせた。
+During these two months, I had numerous meetings with Phenon's family, visited the Earl of Bernot's residence, received the title of "Conqueror" from His Majesty, and was almost granted a territory. Of course, I declined the territory. It was far too troublesome.
+
+I understand that there might be a desire to keep me tied to this country, but I would prefer political discussions to be held elsewhere.
+
+<b>
+
+After that, a grand wedding took place, overshadowing the memories of the matches in the arena, and we, ASR, requested the contractors to expand and renovate the building. Then, as if escaping from the noisy Kingdom of Lindale, we set off in a carriage towards the neighboring country of Palmour.
 
 <b>
 
 <b>
 
-きらびやかに装飾された馬車に乗った俺たちは、警備の騎士と共にいくつかの村や街を経由して、特に何事もなくパルムール王国の領土へと足を踏み入れた。
+Riding in a lavishly decorated carriage, we passed through several villages and towns with the knights on guard, entering the territory of the Kingdom of Palmour without any particular incidents.
 
-それからさらに街を経由し、結局移動だけで五日も掛かってしまった。いささか現実での移動を甘く見ていた節がある。ゲームだとポンポーンと楽に転移できるというのに――って、我儘言っても仕方ないか。
-
-<b>
-
-「いつつ……。にしても、みんなすごいなぁ。これだけ長時間馬車に揺られたら痛くならないか？」
+After passing through more towns, it ended up taking us five days just for the travel. I might have underestimated the reality of moving. In a game, you could easily teleport, but—well, there's no point in being selfish about it.
 
 <b>
 
-がたがたと揺れる豪華な馬車。パルムール王国の王都が、ようやくぼんやりと見えてきた。
-
-俺の両隣にはセラとフェノンがいて、向かい側にノアとシリーが座っている。顔を歪める俺に対し、他の四人は余裕の表情だ。
-
-シリーは腰を擦る俺を見て苦笑し、口を開く。
+"Ouch... But still, everyone is amazing. Doesn't it hurt after being jostled in a carriage for such a long time?"
 
 <b>
 
-「エスアールさんが知っている乗り物がどれほどなのかは存じませんが、こちらの馬車は世界で一番揺れが少なく、私たちが腰を下ろしている場所にも貴重な緩衝材が使われているんですよ？　私としては、非常に快適です」
+The luxurious carriage shook and rattled. The capital of the Kingdom of Palmour finally came into view, albeit vaguely.
+
+On either side of me were Sera and Phenon, while Noah and Shiri sat across from us. The other four wore expressions of ease, while I grimaced in discomfort.
+
+Shiri, seeing me rubbing my waist, chuckled and spoke up.
 
 <b>
 
-シリーの発言に、そうだそうだ――と言いたげにセラも頷く。きっとセラが今まで乗ってきた馬車は、この王族が使用するものより一段劣るものなのだろう。
-
-これが快適に思えてしまうのか……この世界の住人は。一ヶ月ぐらい地球の車に乗ってみて、ぜひとも俺と同じ苦悩を味わってほしい。
+"I don't know how many vehicles you are familiar with, but this carriage has the least amount of shaking in the world, and the place where we are seated has precious cushioning materials used, you know? For me, it's quite comfortable."
 
 <b>
 
-というか、なぜノアは平気そうなんだろうか。
+At Shiri's statement, Sera nodded as if to say, "That's right." Surely, the carriages Sera had ridden before were of a lower quality than those used by royalty.
 
-こいつは元々神様だし、そもそも乗り物自体に慣れていないはずなんだが。
-
-<b>
-
-「僕はちょこちょこヒールで回復してるからね」
+Is this what they consider comfortable...? I wish the inhabitants of this world could experience a month riding in a car on Earth and share my suffering.
 
 <b>
 
-「おい心を読む――ってそれズルくね！？　怪我しているわけでもないのに！？　効果あんの！？」
+By the way, why is Noah seemingly unaffected?
+
+He was originally a god, and he shouldn't be accustomed to vehicles in the first place.
 
 <b>
 
-「体力が削られているというより、継続的に微弱なダメージを負っているみたいなものだからねぇ。ヒールもしっかり効果があるよ」
+"I'm healing myself little by little, you know."
 
 <b>
 
-「先に言ってくれよ……」
+"Hey, that's reading my mind—doesn't that feel unfair!? It's not like I'm injured or anything! Does it even work!?"
 
 <b>
 
-まさか移動の最終日に申告されるとは……。
-
-もしかすると、俺の意識が最近フェノンとセラばかりに向いていたから拗ねているのかもしれないが、ちょっかいを掛けるなら身体にダメージがない方向でお願いしたい。
+"It's more like I'm continuously taking weak damage rather than my stamina being depleted. The healing works properly."
 
 <b>
 
-顔はややニヤついた状態で、ツンとそっぽを向くノア。
-
-俺が強がって道中痛がるそぶりをあまり見せなかったのも原因だとは思うが、自分も使っているなら教えてくれたっていいのに……。しまいには俺も拗ねるぞ。
+"You should have told me that earlier..."
 
 <b>
 
-嘆息しつつ腰にヒールをかけてから、俺は「それで」と口を開く。
+I never expected to find out about this on the last day of our travel...
+
+Perhaps it's because my attention has been focused on Phenon and Sera lately that he's sulking, but if he's going to tease me, I wish it would be in a way that doesn't cause physical damage.
 
 <b>
 
-「王都に着いたら向こうの王様たちに挨拶しなきゃいけないんだっけ？」
+Noah, with a slightly smug expression, turned his head away.
+
+I think the fact that I didn't show much pain during the journey contributed to this, but if he was using it himself, he could have at least told me... I might sulk too.
 
 <b>
 
-パルムールにつてが無い俺は、基本的に王族サイドにやり取りを丸投げしていた。
-
-怠慢だとは思うけど、やりようがないんだから仕方ないじゃん！　と、心の中で言い訳をしながら。
+Sighing, I cast a healing spell on my waist and then spoke up.
 
 <b>
 
-「それは明日ですね。本日は到着が遅い時間になりますので、あちら側が用意してくれた宿に泊まる形になります」
+"So, when we arrive at the capital, I have to greet the kings over there, right?"
 
 <b>
 
-俺の問いに、シリーがシャキシャキと答える。
+Since I had no connections in Palmour, I had essentially left all communications to the royal side.
 
-彼女は拗ねるノアと違って、主人の幸せを心から喜んでいるように見える。最近さらに表情が明るくなった気がした。ちょこちょことボディタッチが増えてきたように感じるのは、たぶん俺が意識しすぎなだけだと思う。
-
-<b>
-
-「それが終わったら自由行動しても大丈夫な感じ？」
+I know it's lazy, but what can I do? I can't help it! I made excuses in my mind.
 
 <b>
 
-「あちら側のお話次第ですが、あまり無理に私たちを縛るようなこともしないと思いますよ。観光とお伝えしておりますし、案内は不要とも言ってあります」
+"That's tomorrow. Since we will be arriving late today, we will be staying at the accommodation prepared by them."
 
 <b>
 
-「まぁ、明日になってみなきゃ正確なことはわからないってことだよな。別に時間に追われているわけじゃないし、ゆっくりできるならそれでいいけど」
+Shiri answered my question briskly.
+
+Unlike sulking Noah, she seemed genuinely happy for her master's happiness. I felt like her expression had brightened even more recently. I might be overly conscious, but it seems like her body contact has increased a bit.
 
 <b>
 
-それに、リンデールの王都と違って民衆は俺の顔を知らない。
-
-だから、人目を気にせず街をのんびりと歩くことができるはずだ。
-
-俺たちの中で一番顔が知られているであろう第一王女であるフェノンも、妙な変装をするまでもなく、髪色を少し変えるだけで本人だと気付く人はいないと思う。
-
-そして、ここは俺達が活動していたリンデール王国でなくパルムール王国なのだから、ＡＳＲという探索者パーティのことを知らない可能性だって十分にあるし。
+"Once that's over, will we be free to move around?"
 
 <b>
 
-「ダンジョンに行く前にはギルドに顔を出しておく必要があるだろうな。ステータス提示を不要にしておいたほうが、いちいち受付で騒ぎにならずに済む。私たちはともかく、エスアールが覇王の職業など見せたら『本人です』と明言しているようなものだからな」
+"That depends on their discussions, but I don't think they will force us too much. We've mentioned that we are here for sightseeing, and we've also said that we don't need a guide."
 
 <b>
 
-「おう、勿論行くよ。レグルスさんから手紙を預かってるし、問題ないはずだ」
+"Well, we won't know the exact details until tomorrow. It's not like we're pressed for time, so if we can take it slow, that's fine."
 
 <b>
 
-探索者ギルドが国家間同士でどれほどの結びつきがあるのかは分からないけど、レグルスさんが『これを王都のギルドで見せれば大丈夫』と言って手紙を書いてくれたし、少なくとも仲が悪いということはなさそうだった。
+Besides, unlike the capital of Lindale, the common people don't know my face.
+
+So, I should be able to stroll through the streets without worrying about being seen.
+
+Even Phenon, who is likely the most recognized among us as the first princess, I don't think anyone would recognize her just by changing her hair color a little without any strange disguises.
+
+And since this is the Kingdom of Palmour, not the Kingdom of Lindale where we were active, there's a good chance they don't know about the explorer party ASR either.
 
 <b>
 
-この国の探索者たちも、国際武闘大会などの表舞台に出場していない俺たちのことを知らないだろうし、ギルドで騒ぎになることもあるまい。
+"Before heading to the dungeon, we should probably stop by the guild. It's better to avoid unnecessary commotion at the reception by not showing our status. For us, it's one thing, but if Esar shows the title of Conqueror, it's like saying 'I'm the real deal.'"
 
-その時にたまたま、闘技場での俺の試合を見ていた奴なんかがいないかぎり、大丈夫だろう。
+<b>
+
+"Of course, I'll go. I have a letter from Regulus, so it should be fine."
+
+<b>
+
+I don't know how much connection there is between the explorer guilds of different nations, but Regulus wrote me a letter saying, "If you show this at the guild in the capital, it will be fine," so at least it doesn't seem like there are any bad relations.
+
+The explorers of this country probably don't know about us, who haven't participated in public events like the international martial arts tournament, so there shouldn't be any commotion at the guild.
+
+As long as there aren't any people who happened to see my match in the arena at that time, we should be fine.
 
 <b>
 

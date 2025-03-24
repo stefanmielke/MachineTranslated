@@ -1,4 +1,4 @@
-# １１　俺は貴方が嫌いだ
+# 11 I Dislike You
 
 <b>
 
@@ -6,239 +6,239 @@
 
 <b>
 
-セラさんが護衛に付いて３日目。
+It has been three days since Sera-san became my bodyguard.
 
 <b>
 
 <b>
 
-初日はＥランクダンジョンを踏破し、そしてＤランクダンジョンを周回。
+On the first day, we conquered an E-rank dungeon and then made rounds in a D-rank dungeon.
 
-２日目は朝から晩まで、ひたすらＤランクダンジョンの周回を続け、剣士のレベルを３０にまで上げた。
-
-<b>
-
-レベルが上がって変わった点は、まずレベル２５になってスキルを覚えたことだ。
-
-気配察知である。
-
-これはいわゆる第六感的なパッシブスキルで、目や耳に頼らなくとも、なんとなく人や魔物のいる位置が分かるというものだ。
+On the second day, from morning till night, we continued to make rounds in the D-rank dungeon, raising the swordsman's level to 30.
 
 <b>
 
-言葉での説明は難しい。
+The change that came with leveling up was that I learned a skill upon reaching level 25.
+
+It’s called presence detection.
+
+This is a so-called sixth sense-type passive skill that allows me to sense the positions of people and monsters without relying on sight or sound.
 
 <b>
 
-だが、これがあるのとないのでは、ダンジョン探索のスピードが変わってくる。他の一次職に転職したら、スキルは使えないけど。
+It's difficult to explain in words.
 
 <b>
 
-次に、ステータスの職業欄をタッチすると、剣豪を選択できるようになった。この世界の人々は、早々に二次職――上級職に転職するらしい。当然、俺はそんな非効率的なことはしないが。
+However, having this skill makes a significant difference in the speed of dungeon exploration. If I change to another primary class, I won't be able to use the skill, though.
 
 <b>
 
-最後に、レベル上げ最大の目的――プレイヤーボーナスの獲得だ。
+Next, when I touched the profession section of my status, I was able to select the swordsman. It seems that people in this world tend to change to secondary classes—advanced classes—early on. Naturally, I wouldn’t do something so inefficient.
 
 <b>
 
-もちろん、ステータスウィンドウを見ても、それらしい記述は何も無い。最終確認として、これから拳闘士に転職して、剣士のプレイヤーボーナスがきちんと活きているのか調べる必要がある。
+Finally, the main objective of leveling up—acquiring player bonuses.
 
 <b>
 
-「転職のオーブって、どこに売ってますか？」
+Of course, even when looking at the status window, there’s no indication of that. As a final confirmation, I need to change to a brawler now and check if the swordsman's player bonus is indeed effective.
 
 <b>
 
-朝の９時。昨日と同じく、宿の外で待ってくれていたセラさんと合流して、俺たちはＤランクダンジョンへ向かっていた
+"Where can I buy a job change orb?"
 
 <b>
 
-「何に使うんだ？」
+At 9 AM. Just like yesterday, I met up with Sera-san, who was waiting outside the inn, and we headed towards the D-rank dungeon.
 
 <b>
 
-「そりゃ転職に使うんですよ。それ以外に用途なんてないでしょう？」
+"What do you need it for?"
 
 <b>
 
-俺の言葉を受けたセラさんは、ムッとした表情になる――が、やはり何処か覇気がない。俺がＤランクダンジョンの踏破を報告したあたりから、彼女はずっとこの調子だった。
+"Well, I need it for changing jobs. There’s no other use for it, right?"
 
 <b>
 
-「そういう意味で聞いたのではない。貴様は剣士のレベル上げをしていたはずだ。いまさら他の職業に転職してどうする」
+Upon hearing my words, Sera-san made a displeased expression—but she still seemed somewhat lacking in spirit. Ever since I reported the conquest of the D-rank dungeon, she had been acting this way.
 
 <b>
 
-彼女は不満げな表情で俺に問う。
-
-この世界――無知ならではの質問だな。
+"I didn't ask for that reason. You were supposed to be leveling up as a swordsman. What do you plan to do by changing to another profession now?"
 
 <b>
 
-とはいっても、俺自身、まだプレイヤーボーナスについては実際に確認しているわけじゃない。適当に濁しておこう。
+She questioned me with a dissatisfied expression.
+
+This world—such a question comes from ignorance.
 
 <b>
 
-「ちょっとした気分転換ですよ。剣士ばかりでも飽きますし」
+That said, I myself haven’t actually confirmed anything about the player bonuses yet. I’ll just gloss over it.
 
 <b>
 
-「……はぁ。もう勝手にしてくれ。オーブは私が持っているのをやる。どうせ使い道もないし、腐るほどあるからな」
+"It’s just a little change of pace. It gets boring just being a swordsman."
 
 <b>
 
-転職のオーブはＥランクダンジョンのランダムドロップだ。
-
-俺がＥランクダンジョンを踏破した時には、残念ながらオーブのドロップが無かった。
-
-買いに行くのも面倒だし、セラさんがくれるというのであれば、貰うとしよう。
+"…Hah. Just do as you please. I’ll give you the orb I have. I have plenty of them anyway, and they’re just gathering dust."
 
 <b>
 
-「欲しいオーブは、拳闘士、騎士、弓士、僧侶の４つです。１万オルで良いですか？」
+Job change orbs are random drops from E-rank dungeons.
+
+Unfortunately, when I conquered the E-rank dungeon, there were no orbs dropped.
+
+It’s a hassle to go buy one, so if Sera-san is offering, I’ll accept it.
 
 <b>
 
-ゲームの中では、確か転職のオーブは１つあたり２０００オルで取引されていた。今回、もう１つの一次職である『魔法士』は必要ないので、４つ分。普通なら８０００オルだが、少し色を付けさせてもらった。
+"I want orbs for brawler, knight, archer, and priest—four in total. Is 10,000 orl okay?"
 
 <b>
 
-「……バカか貴様は。この役立たずのアイテムに、そんな大金を支払ってどうする」
+In the game, job change orbs were traded for 2,000 orl each. This time, I don’t need the other primary class, 'mage,' so I’ll take four. Normally, that would be 8,000 orl, but I added a little extra.
 
 <b>
 
-そういえばこの世界の人は、転職ってあんまりしないのか。需要が無くて、価格が安くなっているのだろうか？
+"…Are you stupid? Why would you pay such a large sum for this useless item?"
 
 <b>
 
-「いやでも、タダで貰うわけにもいきませんし」
+Come to think of it, do people in this world not change jobs often? Is the price low because there’s no demand?
 
 <b>
 
-「ふん――貴様が納得しないと言うのなら、相場通りの金額でいい。１つ１００オルだ」
+"Well, I can’t just take it for free."
 
 <b>
 
-「１００オルっ！？　そんなに安いんですかっ！？」
+"Hmph—if you’re not satisfied, then I’ll sell it for the market price. One orb for 100 orl."
 
 <b>
 
-「むしろ１００オルでも買い手がつくことは稀だがな」
+"100 orl!? Is it really that cheap!?"
 
 <b>
 
-相変わらず覇気のないセラさんに、４００オルを手渡して、４つのオーブを受け取る。
+"It’s actually rare to find a buyer even at 100 orl."
 
 <b>
 
-拳闘士以外のオーブをインベントリに入れて、ステータス画面を開いた。
-
-職業の欄をタッチすると、剣豪の他に拳闘士の文字が現れている。
-
-よしよし。オーブを手に持ったままステータスを開く――ゲームの頃と一緒だな。
+I handed 400 orl to the still unenthusiastic Sera-san and received the four orbs.
 
 <b>
 
-「――ちょ、ちょっと待て。今、剣豪の文字が見えた気がするんだが」
+I put the orbs for all but the brawler into my inventory and opened the status screen.
+
+When I touched the profession section, the words 'brawler' appeared alongside 'swordsman.'
+
+Alright, alright. I opened the status while still holding the orb—just like in the game.
 
 <b>
 
-他人のステータスを見るのはマナー違反。
-
-この世界のステータスは年齢も表示されているし、治安などの関係からも、他人のステータスはあまり見てはいけないという、暗黙の了解があるようだ。
+"—W-Wait a minute. I feel like I just saw the word 'swordsman.'"
 
 <b>
 
-現在のセラさんは俺とは正反対の方向を向いており、ステータスを見ないようにしてくれている。俺が見られることなど気にせずステータスを開いたから、別に責めるつもりはない。
+It’s considered bad manners to look at someone else’s status.
+
+In this world, the status displays age as well, and due to safety concerns, there seems to be an unspoken rule against looking at others' statuses.
 
 <b>
 
-「別に見てもかまいませんよ」
+Currently, Sera-san is facing the opposite direction from me, making sure not to look at my status. I opened my status without worrying about being seen, so I don’t intend to blame her.
 
 <b>
 
-俺が言うと、彼女は「そ、そうか」と顔の向きを正面に戻す。そして、横目で俺のステータスウィンドウを見た。いや、普通に見ていいのに。なんで横目なんだ。
+"It’s fine if you look."
 
 <b>
 
-「剣士――レベル３０、だと？　普通ならここまで来るのに１か月はかかるぞっ！？」
+When I said that, she replied, "I-I see," and turned her face back to the front. Then, she glanced at my status window from the corner of her eye. No, it’s perfectly fine to look. Why is she sneaking a glance?
 
 <b>
 
-そりゃそうだろうな。
+"Swordsman—level 30, huh? Normally, it would take at least a month to get here!?"
 
 <b>
 
-「Ｆランクダンジョンだけで３０まで上げようとしたら、そうなるでしょうね。Ｅランクなら７日、Ｄランクなら２日あれば、１レベルから３０レベルまで上げられます」
+That’s only natural.
 
 <b>
 
-口を開けたまま呆然としているセラさん。俺は構わず話を続けた。
+"If you try to level up to 30 only in F-rank dungeons, that’s how it would be. In E-rank, you can reach level 30 in 7 days, and in D-rank, it would take 2 days."
 
 <b>
 
-「でもこの日数はある程度戦闘慣れしていて、かつ朝から夜までぶっ通しでやった時の日数ですからね？　休み休みするなら、もう少し時間はかかると思います」
+Sera-san was left dumbfounded with her mouth agape. I continued speaking without caring.
 
 <b>
 
-「……やはり、貴様はおかしい。召喚されたというのは、嘘ではないのか？　この世界のことを、あまりにも知りすぎている」
+"But this time frame assumes you’re somewhat accustomed to combat and have been grinding from morning to night, you know? If you take breaks, it would take a bit longer."
 
 <b>
 
-訝しむような視線を向けられる。つい話しすぎてしまったようだ。
-
-だけど、バカ正直に答えるつもりはない。面と向かって『君たちは作られた存在だ』なんて言えないし。
+"…As I thought, you’re strange. It’s not a lie that you were summoned, is it? You know too much about this world."
 
 <b>
 
-俺は肩を竦めて、「さあ、どうでしょうね」と回答を放棄した。
+She looked at me with a suspicious gaze. I might have talked too much.
+
+However, I have no intention of answering honestly. I can’t just say to her face, "You all are created beings."
 
 <b>
 
-答えるつもりが無いことを理解したらしく、セラさんは追及するのは諦めて、ため息をついた。そして、愚痴るように言葉を漏らす。
+I shrugged and replied, "Well, who knows?"
 
 <b>
 
-「容易にＤランクダンジョンを踏破できる、それだけの才能がありながら……『飽きたから』という理由で転職か。私にもそのような才能があればな」
+Understanding that I wasn’t going to answer, Sera-san gave up on pressing me and sighed. Then, she muttered in a complaining tone.
 
 <b>
 
-セラさんは「はぁ」と俯きながらため息を漏らす。
+"To be able to easily conquer a D-rank dungeon, and yet you want to change jobs just because you’re 'bored.' If only I had such talent."
 
 <b>
 
-俺はというと、彼女から出た『才能』という言葉にムッとしてしまった。
-
-歩みを進めていた足を止めて、彼女のほうを向く。
+Sera-san sighed while looking down.
 
 <b>
 
-「俺は才能だけの人間じゃありません」
+As for me, I felt irritated by the word "talent" that came from her.
+
+I stopped walking and turned to face her.
 
 <b>
 
-「ふん、その若さでその技量――才能以外になにがあるという」
+"I’m not just a person of talent."
 
 <b>
 
-俺は眉間にシワを寄せ、彼女を睨んだ。
+"Hmph, with that skill at such a young age—what else could there be besides talent?"
 
 <b>
 
-「セラさんが俺の『目』のことを才能というのなら、それは正しいですよ。だけど、それ以外の部分で才能という言葉を使ったのなら、貴方が俺のしてきた努力を、才能の一言で済ませてしまうような人ならば――」
+I furrowed my brow and glared at her.
 
 <b>
 
-セラさんは俺の目を見ている。困惑しているような、怯えているような、そんな表情だ。
+"If you’re referring to my 'eyes' as talent, then that’s correct. But if you’re using the word talent for anything else, then if you’re the kind of person who would dismiss my efforts with just that one word—"
 
-俺は一拍置いて、再び口を開く。
+<b>
+
+Sera-san was looking into my eyes. She had a bewildered and somewhat frightened expression.
+
+I paused for a moment before speaking again.
 
 <b>
 
 <b>
 
-「俺は貴方が嫌いだ」
+"I dislike you."
 
 <b>
 
@@ -250,127 +250,127 @@
 
 <b>
 
-やってしまった。
+I’ve done it now.
 
 <b>
 
-彼女が俺の事情を知っているはずもないのに、ついカッとなって言ってしまった。後悔も反省もしております。
+She couldn’t possibly know my circumstances, yet I blurted it out in a fit of anger. I regret and reflect on it.
 
 <b>
 
-そもそも『努力』なんて高尚な言葉を使ったけど、ゲームしてただけなんだよな。言ってしまえば、遊びの一種。
+After all, I used the lofty word "effort," but I was just playing a game. To put it bluntly, it was a form of play.
 
 <b>
 
-でも、本気だったんだよ。マジで頑張ったんだよ。
+But I was serious. I really did my best.
 
 <b>
 
-少なくともそのことをバカにされると、後先考えず不満の声が出てしまうぐらいには。
+At least, if someone were to mock that, I would voice my dissatisfaction without thinking about the consequences.
 
 <b>
 
-セラさんはと言うと、俺の発言に対して「わ、私も貴様が嫌いだっ！」と返したものの、その後は道行く人が二度見するほどテンションが下がっている。俺に嫌われたところで、あまりダメージにはならないと思っていたのだが、予想以上に堪えているらしい。
+As for Sera-san, she responded to my statement with, "I-I dislike you too!" but afterward, her mood dropped to the point where passersby did double-takes. I thought that being disliked by me wouldn’t hurt her much, but it seems to have affected her more than I expected.
 
 <b>
 
-Ｄランクダンジョンで受付をする前に、拳闘士へ転職。
+Before checking in at the D-rank dungeon, I changed to a brawler.
 
-ダンジョンの中では転職の機能は使えないし、レグルスさんが暗殺とか誘拐とかの話をしていたから、念のため剣士のままでここまでやってきたのだ。
-
-<b>
-
-ゲームの知識から、ステータスを頭の中で思い浮かべる。
+I couldn’t use the job change function inside the dungeon, and since Regulus-san was talking about assassination and kidnapping, I decided to come this far as a swordsman just in case.
 
 <b>
 
-<b>
-
-☆ステータス☆
-
-<b>
-
-名前︰ＳＲ
-
-年齢︰１８
-
-職業︰拳闘士
-
-レベル︰１
-
-ＳＴＲ︰Ｅ（Ｆ）
-
-ＶＩＴ︰Ｇ
-
-ＡＧＩ︰Ｆ
-
-ＤＥＸ︰Ｇ
-
-ＩＮＴ︰Ｇ
-
-ＭＮＤ︰Ｇ
-
-スキル︰――
+Recalling my status from the game knowledge in my mind.
 
 <b>
 
 <b>
 
-本来、拳闘士の初期ステータスはＳＴＲもＦだが、プレイヤーボーナスがきちんと仕事をしてくれていれば、Ｅになっているはず。
+☆Status☆
 
 <b>
 
-万が一、ステータスが上がっていないようであれば、不本意ながら緊急帰還の機能を使ったほうがいいだろう。さすがにＳＴＲがＦでは、倒すのに時間がかかりすぎてしまうのだ。
+Name: SR
+
+Age: 18
+
+Profession: Brawler
+
+Level: 1
+
+STR: E (F)
+
+VIT: G
+
+AGI: F
+
+DEX: G
+
+INT: G
+
+MND: G
+
+Skills: —
 
 <b>
 
-ちなみに緊急帰還とは、ダンジョンでの取得物が全て消える代わりに、ダンジョン外へと脱出する機能で、何も取得していない１階層であれば、これといったデメリットはない。
+<b>
+
+Normally, the initial status for a brawler would have STR at F, but if the player bonus is working properly, it should be at E.
 
 <b>
 
-ただし、ステータスウィンドウから選択する必要があるので、魔物に襲われている最中などは使用が難しい。ウィンドウが邪魔で、魔物の動きが見えづらくなってしまうからだ。
+If by any chance the status hasn’t increased, I would have to reluctantly use the emergency return function. After all, if STR is at F, it would take too long to defeat enemies.
 
 <b>
 
-受付を済ませると、セラさんが周囲に気を使った小さめの声で話しかけてきた。
+By the way, emergency return is a function that allows you to escape from the dungeon at the cost of losing all items obtained, and if you’re on the first floor without any items, there are no significant drawbacks.
 
 <b>
 
-「……エスアールは先程、拳闘士に転職したばかりだろう。危なくないのか？」
+However, since you need to select it from the status window, it’s difficult to use while being attacked by monsters. The window gets in the way and makes it hard to see the monsters' movements.
 
 <b>
 
-いつぞやの憤怒の形相をしていたセラさんとはまるで別人である。随分としおらしくなってしまったものだ。
+After checking in, Sera-san spoke to me in a small voice, being mindful of her surroundings.
 
 <b>
 
-「えぇ、問題ありません。今日も暇をさせてしまいますが、よろしくお願いします」
+"…SR just changed to a brawler a moment ago, right? Is it safe?"
 
 <b>
 
-「……わかった。何かあれば緊急帰還――もしくは通信の魔道具を使ってくれ、気にかけておく」
+She was completely different from the furious expression she had before. She had become quite docile.
 
 <b>
 
-「わ、わかりました。お気遣いありがとうございます」
+"Yes, it’s fine. I’m sorry to take up your time again today, but thank you for your help."
 
 <b>
 
-彼女のあまりの変わりように、俺は戸惑いながら返事をした。
+"…Understood. If anything happens, please use the emergency return—or the communication magic tool. I’ll keep an eye on you."
 
 <b>
 
-これはいい変化とは――言えないよなぁ。
-
-しかしどうしたものか。弱っている女性を慰めるスキルなんて習得していないし、本当にバカなことを言ってしまった。
+"Y-Yes, understood. Thank you for your consideration."
 
 <b>
 
-ひとまずは時間が薬になることを祈りつつ、レベル上げに専念することにしようか。
+I replied, bewildered by her drastic change.
 
 <b>
 
-数日経てば、きっとセラさんも元通り――俺を睨み続けるようになるだろう。それがいいことなのかは、俺にはわからないけど。
+This can’t be considered a good change, can it?
+
+But what should I do? I haven’t acquired any skills to comfort a weakened woman, and I really said something foolish.
+
+<b>
+
+For now, I’ll pray that time will heal things and focus on leveling up.
+
+<b>
+
+In a few days, Sera-san will surely return to her usual self—continuing to glare at me. Whether that’s a good thing or not, I don’t know.
 
 <b>
 

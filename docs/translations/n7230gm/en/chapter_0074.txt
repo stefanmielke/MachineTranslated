@@ -1,8 +1,8 @@
-# ７１　一人パーティ
+# 71 One-Person Party
 
 <b>
 
-セラ視点のお話です。
+This is a story from Sera's perspective.
 
 <b>
 
@@ -16,99 +16,101 @@
 
 <b>
 
-「パーティで戦う利点の一つとして、『敵に休む暇を与えずに連撃ができる』ってのがあると思うんだよ」
+<b>
+
+"I think one of the advantages of fighting in a party is that you can 'deliver continuous attacks without giving the enemy a chance to rest.'"
 
 <b>
 
-Ｂランクダンジョンの５階層。
+Fifth floor of a B-rank dungeon.
 
 <b>
 
-私たちはこの階層にいる魔物を全て倒し終えてから、カウントダウンタイマーが０になるまでの間、休息をとっていた。
+We took a break after defeating all the monsters on this floor, until the countdown timer reached zero.
 
-エスアールは地面に胡座をかき、頬杖を突いた状態で話を続ける。
-
-<b>
-
-「ボス部屋は他の階層と違って広いからな。あのネズミはでかいし、フェノンやシリーも攻撃を当てやすいだろ？」
+S.R. sat cross-legged on the ground, continuing to speak while resting his chin on his hand.
 
 <b>
 
-このダンジョンのボスは『サンドヘッジホッグ』という巨大なハリネズミの魔物。このパーティでも、すでに百回以上倒してきた敵だ。
-
-Ｂランクダンジョンのボスだというのにもかかわらず緊張感に欠けてしまうのは、彼が居るという安心感のせいだろうな。
+"The boss room is wider than those on other floors. That rat is big, and it's easier for Fenon and Shiri to land their attacks, right?"
 
 <b>
 
-「連撃――とは、ここに辿り着くまでに倒してきたやり方とは違うのですか？」
+The boss of this dungeon is a giant hedgehog monster called the 'Sand Hedgehog.' Even in this party, we have already defeated this enemy over a hundred times.
+
+Despite being a B-rank dungeon boss, the lack of tension is probably due to the reassurance of having him around.
 
 <b>
 
-私の隣――クッションを敷いて、その上で正座をしているフェノンがエスアールに問う。
+"Is the 'continuous attack' different from the methods we've used to defeat enemies up to this point?"
 
 <b>
 
-彼女がもしこの質問をしなければ、おそらく私は同じことを聞いただろう。
-
-シリーが矢で牽制して、私が剣で攻撃。相手が怯んだところで、フェノンの射出魔法が襲いかかる。エスアールが休日にＡランクダンジョンへ行っている日は、私たちはコレの練習に明け暮れている。
-
-その成果は、実戦で十分に発揮できていると思っていた。
+Next to me, Fenon, sitting on a cushion in a seiza position, asked S.R.
 
 <b>
 
-フェノンの問いかけに、エスアールは「違う違う」と言いながら首を振った。
+If she hadn't asked this question, I would have probably asked the same thing.
+
+Shiri would hold the enemy at bay with arrows while I attacked with my sword. When the enemy flinched, Fenon's magic would strike. On the days S.R. went to A-rank dungeons on his days off, we spent our time practicing this.
+
+I believed that the results of our practice were sufficiently demonstrated in actual combat.
 
 <b>
 
-「確かにいままでも連携して攻撃は仕掛けてきた。セラたちも十分上手くなったと思うが、俺と競ってた奴ら――前の世界にいたパーティと比べるとまだ足りない」
+In response to Fenon's question, S.R. shook his head, saying, "No, no."
 
 <b>
 
-「具体的に何が足りないんだ？」
+"Certainly, we've been coordinating our attacks up to now. I think Sera and the others have improved quite a bit, but compared to the guys I used to compete with—the party I was in back in the previous world—it's still lacking."
 
 <b>
 
-私は頭の中で答えを考えながら、彼に聞いてみた。
+"What specifically is lacking?"
 
 <b>
 
-エスアールという強者が加わっているとはいえ、このパーティの強さは周囲と比べて抜きんでていると、私は思っている。
+I asked him while thinking of an answer in my head.
 
 <b>
 
-フェノンとシリーは空いた時間を見つけては訓練をしているようだし、私も日々の鍛錬は欠かさない。今ではＢランクダンジョンのボスですら、４人で力を合わせれば１時間で倒すことができるようになっていた。
+Even though a strong person like S.R. has joined us, I believe our party's strength stands out compared to others.
 
 <b>
 
-つまり何が言いたいのかというと、『今のままでも十分ではないのか？』ということだ。このまま順調にレベルを上げていけば、より高みに近づけると思うのだが。
+It seems Fenon and Shiri are finding time to train, and I also don't neglect my daily training. Now, even the boss of a B-rank dungeon can be defeated in an hour if we work together.
 
 <b>
 
-「そんなに不満そうな顔をするなよ。お前たちが頑張ってるのは知ってるからさ」
+What I'm trying to say is, "Isn't it enough as we are now?" If we continue to level up smoothly, I think we can reach even greater heights.
 
 <b>
 
-うっ……どうやら顔に出てしまっていたらしい。恥ずかしい。
+"Don't make such a dissatisfied face. I know you all are doing your best."
 
 <b>
 
-エスアールは優しい笑みを浮かべながら私たちに言う。
+Ugh... It seems my feelings were showing on my face. How embarrassing.
 
 <b>
 
-「で、具体的に言うとだな――精度もそうだが、何よりもスピードが足りない。俺が今から実際にボス戦でやってみせるから、テンポを覚えておいてくれ。敵の怯みかたにも注目だな」
+S.R. said to us with a gentle smile.
 
 <b>
 
-エスアールはそう言うと、地面から立ち上がって、ズボンに付いた砂を払う。そして、ウィンドウ画面に表示されている『ボスに挑む』という選択肢に触れた。
+"So, to be specific—it's not just accuracy, but more than anything, the speed is lacking. I'll show you how it's done in an actual boss fight, so remember the tempo. Pay attention to how the enemy flinches."
 
 <b>
 
-エスアールがやってみせる？　パーティの戦い方を、一人で？
+With that, S.R. stood up from the ground and brushed the sand off his pants. Then, he touched the option 'Challenge the Boss' displayed on the window screen.
 
 <b>
 
-私の疑問が口から出るよりも前に、舞台はボス部屋へと移った。
+S.R. is going to show us? The party's fighting style, by himself?
+
+<b>
+
+Before my doubts could escape my lips, the scene shifted to the boss room.
 
 <b>
 
@@ -120,145 +122,143 @@
 
 <b>
 
-「じゃ、行ってくるわ」
+"Alright, I'm off."
 
 <b>
 
-そう言って彼は、赤刀を持ったほうの肩をぐるぐると回しながら、ボスであるサンドヘッジホッグへと向かっていく。
+With that, he spun his shoulder holding the red sword and headed toward the boss, the Sand Hedgehog.
 
-その気軽さは『買い物行ってくるわ』と彼が言う時となんら変わりはない。
-
-<b>
-
-「エスアールさんなら大丈夫だとわかっているんですが……やはりあの大きな魔物に一人で挑むというのは、どうしても不安になりますね」
+His casualness was no different from when he said, "I'm going shopping."
 
 <b>
 
-シリーはまるで心臓の鼓動を宥めるかのように、胸に手を当てている。
+"I know S.R. will be fine, but... still, it's unsettling to challenge that large monster alone."
 
 <b>
 
-「確かに、な。彼のまともな戦いを見るのは武闘大会以来だな」
+Shiri placed her hand on her chest as if to calm her heartbeat.
 
 <b>
 
-「そうね。あの時からさらに強くなっているのは確かだし、心配するのは失礼かもしれないわよ」
+"That's true. It's been since the martial arts tournament since I've seen him fight properly."
 
 <b>
 
-フェノンはエスアールの背に目を向けたまま、そんな言葉を口にする。
-
-彼女の言う通りだな。私もエスアールを信用して、彼の動きを覚えることに専念しようか。
+"That's right. It's certain that he's become even stronger since then, so it might be rude to worry."
 
 <b>
 
-「見て、学ぼう。それが今の私たちにできる唯一のことだ」
+Fenon said this while keeping her eyes on S.R.'s back.
+
+She was right. I should trust S.R. and focus on memorizing his movements.
 
 <b>
 
-私の言葉に、フェノンとシリーは真剣な表情で頷いた。
-
-彼はいったい、どんな戦いを私たちに見せてくれるのだろうか。
+"Let's watch and learn. That's the only thing we can do right now."
 
 <b>
 
-<b>
+At my words, Fenon and Shiri nodded seriously.
 
-現在の彼の職業は魔弓術士。レベルは４０を超えており、『魔道矢』という魔力で弓と矢を生成するスキルを取得している。
-
-<b>
-
-彼はスタスタとボスとの距離を詰めながら、左手の人差し指を敵に向け、剣を持った右手を、まるで弓を引くかのように頭の後ろまで下げる。敵との距離は、残り１０メートル。
-
-<b>
-
-エスアールの手に青白く光る弓と矢が出現し、その矢はサンドヘッジホッグへと放たれた。魔弓術士のスキル――魔道矢だ。
-
-その矢が手から離れた瞬間、エスアールの左手が赤く輝き始める。
-
-<b>
-
-エスアールは勢いよく飛んでいく矢を追うように、一気に敵との距離を詰めた。
-
-<b>
-
-魔道矢は正確に敵の額を捉え、サンドヘッジホッグは苦痛の鳴き声を上げながら、ほんの少し後ろに仰け反る。エスアールはがら空きになった懐に潜り込むと、敵の顎を赤刀で切り上げた。
-
-<b>
-
-切り上げた――そう思った時には、すでにエスアールの左手から魔法士のスキル――射出魔法が放たれている。魔道矢を放った直後に左手が赤く輝いていたのは、コレの発動準備をしていたらしい。
-
-<b>
-
-刀を左手に持ち替えた彼は、右の拳で敵の腹を殴りつける――剣を持つ左手は、すでに魔道矢の発動準備――弓を引き絞るような形をとっていた。
+What kind of fight will he show us?
 
 <b>
 
 <b>
 
-ドドドドドドドドドド――。
+Currently, his profession is a magic archer. His level is over 40, and he has acquired the skill 'Magic Arrow,' which generates bows and arrows using magical power.
+
+<b>
+
+He closed the distance to the boss quickly, pointing his left index finger at the enemy while pulling the sword in his right hand back as if drawing a bow. The distance to the enemy was now ten meters.
+
+<b>
+
+A blue-white glowing bow and arrow appeared in S.R.'s hand, and the arrow was shot at the Sand Hedgehog. It was the magic archer's skill—Magic Arrow.
+
+The moment the arrow left his hand, S.R.'s left hand began to glow red.
+
+<b>
+
+S.R. rushed forward to close the distance to the enemy as the arrow flew.
+
+<b>
+
+The Magic Arrow accurately struck the enemy's forehead, and the Sand Hedgehog let out a cry of pain, leaning back slightly. S.R. slipped into the now-open space and slashed the enemy's jaw with the red sword.
+
+<b>
+
+Just as I thought he had slashed upward, a magic skill—Launch Magic was already being unleashed from S.R.'s left hand. It seemed he had been preparing to activate this right after releasing the Magic Arrow.
+
+<b>
+
+Switching the sword to his left hand, he punched the enemy's stomach with his right fist—the left hand holding the sword was already in the position to activate the Magic Arrow, as if drawing a bow.
 
 <b>
 
 <b>
 
-まるで地揺れが起きているかのような、絶え間ない音の連続。
-
-私たちは感想を述べる余裕もない。ただ、彼の為す圧倒的暴力を目で追うのに精一杯だった。ボスには反撃どころか、防御する暇も与えられていない。
-
-<b>
-
-彼は……本当に私たちと同じ人間なのか――？　そんな失礼な考えも脳裏に浮かんでしまう。
-
-<b>
-
-努力して強くなったと思っていた――彼の技は、そんな私たちの幻想を軽々と打ち砕いていく。剣聖の再来などと言われ、浮かれていた自分がバカみたいだ。
+Dodododododododododod――.
 
 <b>
 
 <b>
 
-まさにあっという間の出来事だった。
+A continuous sound like an earthquake, unending and relentless.
+
+We had no time to express our thoughts. We were barely able to keep our eyes on his overwhelming violence. The boss was given no chance to counterattack, let alone defend.
 
 <b>
 
-彼はボスのサンドヘッジホッグを、３０分にも満たないような時間で倒してみせたのだ。
+Is he... really the same human as us? Such disrespectful thoughts crossed my mind.
 
-彼の左手に『腕力の指輪』というＳＴＲが増加する指輪があるとはいえ、ハッキリ言って異常。格の違いを感じずにはいられない、そんな戦いだった。
-
-<b>
-
-全く疲れた様子のないエスアールは、こちらに向かって「わかったか？」なんて無邪気に聞いてくる。
-
-彼は私に『覚えが良い』などと言ってくれたが、さすがにコレは真似できそうにない。
+I thought I had worked hard to become strong—his skills effortlessly shattered that illusion of ours. I felt foolish for getting carried away, thinking of him as the reincarnation of a sword saint.
 
 <b>
 
-何が『４人で力を合わせれば』だ。
+<b>
 
-そんなことを考えていた自分が恥ずかしい。
+It all happened in the blink of an eye.
 
 <b>
 
-私たちは相変わらず、彼のお荷物だったのだ。
+He defeated the boss, the Sand Hedgehog, in less than thirty minutes.
+
+Even though he had the 'Ring of Strength' that increases STR on his left hand, it was clearly abnormal. It was a battle that made it impossible not to feel the difference in caliber.
 
 <b>
 
-ボスに挑む前、彼が言った『足りない』という言葉が今になって重くのし掛かってくる。
+S.R., showing no signs of fatigue, turned to us and innocently asked, "Did you get it?"
+
+He had called me 'good at remembering,' but honestly, I felt like I couldn't replicate this.
 
 <b>
 
-エスアールの言う通りだ。
+What do you mean by 'if we work together'?
 
-レベルも、技術も、努力も、まだまだ足りない。
-
-<b>
-
-「……まったく、私もとんでもない人を目標にしてしまったものだ」
+I felt embarrassed for having thought that.
 
 <b>
 
-こちらに向かって手を振っているエスアールに、手を挙げて応えながら、私は小さく呟いた。
+We were still, as always, his burden.
+
+<b>
+
+The words he had said before challenging the boss—'lacking'—now weighed heavily on me.
+
+<b>
+
+S.R. was right.
+
+Levels, skills, effort—still not enough.
+
+<b>
+
+"…Seriously, I've set my sights on an incredible person."
+
+<b>
+
+As I waved back at S.R., who was waving at me, I muttered softly. 
 
 <b>
 

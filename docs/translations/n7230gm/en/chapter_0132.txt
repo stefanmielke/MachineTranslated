@@ -1,4 +1,4 @@
-# Ａ－１８　剣姫の力
+# A-18 The Power of the Sword Princess
 
 <b>
 
@@ -6,173 +6,167 @@
 
 <b>
 
-五階層はほとんどセラとノアにまかせっきりの形となり、俺は暇つぶし程度に弓でオークをチクチクと攻撃するぐらいだった。
+The fifth level was mostly left to Sera and Noah, while I just poked at the orcs with my bow to pass the time.
 
 <b>
 
-あまりにも精度や威力が高いとアーノルドに違和感を抱かれそうなので、適当に誤魔化しつつ参戦。
+I had to be careful not to raise any suspicions with Arnold by being too precise or powerful, so I participated while pretending to be casual.
 
-オーガに触れるか触れないか――そんな感じで矢を放つと、交戦中のセラが驚いた表情でこちらを振り返った。――が、彼女はアーノルドと俺を交互に見ると、納得したように顎を引く。
-
-<b>
-
-俺が攻撃を外すのがそんなに意外かね。わざとじゃなくとも、寝不足の時なんかだとたまにあるんだがな。というか前見なさい、危ないでしょうが。
+As I shot arrows that barely grazed the ogres, Sera, who was in combat, turned to look at me with a surprised expression. However, when she alternated her gaze between Arnold and me, she nodded as if satisfied.
 
 <b>
 
-<b>
-
-そしてようやく、俺たちは慣れ親しんだオーガ３０体の討伐を終え、ボスの待つ階層へと転移した。
+Is it that surprising that I miss my attacks? It happens sometimes, especially when I'm sleep-deprived. Besides, look ahead; it's dangerous.
 
 <b>
 
-「ほう……こいつは大きいな。武器のリーチも長い――接近するのに苦労しそうだ」
+<b>
+
+Finally, we finished off the thirty familiar ogres and teleported to the level where the boss awaited.
 
 <b>
 
-初めて見るサイクロプスを眺め、アーノルドはさっそく敵の分析を始める。
-
-顎に手をやり、死体でも検分するような目付きでじっくりと観察していた。
-
-もちろん俺はそんな状況に遭遇したことはないんだけども。なんとなくね。
+"Whoa... this one is big. Its weapon reach is long—getting close will be a challenge."
 
 <b>
 
-そういえばシンが最初にこいつを見た時『勝てっこない』だなんて言っていたっけ？　あの頃はＢランクダンジョンのボスというだけで『勝てない』というイメージが刷り込まれていただけなのかもしれないから、今のアーノルドと比較するのは少し可哀想だけども。
+As Arnold observed the cyclops for the first time, he immediately began analyzing the enemy.
+
+He placed his hand on his chin and scrutinized it with an expression as if examining a corpse.
+
+Of course, I've never encountered such a situation. Just a feeling.
 
 <b>
 
-アーノルドはレゼルでＢランクダンジョンの踏破実績があるし、このぐらいの敵ならば見慣れていても不思議はない。
+Speaking of which, didn't Shin say "There's no way we can win" when he first saw this thing? Back then, the mere fact that it was the boss of a B-rank dungeon might have ingrained the image of "can't win" in his mind, so comparing it to Arnold now seems a bit unfair.
 
 <b>
 
-「私が一人でやってもいいか？　最近はパーティで挑むばかりだったから、一人で倒せるか再確認したいんだ」
+Arnold has experience clearing B-rank dungeons in Rezell, so it's not surprising that he's familiar with enemies of this level.
 
 <b>
 
-セラは特に気負った様子もなく、淡々とした口調で俺とノアに問いかけてきた。
-
-彼女は俺と一緒にＳランクダンジョンの『わたあめ』を倒した経験もあるし、今さらサイクロプス程度には怯えない。
-
-特に悩むこともなく俺たち偽兄妹は、いいぞ――いいよと言葉を返した。
+"Is it okay if I handle this alone? I've only been tackling it with a party lately, so I want to confirm if I can take it down by myself."
 
 <b>
 
-だが、この場には彼女の言葉を素直に受け取れない男が一名。
+Sera asked us, Noah and me, in a calm tone without any particular pressure.
+
+She has experience defeating the 'Cotton Candy' in an S-rank dungeon with me, so she isn't intimidated by a cyclops at this point.
+
+Without much hesitation, we, the faux siblings, replied, "Sure—go ahead."
 
 <b>
 
-「まさかセラ一人でボスに挑むのか？」
+However, there was one man in the group who couldn't simply accept her words.
 
 <b>
 
-不安そうに、眉を寄せながらアーノルドが問いかけてくる。
+"Are you really going to challenge the boss alone, Sera?"
 
 <b>
 
-「彼女は一人でのボス戦経験があるから、特に心配はいらないぞ。万が一危なくなったら俺たちがサポートするし、油断しなければ危険はない」
+Arnold asked with a worried expression, furrowing his brows.
 
 <b>
 
-まだ挑戦させたことはないが、サイクロプスぐらいならばシリーやフェノンでも倒せるはずだ。彼女たちのステータスは他の国の連中と比べると雲泥の差だし、強い魔物との戦闘経験も豊富だからな。
+"She has experience fighting bosses alone, so there's no need to worry. If things get dangerous, we'll support her, and as long as she doesn't let her guard down, there shouldn't be any danger."
 
 <b>
 
-「なるほど、さすがは剣姫といったところか。私も精進せねばな」
+I haven't let her try yet, but I believe even someone like Shiri or Phenon could take down a cyclops. Their stats are vastly superior compared to those from other countries, and they have plenty of experience fighting strong monsters.
 
 <b>
 
-「おう。俺たちだってコツコツとレベルを上げてきたんだ、レゼル王国にも期待しているぞ」
+"I see, so this is what it means to be the Sword Princess. I must also strive to improve."
 
 <b>
 
-「はっはっはぁ！　これは随分と下に見られたものだなっ！」
+"Yeah. We've been steadily leveling up too, so I expect great things from the Rezell Kingdom."
 
 <b>
 
-アーノルドはそんな風に偽物の空を見上げて笑う。顔が上を向いているため、彼がいまどのような表情を浮かべているのかはっきりとしない。
+"Hahaha! I've been looked down upon quite a bit!"
 
 <b>
 
-お、おう……ちょっと調子に乗りすぎてしまったかもしれん。実は怒ってんのかこれ？
+Arnold laughed while looking up at the fake sky. Since his face was tilted upward, it was hard to tell what kind of expression he was making.
 
 <b>
 
-話がしやすいから、相手が貴族――そしてレゼル王国を代表する戦士であるということをすっかり失念してしまっていた。
-
-不敬罪なんてことになったらセラとフェノンに『どうにかしてください』と頭を下げるしかない。なんと頼りない婚約者なのだろう。
+O-oh... I might have gotten a bit carried away. Is he actually angry about this?
 
 <b>
 
-やばいなー、どうしようかなーと言葉に詰まっていると、隣のノアがコソコソと「別に怒ってないよ」と教えてくれた。ナイス読心！　今度焼き鳥おごってやろう！
+Because it was easy to talk to him, I completely forgot that he was a noble—and a warrior representing the Rezell Kingdom.
+
+If it turned into a case of disrespect, I'd have no choice but to bow my head to Sera and Phenon and say, "Please do something about this." What a useless fiancé I am.
 
 <b>
 
-「それだけの弓術があれば、エスアールの自信も頷ける――ノア様といい剣姫といい、リンデール王国は素晴らしい人材が豊富だな！」
+Oh no, what should I do? As I struggled to find words, Noah next to me whispered, "He's not really angry." Nice mind-reading! I'll treat you to yakitori next time!
 
 <b>
 
-「はは……。まぁさっきの言葉は俺たちの国が一番情報が早かったから――って理由だから、あまり気を悪くしないでくれよ」
+"With that level of archery, it's no wonder ASR is so confident—both Lady Noah and the Sword Princess are remarkable talents from the Lindale Kingdom!"
 
 <b>
 
-「悪くなどしていない。名も知らぬパーティならばともかく、ＡＳＲはリンデール王国の二番手だと聞いている――機会があればエスアールたちとも戦ってみたいものだな」
+"Haha... Well, my previous words were because our country had the fastest information—so please don't take it too badly."
 
 <b>
 
-ニヤリと笑みを浮かべてアーノルドが俺を見る。
-
-いいねぇ、こちらとしても是非レゼルの代表パーティと戦ってみたいな。
+"I'm not upset. While I wouldn't mind an unknown party, I've heard that ASR is the second-best in the Lindale Kingdom—I'd like to have a chance to fight against ASR if possible."
 
 <b>
 
-ただ、俺はサポート役っていうことになっているから、思いっきり楽しむってことはできそうにないが、血のにじむ訓練をしてきた人たちの戦闘を間近で見られるのならば、そこそこ楽しめることは間違いないだろう。
+Arnold smiled slyly and looked at me.
+
+That sounds good; I'd definitely like to fight against the representative party from Rezell.
 
 <b>
 
-「二人とも、そろそろセラがボスに接触するよ。見なくていいの？」
+However, since I'm supposed to be the support role, it seems unlikely that I can enjoy it fully, but it would definitely be enjoyable to watch the battles of those who have trained hard.
 
 <b>
 
-盛り上がる男どもに、これぞまさにジト目――といった感じでノアが呆れの要素を多分に含んだ視線を送ってくる。
+"Both of you, Sera is about to engage the boss. Aren't you going to watch?"
 
 <b>
 
-「もちろん見ますっ！　ノア様側で観戦してもよろしいでしょうか？」
+As the excited men were getting into it, Noah sent a gaze filled with exasperation, as if to say, "This is just ridiculous."
 
 <b>
 
-現在アーノルドは俺の左側であぐらをかいており、ノアは俺の右側に体操座りでそれぞれ腰を下ろしている状態だ。
-
-彼は俺のことが視界から消えたかのように、身を乗り出してノアに声を掛ける。
+"Of course, we will watch! Is it alright if I observe from Lady Noah's side?"
 
 <b>
 
-「そこで大人しくしとけ。お前ノアの隣だと集中できないだろ」
+Currently, Arnold was sitting cross-legged on my left, while Noah was sitting in a gymnastics position on my right.
+
+He leaned forward, seemingly forgetting about me, and called out to Noah.
 
 <b>
 
-だが俺は、ノアが何かを言う前にアーノルドの身体を定位置に無理やり戻す。こんなところでイチャイチャされたら気まずいだろ。それに、
+"Stay still there. You can't concentrate next to Noah."
 
 <b>
 
-「………………いいから見るぞ」
+But I forcibly pulled Arnold back to his original position before Noah could say anything. It would be awkward if they started getting cozy here. Besides,
 
 <b>
 
-――なぜか俺は『お前はノアのことを何も知らないんだから』とか『こいつを一番理解しているのは俺だ』とか――そんなことを思ってしまっていた。
+"........... Just watch."
 
 <b>
 
-本当の兄妹でもないのに。
-
-セラやフェノンたちと同じように婚約者であるわけでもないのに――アーノルドに対してマウントを取るような考えが浮かんできたのだ。本当になんでだろう。
+For some reason, I found myself thinking, "You don't know anything about Noah," or "The one who understands her best is me." I had thoughts of taking a superior position over Arnold. Why is that?
 
 <b>
 
-幸い、アーノルドは俺の発言に反論することもなく「一理ある」と言いながら、視線を前方に固定。
+Fortunately, Arnold didn't argue against my statement and fixed his gaze forward, saying, "You have a point."
 
-右側にチラッと視線を向けてみると、ノアも彼と同じくセラのことを見ていた。さっきより俺との距離が近い気がするけど――まぁいいか。
+When I glanced to my right, I saw Noah was also watching Sera, just like him. She seemed a bit closer to me than before, but—oh well.
 
 <b>
 
@@ -184,89 +178,87 @@
 
 <b>
 
-セラとサイクロプスの戦闘は、あっという間に幕を閉じた。まさに圧勝である。
+The battle between Sera and the cyclops ended in an instant. It was a complete victory.
 
 <b>
 
-開始直後は少し動きが硬かったものの、すぐに感覚を取り戻したのか、彼女は一切のスキルを使用することなくサイクロプスを撃破した。
+At first, her movements were a bit stiff, but she quickly regained her senses and defeated the cyclops without using any skills.
 
-現在の彼女の職業は結界術士という後衛職だが、プレイヤーボーナスを多数獲得している俺たちにはあまり関係ない。もちろん、本気で戦うのであれば前衛職を選ぶべきだが。
-
-<b>
-
-「……まさか、彼女がシンに剣を教えているのか？　シンと似ているだけではない、明らかに彼よりも洗練されている――いや、それはおかしい。それならばエスアールは迅雷の軌跡から指導を受ける必要がない――ＡＳＲには魔法のノア様やフェノン第一王女殿下、エスアールより弓術が優れているというシリー、そして剣姫がいる。どういうことだ……？」
+Currently, her class is a barrier mage, which is a rear guard role, but it doesn't matter much to us who have gained numerous player bonuses. Of course, if she were to fight seriously, she should choose a front-line class.
 
 <b>
 
-ぶつぶつぶつぶつ。
-
-アーノルドは目の焦点を合わせないまま、うわ言のように言葉を垂れ流している。
-
-が、セラが少し気落ちした様子でこちらに歩み寄ってくると、彼は勢いよく顔をブンブンと横に振った。思考をリセットしているらしい。
+"Could it be that she's teaching Shin how to wield a sword? It's not just that she's similar to him; she's clearly more refined than he is—no, that doesn't make sense. If that were the case, ASR wouldn't need to receive guidance from the Thunderbolt Trail—ASR has magical Noah and Princess Phenon, and Shiri, who excels in archery compared to ASR, as well as the Sword Princess. What does this mean...?"
 
 <b>
 
-「少し手間取ってしまった……やはり定期的に一人でやるべきだな」
+Muttering to himself.
+
+Arnold was spilling words like a monologue without focusing his eyes.
+
+However, when Sera approached us looking a bit down, he vigorously shook his head. It seemed he was resetting his thoughts.
 
 <b>
 
-水を振り払う犬のようなアーノルドの仕草など気にする様子もなく、セラは眉を八の字にしながら報告をしてきた。
+"I took a bit longer than expected... I really should do this alone periodically."
 
 <b>
 
-「反省会は家でやろうな」
+Without paying any attention to Arnold's dog-like gesture of shaking off water, Sera reported with her brows furrowed in an "8" shape.
 
 <b>
 
-以前ならば『よくやった、完璧だ』と褒めていたところだが、彼女にはまだまだ伸びしろが残されている。つまり、俺も細かいところを指摘しなければならない。
+"Let's have a debriefing at home."
 
 <b>
 
-脚運びや、攻撃、回避、防御への移り変わりなど――言い出せばキリがないが、彼女の成長スピードをもってすればあっという間に修得――Ａランクダンジョンも一人で踏破できるようになるだろう。
+In the past, I would have praised her, saying, "Well done, perfect," but she still has room for improvement. That means I have to point out the finer details.
+
+Her footwork, attacks, evasion, transitions to defense—there are countless things to mention, but with her growth speed, she'll master them in no time—she'll probably be able to clear A-rank dungeons alone soon.
 
 <b>
 
-――さて、これで俺たちのミッションは完了だ。
+—Now then, our mission is complete.
 
 <b>
 
-そろそろ迅雷の軌跡とアーノルドが面会できる準備も整っているだろうし、さっさとダンジョンから出ようかね。
+It's about time for the Thunderbolt Trail and Arnold to be ready to meet, so let's get out of this dungeon quickly.
 
-そう思いながら俺はのそのそと立ち上がり、『立たせて』とジェスチャーと視線で訴えてくるノアの手をとり引っ張り上げる。本当に神様というよりも妹みたいだわこいつ。
-
-<b>
-
-「頼みがある」
+Thinking that, I slowly stood up and took Noah's hand, who was gesturing and looking at me to "help her up," and pulled her up. She's really more like a little sister than a goddess.
 
 <b>
 
-セラがウィンドウを操作して帰還しようとしたところで、アーノルドが静かに――しかしはっきりとした声で言った。皆の動きが停止する中、彼はセラに向かって勢いよく頭を下げる。
+"I have a request."
 
 <b>
 
-「俺に剣を教えてはくれないだろうか。剣姫の技は、俺が今まで見てきたどの剣士よりも優れている」
+Just as Sera was about to operate the window to return, Arnold quietly—but clearly—spoke. Everyone's movements halted as he bowed his head vigorously toward Sera.
 
 <b>
 
-こいつは迅雷の軌跡の件といい、ロ〇コン騒ぎといい、本当に次から次に面倒事を……！
-
-だがまぁ、今回に関しては彼女がどう答えるのかはなんとなく予想できるから、別にいいんだけども。
+"Would you teach me how to wield a sword? The techniques of the Sword Princess are superior to any swordsman I've seen so far."
 
 <b>
 
-セラは一瞬だけ俺やノアに視線を向けると、すぐにアーノルドへ視線を戻した。
+This guy, with the Thunderbolt Trail incident and the lolicon commotion, really keeps bringing up troublesome matters...!
 
-そして先ほどのアーノルドのよりもはっきりと、そして大きめの声で――
-
-<b>
-
-「断る！」
+But well, regarding this, I can somewhat predict how she will respond, so it's not a big deal.
 
 <b>
 
-切り捨てるように、そう言い放った。
+Sera briefly glanced at me and Noah before returning her gaze to Arnold.
 
-ですよねー。
+Then, in a voice clearer and louder than Arnold's earlier one—
+
+<b>
+
+"I refuse!"
+
+<b>
+
+She declared decisively.
+
+Of course.
 
 <b>
 
@@ -278,6 +270,6 @@
 
 <b>
 
-★活動報告にお知らせを書きました！
+★ I wrote a notice in the activity report!
 
-よろしければごらんくださいませ――そろそろ……何かが起きるっ！！( ✧Д✧)カッ!!
+If you'd like, please take a look—something is about to happen soon!! ( ✧Д✧) Kya!!

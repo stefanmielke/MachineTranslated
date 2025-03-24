@@ -1,7 +1,7 @@
 ###### [Next Chapter](./chapter_0186.md)
 ###### [Previous Chapter](./chapter_0184.md)&nbsp;/&nbsp;
 
-# Ａ－６８　リンデールへ
+# A-68 To Lindale
 
 ## Ａ－６８　リンデールへ
 
@@ -11,209 +11,209 @@
 
 &nbsp;
 
-#### 試合後、俺は『紅の剣』たちを神官の範囲治癒魔法――エリアヒールで治療した。いちおうどこか痛むところとかが無いか確認してみたけど、どうやら問題はないらしい。
+#### After the match, I healed the members of "Crimson Sword" with the priest's area healing magic—Area Heal. I checked to see if anyone was in pain, but it seemed there were no issues.
 
 *試合後、俺は『紅の剣』たちを神官の範囲治癒魔法――エリアヒールで治療した。いちおうどこか痛むところとかが無いか確認してみたけど、どうやら問題はないらしい。*
 
-#### まぁ問題があったところでエリクサーをぶっかけりゃどうにかなってしまうんだよなぁ……改めてファンタジーって凄い。
+#### Well, even if there were problems, I could just splash them with an elixir and everything would be fine... Once again, fantasy is amazing.
 
 *まぁ問題があったところでエリクサーをぶっかけりゃどうにかなってしまうんだよなぁ……改めてファンタジーって凄い。*
 
 &nbsp;
 
-#### 「お疲れ様だ、エスアール」
+#### "Good job, SR."
 
 *「お疲れ様だ、エスアール」*
 
 &nbsp;
 
-#### まずセラが俺に声を掛けてきて、それに続くように他のメンバーもねぎらいの言葉を掛けてくれる。ちなみにニーズ君は茫然としているギルドマスターの肩を優しく叩いていた。
+#### First, Sera called out to me, followed by the other members offering their words of encouragement. By the way, Niz-kun was gently patting the shoulder of the dazed guild master.
 
 *まずセラが俺に声を掛けてきて、それに続くように他のメンバーもねぎらいの言葉を掛けてくれる。ちなみにニーズ君は茫然としているギルドマスターの肩を優しく叩いていた。*
 
 &nbsp;
 
-#### 「ありがとなセラ――というかお前たち、時間はあるしもう一戦すればいいんじゃないか？　ノアが開幕でズルしたから大して訓練にならなかっただろ？　パルムールからもうそろそろ帰るんだし、また試合するってなったら年単位かもしれないぞ？」
+#### "Thanks, Sera—actually, why don't you all take the time to have another match? Since Noah cheated at the start, it wasn't much of a training session, right? We're about to head back to Palmour, and if we wait to have another match, it might be years before it happens!"
 
 *「ありがとなセラ――というかお前たち、時間はあるしもう一戦すればいいんじゃないか？　ノアが開幕でズルしたから大して訓練にならなかっただろ？　パルムールからもうそろそろ帰るんだし、また試合するってなったら年単位かもしれないぞ？」*
 
 &nbsp;
 
-#### 俺がそう言うと、この場で一番のちびっこがムッとした表情で突っかかってきた。
+#### When I said that, the smallest one in the group glared at me with a pout.
 
 *俺がそう言うと、この場で一番のちびっこがムッとした表情で突っかかってきた。*
 
 &nbsp;
 
-#### 「ちょっとお兄ちゃん？　ズルってなにさ」
+#### "Hey, big brother? What do you mean by cheating?"
 
 *「ちょっとお兄ちゃん？　ズルってなにさ」*
 
 &nbsp;
 
-#### 「だってベノムみたいなやり口じゃないかあれ」
+#### "Because that was a tactic like Venom's."
 
 *「だってベノムみたいなやり口じゃないかあれ」*
 
 &nbsp;
 
-#### 開幕で重力魔法でこちらの動きを封じ、目から発せられるレーザーで仕留めようとするのは覇王ベノムの常とう手段である。初見の奴はだいたい即死だ。
+#### Using gravity magic to immobilize us at the start and then trying to finish us off with lasers from his eyes is a common tactic of the Overlord Venom. Most newcomers die instantly.
 
 *開幕で重力魔法でこちらの動きを封じ、目から発せられるレーザーで仕留めようとするのは覇王ベノムの常とう手段である。初見の奴はだいたい即死だ。*
 
-#### まぁさすがにノアは重力魔法のあとに目からビームとかはなかったけど。いや、もしかしたらノアならあるいは……
+#### Well, Noah didn't follow up with eye beams after the gravity magic, but maybe she could have...
 
 *まぁさすがにノアは重力魔法のあとに目からビームとかはなかったけど。いや、もしかしたらノアならあるいは……*
 
 &nbsp;
 
-#### 「できないから！　その妄想やめてくれないかな！」
+#### "I can't do that! Can you stop with that delusion?!"
 
 *「できないから！　その妄想やめてくれないかな！」*
 
 &nbsp;
 
-#### 「なんだ……できないのか」
+#### "What? You can't do it?"
 
 *「なんだ……できないのか」*
 
 &nbsp;
 
-#### 「がっかりされても困るんだけど！？」
+#### "I'd be troubled if you were disappointed!?"
 
 *「がっかりされても困るんだけど！？」*
 
 &nbsp;
 
-#### 俺が肩を落として気落ちしたふりをしていると、ノアが声を荒げて抗議してきた。
+#### As I pretended to be dejected, Noah raised her voice in protest.
 
 *俺が肩を落として気落ちしたふりをしていると、ノアが声を荒げて抗議してきた。*
 
-#### ちょっとからかっただけでこの反応……これで俺より長い年月を生きているのか。神様って実は精神年齢低めだったりするのかもしれない。
+#### Just teasing her got this reaction... Is she really older than me? Maybe gods actually have a lower mental age.
 
 *ちょっとからかっただけでこの反応……これで俺より長い年月を生きているのか。神様って実は精神年齢低めだったりするのかもしれない。*
 
-#### いやしかし、地球の創造神であるイデア様はのじゃロリ仕様だったしな……判断が難しいところだ。
+#### But then again, the creator god of Earth, Idea-sama, had a loli-like design... It's a tough call.
 
 *いやしかし、地球の創造神であるイデア様はのじゃロリ仕様だったしな……判断が難しいところだ。*
 
 &nbsp;
 
-#### ノアをからかいつつ、セラたちとも話をしていると、地面に腰を下ろして休んでいた『紅の剣』たちが続々と立ち上がり始める。どうやら体力も回復してきたらしい。
+#### While teasing Noah and chatting with Sera and the others, the members of "Crimson Sword," who had been resting on the ground, began to stand up one after another. It seemed their stamina had recovered.
 
 *ノアをからかいつつ、セラたちとも話をしていると、地面に腰を下ろして休んでいた『紅の剣』たちが続々と立ち上がり始める。どうやら体力も回復してきたらしい。*
 
 &nbsp;
 
-#### 「お嬢ちゃんたちがいいなら、こっちからもお願いするぜ」
+#### "If the girls are up for it, then we’d like to ask for a match too."
 
 *「お嬢ちゃんたちがいいなら、こっちからもお願いするぜ」*
 
 &nbsp;
 
-#### 「私からもお願いします」
+#### "I'll ask as well."
 
 *「私からもお願いします」*
 
 &nbsp;
 
-#### 「でもあと五分休ませて」
+#### "But let us rest for another five minutes."
 
 *「でもあと五分休ませて」*
 
 &nbsp;
 
-#### どうやらネスカさんたちはやる気の様子。さっきのノアたちとの試合はやはり納得いかなかったんだろうなぁ。戸惑っているうちに決着がついてしまったような感じだったし。
+#### It seemed that Neska and the others were motivated. They probably weren't satisfied with the earlier match against Noah. It felt like the decision had come too quickly while they were still confused.
 
 *どうやらネスカさんたちはやる気の様子。さっきのノアたちとの試合はやはり納得いかなかったんだろうなぁ。戸惑っているうちに決着がついてしまったような感じだったし。*
 
 &nbsp;
 
-#### 「せっかくですから、ノア抜きでやってみたらいいんじゃないですか？　こっちはレベル面で上回っているけど、連携や実戦ならたぶん『紅の剣』が優勢だと思いますし」
+#### "Since it's a rare opportunity, how about trying without Noah? We may have the upper hand in levels, but in terms of teamwork and actual combat, I think 'Crimson Sword' would have the advantage."
 
 *「せっかくですから、ノア抜きでやってみたらいいんじゃないですか？　こっちはレベル面で上回っているけど、連携や実戦ならたぶん『紅の剣』が優勢だと思いますし」*
 
 &nbsp;
 
-#### 「代わりにエスアールの旦那が入るとか言わないよな……？」
+#### "You’re not suggesting that SR's husband should join in, right...?"
 
 *「代わりにエスアールの旦那が入るとか言わないよな……？」*
 
 &nbsp;
 
-#### 「入りましょうか？」
+#### "Shall I join?"
 
 *「入りましょうか？」*
 
 &nbsp;
 
-#### 「止めてくださいお願いします」
+#### "Please don’t, I beg you."
 
 *「止めてくださいお願いします」*
 
 &nbsp;
 
-#### 凄い勢いでカルと呼ばれていた男に頭を下げられてしまった。
+#### I was bowed to by the man who was called Carl with such intensity.
 
 *凄い勢いでカルと呼ばれていた男に頭を下げられてしまった。*
 
-#### そんなに拒否されたら、俺泣いちゃうぞ？　……我ながら気持ち悪い。
+#### If you reject me that much, I might just cry, you know? ...I feel a bit pathetic.
 
 *そんなに拒否されたら、俺泣いちゃうぞ？　……我ながら気持ち悪い。*
 
 &nbsp;
 
-#### そんなわけでしばしの休憩をとったあと、俺とノアを除いたＡＳＲの三人対『紅の剣』五人で試合が行われた。
+#### So after a short break, a match was held with three members of ASR excluding me and Noah against five members of "Crimson Sword."
 
 *そんなわけでしばしの休憩をとったあと、俺とノアを除いたＡＳＲの三人対『紅の剣』五人で試合が行われた。*
 
-#### 結果はＡＳＲの負け。セラは二人を相手取っていたのだが、シリーやフェノンを集中的に潰されて敗北。
+#### The result was a loss for ASR. Sera was facing two opponents, but she was focused on taking down Shiri and Phenon and ended up losing.
 
 *結果はＡＳＲの負け。セラは二人を相手取っていたのだが、シリーやフェノンを集中的に潰されて敗北。*
 
 &nbsp;
 
-#### 次に三対三で試合を行ったら、今度はＡＳＲの勝利。
+#### When we had a three-on-three match next, this time ASR won.
 
 *次に三対三で試合を行ったら、今度はＡＳＲの勝利。*
 
 &nbsp;
 
-#### ネスカさんたちに負けたことが悔しかったのか、シリーとフェノンがマジな目つきになっていたのが印象的だった。試合前に「これ以上エスアールさんの顔に泥を塗るわけには行きません！」などと言っていたから、もしかすると自分が負けたということよりも、そっちの方が彼女たちにとって重要だったのかもしれない。
+#### It was impressive to see Shiri and Phenon with serious expressions, perhaps because they were frustrated about losing to Neska and the others. Before the match, they had said, "We can't let SR's face get any more mud on it!" So it might have been more important to them not to tarnish my reputation than the fact that they lost.
 
 *ネスカさんたちに負けたことが悔しかったのか、シリーとフェノンがマジな目つきになっていたのが印象的だった。試合前に「これ以上エスアールさんの顔に泥を塗るわけには行きません！」などと言っていたから、もしかすると自分が負けたということよりも、そっちの方が彼女たちにとって重要だったのかもしれない。*
 
 &nbsp;
 
-#### 嬉しいか嬉しくないかで問われたら、まぁ前者だな。
+#### If asked whether I was happy or not, well, it would be the former.
 
 *嬉しいか嬉しくないかで問われたら、まぁ前者だな。*
 
-#### 俺のことなんか別に気にしなくともいいのだけど。
+#### They don't really need to worry about me.
 
 *俺のことなんか別に気にしなくともいいのだけど。*
 
 &nbsp;
 
-#### その後も俺たちは暗くなるまで和気藹々と模擬戦を続けた。
+#### After that, we continued our friendly mock battles until it got dark.
 
 *その後も俺たちは暗くなるまで和気藹々と模擬戦を続けた。*
 
-#### 最後の方なんかはカルがムキになって「なんとかエスアールの旦那に一撃を浴びせようぜ」と発言し、ニーズ君やギルドマスター、そしてＡＳＲのメンバーをも加えた総勢十一名で俺と試合することに。
+#### In the end, Carl got really into it and said, "Let's somehow land a hit on SR!" and we ended up having a match with a total of eleven people, including Niz-kun, the guild master, and the members of ASR.
 
 *最後の方なんかはカルがムキになって「なんとかエスアールの旦那に一撃を浴びせようぜ」と発言し、ニーズ君やギルドマスター、そしてＡＳＲのメンバーをも加えた総勢十一名で俺と試合することに。*
 
-#### まぁもちろん全て回避しましたけど。
+#### Of course, I dodged everything.
 
 *まぁもちろん全て回避しましたけど。*
 
-#### 俺と君たちとではくぐってきた修羅場の数が違うのだよ、はっはっは！
+#### The number of battles I've been through compared to you all is different, ha ha ha!
 
 *俺と君たちとではくぐってきた修羅場の数が違うのだよ、はっはっは！*
 
 &nbsp;
 
-#### 靴の先っちょにノアの魔法がかすったり、セラの剣が俺の髪の毛数本を散らしたことについてはノーカンということでどうかよろしくお願いします。
+#### Please consider it a non-issue that Noah's magic grazed the tip of my shoe and that Sera's sword scattered a few strands of my hair.
 
 *靴の先っちょにノアの魔法がかすったり、セラの剣が俺の髪の毛数本を散らしたことについてはノーカンということでどうかよろしくお願いします。*
 
@@ -227,39 +227,39 @@
 
 &nbsp;
 
-#### ネスカさんたちとの模擬戦から数日後、俺たちはリンデール王国へと帰国するべく朝から馬車に乗っていた。前日に『紅の剣』や国王陛下、ニーズ君、他にも知り合った人々に挨拶は済ませたし、やり残したことはない。
+#### A few days after the mock battle with Neska and the others, we boarded a carriage in the morning to return to the Kingdom of Lindale. I had already said my goodbyes to "Crimson Sword," His Majesty the King, Niz-kun, and other acquaintances the day before, so there was nothing left undone.
 
 *ネスカさんたちとの模擬戦から数日後、俺たちはリンデール王国へと帰国するべく朝から馬車に乗っていた。前日に『紅の剣』や国王陛下、ニーズ君、他にも知り合った人々に挨拶は済ませたし、やり残したことはない。*
 
 &nbsp;
 
-#### まぁもし忘れ物があったとしても、二度と来ることができないわけじゃないから問題はないだろう。馬車では五日かかってしまったが、俺のステータスで本気を出せばかなり短縮できるはず――いや、さすがにやらないけども。
+#### Well, even if I had forgotten something, it's not like I can't come back again, so it shouldn't be a problem. It took five days by carriage, but with my status, I could probably shorten that significantly if I really tried—though I definitely wouldn't do that.
 
 *まぁもし忘れ物があったとしても、二度と来ることができないわけじゃないから問題はないだろう。馬車では五日かかってしまったが、俺のステータスで本気を出せばかなり短縮できるはず――いや、さすがにやらないけども。*
 
 &nbsp;
 
-#### 名残を惜しむように、俺たちは外の風景に目を向けながら街の中を進んだ。旅行といっても、数ヶ月の期間いたからなぁ……なんだか寂しく感じてしまう。
+#### As if savoring the moment, we progressed through the streets while gazing at the scenery outside. Even though it was just a trip, we had been there for several months... It felt a bit lonely.
 
 *名残を惜しむように、俺たちは外の風景に目を向けながら街の中を進んだ。旅行といっても、数ヶ月の期間いたからなぁ……なんだか寂しく感じてしまう。*
 
 &nbsp;
 
-#### だがそれ以上に、俺はリンデール王国に帰国することを楽しみにしていた。
+#### But more than that, I was looking forward to returning to the Kingdom of Lindale.
 
 *だがそれ以上に、俺はリンデール王国に帰国することを楽しみにしていた。*
 
-#### 増築された新たな家を見るのも楽しみだし、リンデールの王都、街の人々、探索者の知り合いたちや、迅雷の軌跡たちに会うのも久しぶりだ。お互いに積もる話もあるだろう。
+#### I was excited to see the newly expanded house, the capital of Lindale, the townspeople, my acquaintances among the explorers, and the Thunderbolt Trails. We surely had a lot to catch up on.
 
 *増築された新たな家を見るのも楽しみだし、リンデールの王都、街の人々、探索者の知り合いたちや、迅雷の軌跡たちに会うのも久しぶりだ。お互いに積もる話もあるだろう。*
 
 &nbsp;
 
-#### 昔の俺に「将来こんなことになるんだぞ」って説明しても、きっと鼻で笑われるだろうな。
+#### If I were to explain to my past self, "This is what your future will be like," I would probably just be laughed at.
 
 *昔の俺に「将来こんなことになるんだぞ」って説明しても、きっと鼻で笑われるだろうな。*
 
-#### そもそもゲームの世界に転生ってバカにしてんのか――って言われそうだ。
+#### I could imagine being told, "Are you making fun of the idea of being reborn in a game world?"
 
 *そもそもゲームの世界に転生ってバカにしてんのか――って言われそうだ。*
 

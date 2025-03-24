@@ -1,4 +1,4 @@
-# Ａ－６２　続・エスアールの人間離れ
+# A-62 Continued: The Inhumanity of the SR
 
 <b>
 
@@ -6,39 +6,39 @@
 
 <b>
 
-パルムール王国、Ｓランクダンジョン。
+In the Kingdom of Palmour, S-rank dungeon.
 
-俺はセラたち四人に見守られながら、この世界の常識で言えば最難関に位置するこのダンジョンの一層から五層をひとりで攻略した。これからボスと楽しくお遊びしようとウキウキな状態である。
-
-<b>
-
-敵の数が多い、マップが広い、休憩を挟んだりしたということもあり、時刻はすでに夜の九時を回っているが、身体の調子は絶好調――そして久しぶりに相対する九尾に、俺の心の高鳴りも最高潮である。
-
-しかし久しぶりだなぁ……九尾戦。
-
-この世界がぶっ壊れて、ノアがレベル上げのためにぽいぽいと出してくれた時以来だ。あの時は複数体と戦っていたし、一対一で戦うのはいったい何年ぶりだろうか。
+While being watched over by Sera and the other three, I single-handedly conquered the first to fifth floors of this dungeon, which is considered the most challenging in this world. I am in a cheerful state, ready to have some fun with the boss.
 
 <b>
 
-「エスアール君なら必要ないと思うけど、緊急帰還が必要な時は声をかけるんだよ」
+There are many enemies, the map is vast, and after taking breaks, it is already past nine o'clock at night, but my physical condition is in perfect shape――and my heart is racing at its peak as I face the nine-tailed fox for the first time in a while.
+
+It’s been a while, hasn’t it…… the battle with the nine-tailed fox.
+
+Since this world was destroyed and Noah casually summoned it for leveling up. Back then, I was fighting multiple foes, and I wonder how many years it has been since I fought one-on-one.
 
 <b>
 
-「お気を付けください」
+"I don't think it's necessary for you, SR-kun, but if you need to return urgently, just call out."
 
 <b>
 
-ニーズ君とネスカさんの二人が、『ボスに挑む』のウィンドウにタッチしようとした俺に声を掛けてくる。だけど言葉とは裏腹に、あまり心配そうな表情はしていなかった。それだけ俺の力を認めてくれたということだろうか。
+"Please be careful."
 
 <b>
 
-「まぁ勝つことは勝ちますよ。ただ、九尾は俺の訓練相手として最適なので、ちょっと遊ぶかもしれませんが」
+As I was about to touch the 'Challenge the Boss' window, Niz and Neska called out to me. However, contrary to their words, they didn't seem particularly worried. Perhaps that means they recognize my strength.
 
 <b>
 
-そんな俺の言葉に、俺の過去を知るノアは「あぁ、そういえばそうだったね」と。
+"Well, I will win, of course. However, the nine-tailed fox is the perfect training partner for me, so I might play around a bit."
 
-そして俺の性格を知っているセラは「ほどほどにな」と苦笑していた。
+<b>
+
+At my words, Noah, who knows my past, said, "Ah, now that you mention it, that was the case."
+
+And Sera, who knows my personality, smiled wryly and said, "Just don't overdo it."
 
 <b>
 
@@ -50,85 +50,83 @@
 
 <b>
 
-というわけで、待ちに待ったボス戦である。
+And so, the long-awaited boss battle begins.
 
-観客の四人には後方に待機してもらって、俺は尻尾を揺らめかせて静かに座っている九尾へと歩み寄って行った。
-
-<b>
-
-この九尾だが、一応Ｓランクダンジョンのボスだけあって中々強い魔物である。よくあるロールプレイングゲームで例えるならば、ベノムが魔王、Ｓランクダンジョンのボスたちが四天王みたいな感じだろうか。六匹いるから六天王か？　語呂が悪いな。
+I had the four spectators wait in the back while I walked up to the nine-tailed fox, which was quietly sitting with its tails swaying.
 
 <b>
 
-魔法防御の高いこの敵に対し有効なのは物理攻撃。
-
-しかし弾幕のように放たれる九尾の魔法によって近づくのは難しい――つまり九尾攻略の正攻法としては、シリーさんのような弓士が最適解であるとテンペストでは言われていた。
+This nine-tailed fox is quite a strong monster, as expected from an S-rank dungeon boss. If I were to compare it to a typical role-playing game, Venom would be the Demon King, and the bosses of S-rank dungeons would be like the Four Heavenly Kings. Since there are six of them, should it be the Six Heavenly Kings? That sounds awkward.
 
 <b>
 
-剣士系職業の『飛空剣』及び『壊理剣』なども遠距離攻撃の手段の一つではあるけど、この攻撃よりも敵の魔法のほうが射程が長い。そして敵の魔法よりも、弓士の射程のほうが長い――というわけで、『九尾には弓』というのはいわば一般常識のようなものなのだ。
+Physical attacks are effective against this enemy with high magical defense.
+
+However, it is difficult to approach due to the barrage of magic unleashed by the nine-tailed fox――in other words, the proper strategy for defeating the nine-tailed fox is said to be archers like Shiri.
 
 <b>
 
-まぁそれは、あくまで『初心者』に対しての常識なんだけどな。
-
-俺を含むテンペストのランカーたちには関係のない話だ。
+Sword-type professions like 'Sky Sword' and 'Destruction Sword' are also one means of long-range attack, but the enemy's magic has a longer range than these attacks. And the archer's range is longer than the enemy's magic――thus, the saying 'Archers are best against the nine-tailed fox' is somewhat common knowledge.
 
 <b>
 
-「さてさて、久しぶりの回避訓練だなぁ九尾君」
+Well, that's just common knowledge for 'beginners.'
+
+It has nothing to do with the ranked players of Tempest, including myself.
 
 <b>
 
-俺が九尾に向かって小走りで駆け寄っていくと、まずは様子見といった様子で九尾が九つの尻尾の先端から魔法を放ってくる。尻尾の数と同じ九つの炎だ。
-
-俺はその攻撃を前に進む速度を上げながら躱していく。
+"Alright, it's been a while since my evasion training, nine-tailed fox."
 
 <b>
 
-「ほいほいっと――まだまだ隙間が大きいぞぉ」
+As I jogged towards the nine-tailed fox, it first fired magic from the tips of its nine tails, seemingly observing me. Nine flames, one for each tail.
+
+I dodged that attack while increasing my speed.
 
 <b>
 
-少し進んだこの場所からなら壊理剣で攻撃を加えることができる――だが、俺はさらに前へと突き進んだ。
-
-俺をようやく脅威とみなしたのか、九尾は威嚇する様に吠えるとさらに魔法を放ってくる――数は先ほどから一気に増加して三倍に――合計二十七の炎だ。
+"Here we go――there's still a big gap, you know."
 
 <b>
 
-俺はその青白い炎の隙間を縫うように駆ける。自分の身体プラス数センチの隙間があるのならば、わざわざ足を止めるまでもない。
+From this spot, I could attack with the Destruction Sword――but I pushed further ahead.
+
+Perhaps finally considering me a threat, the nine-tailed fox growled in intimidation and unleashed more magic――the number increased dramatically to three times――a total of twenty-seven flames.
 
 <b>
 
-「――っと。……これ、こんなに簡単だったっけな……もうちょっと難しくなかったっけ」
+I dashed through the gaps of those bluish-white flames. If there’s a gap of a few centimeters plus my body, there's no need to stop my feet.
 
 <b>
 
-俺は敵の足を白蓮で切りつけて、少々の距離を取る。敵の射程の範囲内ではあるけど、俺にとっては安全地帯だから問題なしだ。
-
-うーん……九尾はＳランクダンジョンのボスでも上位に位置する魔物なんだがなぁ……。
-
-この世界に生まれ変わってからベノムや『月』のパーティとやりあったし、前回戦った時は他のＳランクダンジョンのボスたちとごちゃまぜの状態だったからか、非常にぬるく感じてしまう。
+"――Hmm. Was it this easy……? Wasn't it supposed to be a bit more difficult?"
 
 <b>
 
-リンデール王国のわたあめは元々弱かったからあまり気にならなかったけど……これは本当にイデア様になにかテコ入れしてもらったほうがいいかもしれないなぁ。ベノムも他のランカーもいなくなってしまったこの世界じゃ、俺が心から楽しめるような対戦相手は現在いないわけだし。
+I slashed at the enemy's foot with the White Lotus and took a bit of distance. Although I was within the enemy's range, it was a safe zone for me, so there was no problem.
+
+Hmm…… the nine-tailed fox is one of the upper-tier monsters among S-rank dungeon bosses, but…….
+
+Since being reborn into this world, I’ve fought Venom and the 'Moon' party, and the last time I fought, it was a mix of other S-rank dungeon bosses, so this feels incredibly easy.
+
+I didn't mind the cotton candy from the Lindell Kingdom since it was originally weak…… but maybe it would be best for Lady Idea to make some adjustments. In this world, where Venom and the other ranked players are gone, there are currently no opponents I can truly enjoy battling against.
 
 <b>
 
-今のこの世界の人が育ち切るには、まだまだ時間が掛かりそうだからなぁ。
+It seems it will still take some time for the people of this world to fully grow.
 
 <b>
 
-「まぁ取り敢えず接近戦で回避訓練するか。イデア様が何もしなかったら、完全に無駄な努力になるかもしれないけど」
+"Well, for now, let's do some evasion training in close combat. If Lady Idea does nothing, it might turn out to be a completely futile effort."
 
 <b>
 
-そんな風に独り言をぽつぽつと漏らしながら、俺は回避と軽めの反撃を繰り返す。
+Muttering to myself like this, I continued to evade and lightly counterattack.
 
 <b>
 
-そしてやはり、俺は何の苦労を感じることもなく九尾を倒し終えてしまうのだった。
+And indeed, I ended up defeating the nine-tailed fox without feeling any struggle at all.
 
 <b>
 
