@@ -11,7 +11,7 @@
 
 &nbsp;
 
-#### "This is my last selfish request. SR."
+#### "This is my last selfish request. Esuar."
 
 *「最後の我儘だ。エスアール」*
 

@@ -25,7 +25,7 @@
 
 &nbsp;
 
-#### "SR, you should properly recognize your own worth. What would you have done if the dead in this dungeon did not come back to life?"
+#### "Esuar, you should properly recognize your own worth. What would you have done if the dead in this dungeon did not come back to life?"
 
 *「エスアール、お前は自分の価値を正しく認識すべきだ。万が一このダンジョンでの死者がよみがえらなかったらどうするつもりだった」*
 
@@ -151,13 +151,13 @@
 
 &nbsp;
 
-#### "Did you think about how we would feel if SR had died? You wouldn't say you didn't think about it at all, would you?"
+#### "Did you think about how we would feel if Esuar had died? You wouldn't say you didn't think about it at all, would you?"
 
 *「もしエスアールが死んだとして、残された私たちの気持ちは考えたか？　まさか全く考えていなかったとは言わないだろうな？」*
 
 &nbsp;
 
-#### "SR-san, I'm angry too. Why didn't you consult me even once? If you were troubled, I wanted you to talk to me."
+#### "Esuar-san, I'm angry too. Why didn't you consult me even once? If you were troubled, I wanted you to talk to me."
 
 *「エスアールさん、私も怒っていますよ。なんでひと言も相談してくれなかったんですか。悩んでいたなら、話してほしかったです」*
 
@@ -181,7 +181,7 @@
 
 &nbsp;
 
-#### "Honestly— I thought I knew SR liked dungeons, but I didn't expect it to be to this extent. I was chilled to the bone when I saw the letter from the guild master that arrived this morning."
+#### "Honestly— I thought I knew Esuar liked dungeons, but I didn't expect it to be to this extent. I was chilled to the bone when I saw the letter from the guild master that arrived this morning."
 
 *「まったく――エスアールがダンジョン好きなのは知っていたつもりだが、ここまでとは思わなかったぞ。今朝届いたギルドマスターからの手紙を見て肝が冷えたぞ」*
 
@@ -193,7 +193,7 @@
 
 &nbsp;
 
-#### "It's true. Please take better care of yourself. If SR were to pass away, I would follow after you, you know? Please keep that in mind from now on."
+#### "It's true. Please take better care of yourself. If Esuar were to pass away, I would follow after you, you know? Please keep that in mind from now on."
 
 *「本当です。もっとご自分を大切にしてください。エスアールさんが亡くなったら、私も後を追いますからね？　今度からはそのことを念頭に入れてください」*
 

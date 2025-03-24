@@ -71,7 +71,7 @@
 
 &nbsp;
 
-#### "SR. So, if we change to that profession, we will be able to save Her Highness the Princess?"
+#### "Esuar. So, if we change to that profession, we will be able to save Her Highness the Princess?"
 
 *「エスアール。つまり、私たちがその職業へ転職すれば、王女殿下を救うことができるようになるのか？」*
 
@@ -95,7 +95,7 @@
 
 &nbsp;
 
-#### "Hey, SR. You told us to keep this quiet from His Majesty, right? Just this alone is quite a serious matter, but does that mean there's more?"
+#### "Hey, Esuar. You told us to keep this quiet from His Majesty, right? Just this alone is quite a serious matter, but does that mean there's more?"
 
 *「な、なぁエスアール。陛下たちにも黙っておくように言ったよな？　これだけでもかなりヤバい内容なんだが、それ以上があるってことか？」*
 
@@ -229,7 +229,7 @@
 
 &nbsp;
 
-#### "Guts are unnecessary. I trust SR."
+#### "Guts are unnecessary. I trust Esuar."
 
 *「度胸など必要ない。私はエスアールを信用しているからな」*
 
@@ -241,7 +241,7 @@
 
 &nbsp;
 
-#### "...By the way, did you say SR? Aren't you going to write anything?"
+#### "...By the way, did you say Esuar? Aren't you going to write anything?"
 
 *「……ところで、エスアールっつったか？　お前さんは何も書かないのかよ」*
 
@@ -379,7 +379,7 @@
 
 &nbsp;
 
-#### "Indeed. I finally understand why SR was only leveling up lower jobs. It was necessary."
+#### "Indeed. I finally understand why Esuar was only leveling up lower jobs. It was necessary."
 
 *「うむ。エスアールがなぜ下級職ばかりレベルを上げていたのか、ようやく理由がわかった。必要なことだったのだな」*
 
@@ -407,7 +407,7 @@
 
 &nbsp;
 
-#### "I understand the conditions for changing to derived advanced jobs and the status bonuses. When SR showed us the list of jobs, all the lower jobs were at level 30, so it all adds up."
+#### "I understand the conditions for changing to derived advanced jobs and the status bonuses. When Esuar showed us the list of jobs, all the lower jobs were at level 30, so it all adds up."
 
 *「派生上級職の転職条件と、ステータスボーナスに付いては理解したです。エスアールが職業一覧を見せた時に、下級職のレベルが全て３０でしたし、辻褄も合うです」*
 

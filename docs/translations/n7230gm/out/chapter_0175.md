@@ -75,7 +75,7 @@
 
 &nbsp;
 
-#### "Haah, haah... Thank you. However, I can't believe my level of swordsmanship could be of any help to SR-sama..."
+#### "Haah, haah... Thank you. However, I can't believe my level of swordsmanship could be of any help to Esuar-sama..."
 
 *「はぁっ、はぁっ――ありがとうございます。しかし私程度の剣術がエスアール様のお役にたてるとは思えないのですが……」*
 
@@ -235,7 +235,7 @@
 
 &nbsp;
 
-#### "If possible—I'd like to see SR-sama fight alone. I want to see how you would defeat the opponent I fought."
+#### "If possible—I'd like to see Esuar-sama fight alone. I want to see how you would defeat the opponent I fought."
 
 *「もし可能であれば――なのですが、私はエスアール様が一人で戦っているところを拝見したく思います。自分が戦った相手をエスアール様ならばどのように倒すのか、ぜひとも見てみたいのです」*
 

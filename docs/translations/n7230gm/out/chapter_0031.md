@@ -23,7 +23,7 @@
 
 &nbsp;
 
-#### "Lord SR, please wait a moment here."
+#### "Lord Esuar, please wait a moment here."
 
 *「エスアール殿はこの場で少々お待ちを」*
 
@@ -51,7 +51,7 @@
 
 &nbsp;
 
-#### "Thank you for waiting, Lord SR. I will guide you, so please follow me."
+#### "Thank you for waiting, Lord Esuar. I will guide you, so please follow me."
 
 *「お待たせしましたエスアール様。ご案内しますので、こちらへ」*
 
@@ -117,7 +117,7 @@
 
 &nbsp;
 
-#### "Yes. Princess Fenon wishes to personally thank you, Lord SR."
+#### "Yes. Princess Fenon wishes to personally thank you, Lord Esuar."
 
 *「はい。フェノン王女殿下が、どうしてもエスアール様に直接お礼を言いたいとのことです」*
 
@@ -129,7 +129,7 @@
 
 &nbsp;
 
-#### After smiling at me once, Shiri turned to knock on the door. Then she said, "I have brought Lord SR."
+#### After smiling at me once, Shiri turned to knock on the door. Then she said, "I have brought Lord Esuar."
 
 *シリーさんは一度俺に向けて笑みを浮かべてから、扉のほうを向いてノックをする。そして「エスアール様をお連れしました」と言った。*
 
@@ -345,7 +345,7 @@
 
 &nbsp;
 
-#### "A hero is a brave person. Even knowing that clearing a B-rank dungeon in a short time would be difficult, you worked tirelessly to save my life. That is truly the act of a brave person. You are undoubtedly a hero, Lord SR."
+#### "A hero is a brave person. Even knowing that clearing a B-rank dungeon in a short time would be difficult, you worked tirelessly to save my life. That is truly the act of a brave person. You are undoubtedly a hero, Lord Esuar."
 
 *「勇者とは、勇ましき者。僅かな期間でのＢランクダンジョンの踏破が難しいと知っていたのにもかかわらず、身を粉にして私の命を救った貴方の働きは、まさしく勇ましき者。エスアール様は、間違いなく勇者様です」*
 

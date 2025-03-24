@@ -207,7 +207,7 @@
 
 &nbsp;
 
-#### "I want to go to the dungeon with SR too."
+#### "I want to go to the dungeon with Esuar too."
 
 *「私もエスアールさんと二人でダンジョン行きたいです」*
 

@@ -71,7 +71,7 @@
 
 &nbsp;
 
-#### "Considering the income from SR, it wouldn't be strange if this house were ten times bigger."
+#### "Considering the income from Esuar, it wouldn't be strange if this house were ten times bigger."
 
 *「エスアールの収入から考えると、この家の十倍はあってもおかしくないと思うがな」*
 
@@ -105,7 +105,7 @@
 
 &nbsp;
 
-#### "Hehe, SR will surely get used to it soon."
+#### "Hehe, Esuar will surely get used to it soon."
 
 *「ふふっ、エスアールもじきになれるはずだ」*
 
@@ -163,7 +163,7 @@
 
 &nbsp;
 
-#### "We had the advantage in status. And despite living with a master like SR by our side, losing is disappointing."
+#### "We had the advantage in status. And despite living with a master like Esuar by our side, losing is disappointing."
 
 *「私たちのほうがステータス上は有利だった。そしてエスアールという師匠を傍に置いて生活しているにも関わらず、負けてしまうのは不甲斐ない」*
 

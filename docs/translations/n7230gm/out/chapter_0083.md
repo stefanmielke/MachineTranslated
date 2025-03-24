@@ -33,7 +33,7 @@
 
 &nbsp;
 
-#### Name: SR
+#### Name: Esuar
 
 *名前︰ＳＲ*
 

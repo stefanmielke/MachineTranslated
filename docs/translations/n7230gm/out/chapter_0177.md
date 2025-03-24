@@ -1,7 +1,7 @@
 ###### [Next Chapter](./chapter_0178.md)
 ###### [Previous Chapter](./chapter_0176.md)&nbsp;/&nbsp;
 
-# A-61 The Inhumanity of SR
+# A-61 The Inhumanity of Esuar
 
 ## Ａ－６１　エスアールの人間離れ
 
@@ -231,7 +231,7 @@
 
 &nbsp;
 
-#### "Does SR-kun have eyes on the back of his head? I feel like he avoided that last attack without even looking."
+#### "Does Esuar-kun have eyes on the back of his head? I feel like he avoided that last attack without even looking."
 
 *「エスアール君は頭の後ろに目でも付いているのかい？　今の攻撃なんか、見ていないのに避けていた気がするんだけど」*
 

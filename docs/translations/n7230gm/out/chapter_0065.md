@@ -25,7 +25,7 @@
 
 &nbsp;
 
-#### “Do not be so stiff. Today, I wanted to have a calm discussion with you, Sir SR.”
+#### “Do not be so stiff. Today, I wanted to have a calm discussion with you, Sir Esuar.”
 
 *「そう固くなるでない。今日はエスアール殿と落ち着いて話がしたかったのだ」*
 
@@ -71,7 +71,7 @@
 
 &nbsp;
 
-#### “Since you were summoned to this world, Sir SR— the B-rank dungeon has been conquered, and advanced classes have been discovered. Until then, even the light of hope was vague, you know? Is it true that the one who discovered the advanced class is the Thunderbolt’s Trail?”
+#### “Since you were summoned to this world, Sir Esuar— the B-rank dungeon has been conquered, and advanced classes have been discovered. Until then, even the light of hope was vague, you know? Is it true that the one who discovered the advanced class is the Thunderbolt’s Trail?”
 
 *「エスアール殿がこの世界へ召喚されてから――Ｂランクダンジョンが踏破され、派生上級職が発見された。それまでは希望の光すら曖昧であったというのにだぞ？　迅雷の軌跡が派生上級職の発見者というのは、真か？」*
 
@@ -105,7 +105,7 @@
 
 &nbsp;
 
-#### “Your Majesty, if you apply that kind of pressure, Sir SR won’t be able to respond.”
+#### “Your Majesty, if you apply that kind of pressure, Sir Esuar won’t be able to respond.”
 
 *「陛下。そのように圧力を掛けてしまうと、エスアール殿も返答できません」*
 
@@ -139,7 +139,7 @@
 
 &nbsp;
 
-#### “I understand. I apologize, Sir SR.”
+#### “I understand. I apologize, Sir Esuar.”
 
 *「わかった。すまなかったなエスアール殿」*
 
@@ -263,7 +263,7 @@
 
 &nbsp;
 
-#### “Fufu, the main reason is that you’re with Sir SR. It’s wonderful that she has become more cheerful, but Fenon is a bit too much of a tomboy. Please keep an eye on her.”
+#### “Fufu, the main reason is that you’re with Sir Esuar. It’s wonderful that she has become more cheerful, but Fenon is a bit too much of a tomboy. Please keep an eye on her.”
 
 *「ふふ、一番はエスアール殿と一緒だからだろう。元気になったのは喜ばしいことだが、フェノンは少々お転婆が過ぎる。気にかけてやってくれ」*
 
@@ -275,7 +275,7 @@
 
 &nbsp;
 
-#### “Oh? That girl is doing combat training? …Well, if Sir SR and Sera Bernot are there, I suppose there’s no need to worry.”
+#### “Oh? That girl is doing combat training? …Well, if Sir Esuar and Sera Bernot are there, I suppose there’s no need to worry.”
 
 *「ほぅ、あの娘が戦闘訓練か。……まぁエスアール殿やセラ＝ベルノートがいるのであれば、心配はなかろう」*
 
@@ -305,7 +305,7 @@
 
 &nbsp;
 
-#### “If Sir SR and Sera Bernot are going, then Fenon will probably go too.”
+#### “If Sir Esuar and Sera Bernot are going, then Fenon will probably go too.”
 
 *「エスアール殿やセラ＝ベルノートが行くのなら、フェノンも行くだろうな」*
 
@@ -341,7 +341,7 @@
 
 &nbsp;
 
-#### “Fufu, that’s fine. However, judging by your reaction, it seems Fenon has successfully captured Sir SR’s heart. I entrust my daughter to you.”
+#### “Fufu, that’s fine. However, judging by your reaction, it seems Fenon has successfully captured Sir Esuar’s heart. I entrust my daughter to you.”
 
 *「ふふ、かまわぬよ。ただ、その反応を見るにフェノンは無事にエスアール殿の心を掴んだようだな。娘をよろしく頼むぞ」*
 
@@ -437,7 +437,7 @@
 
 &nbsp;
 
-#### “Sir SR is indeed terrifying… Or could it be that Fenon has hidden talents—?”
+#### “Sir Esuar is indeed terrifying… Or could it be that Fenon has hidden talents—?”
 
 *「エスアール殿はやはり恐ろしいですな……。それともまさか、フェノン様に隠れた才能が――？」*
 

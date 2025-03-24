@@ -229,7 +229,7 @@
 
 &nbsp;
 
-#### "By the way, SR. I received reports from those who saw the match saying you were at a 'non-human level'... How about it? Do you think you can conquer our country's dungeons?"
+#### "By the way, Esuar. I received reports from those who saw the match saying you were at a 'non-human level'... How about it? Do you think you can conquer our country's dungeons?"
 
 *「そういやエスアール。例の試合を見た奴らから『人外レベル』という報告を受けていたが……どうだ？　ウチの国のダンジョンは攻略できそうか？」*
 

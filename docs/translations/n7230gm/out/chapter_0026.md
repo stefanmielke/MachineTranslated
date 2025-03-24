@@ -75,7 +75,7 @@
 
 &nbsp;
 
-#### "SR! Show me your arm right now!"
+#### "Esuar! Show me your arm right now!"
 
 *「エスアールっ！　すぐに腕を見せろっ！」*
 
@@ -189,7 +189,7 @@
 
 &nbsp;
 
-#### "I felt like my heart was about to stop multiple times. SR's dodging is not something you can watch calmly."
+#### "I felt like my heart was about to stop multiple times. Esuar's dodging is not something you can watch calmly."
 
 *「心臓なら何度も止まりそうでしたです。エスアールの避け方は平常心で見れるモノではないですよ」*
 
@@ -363,7 +363,7 @@
 
 &nbsp;
 
-#### "You’ve done well, SR, Sera Bernot, and Thunderbolt's Trail. I’m sorry to bother you while you’re tired, but I need you to come to the royal castle right away."
+#### "You’ve done well, Esuar, Sera Bernot, and Thunderbolt's Trail. I’m sorry to bother you while you’re tired, but I need you to come to the royal castle right away."
 
 *「よくやってくれた、エスアール殿、セラ＝ベルノート、そして迅雷の軌跡よ。疲れているところ悪いが、早速王城へと来てほしい」*
 

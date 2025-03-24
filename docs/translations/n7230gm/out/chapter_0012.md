@@ -443,7 +443,7 @@
 
 &nbsp;
 
-#### Name: SR
+#### Name: Esuar
 
 *名前︰ＳＲ*
 
@@ -509,7 +509,7 @@
 
 &nbsp;
 
-#### "…SR just changed to a brawler a moment ago, right? Is it safe?"
+#### "…Esuar just changed to a brawler a moment ago, right? Is it safe?"
 
 *「……エスアールは先程、拳闘士に転職したばかりだろう。危なくないのか？」*
 

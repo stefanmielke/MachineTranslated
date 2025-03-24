@@ -83,7 +83,7 @@
 
 &nbsp;
 
-#### “L-look, SR! Some text has appeared!”
+#### “L-look, Esuar! Some text has appeared!”
 
 *「み、見てくれＳＲ！　文字が出てきたぞ！」*
 
@@ -211,7 +211,7 @@
 
 &nbsp;
 
-#### “It might be hard for Phenon and Shiri to say it, and Noah would probably prioritize SR, so if I don’t say it, SR and the others will likely keep pushing forward, right? If it’s the SR I know, they’d probably say something like, ‘Let’s go look for the boss!’”
+#### “It might be hard for Phenon and Shiri to say it, and Noah would probably prioritize Esuar, so if I don’t say it, Esuar and the others will likely keep pushing forward, right? If it’s the Esuar I know, they’d probably say something like, ‘Let’s go look for the boss!’”
 
 *「フェノンやシリーは言いづらいだろうし、ノアもエスアールを優先しそうだから言わないだろうし、私が言わないとエスアールたちは突き進み続けるだろう？　私の知るエスアールなら『これからボスを探しに行こう！』とか言い出しそうだし」*
 
@@ -229,13 +229,13 @@
 
 &nbsp;
 
-#### “Sera, if you say here, ‘I want to defeat the boss too!’ SR’s favorability will skyrocket!”
+#### “Sera, if you say here, ‘I want to defeat the boss too!’ Esuar’s favorability will skyrocket!”
 
 *「セラさん、ここで『私も一緒にボスを倒したい！』なんて言ったらエスアールさんの好感度が爆上がりっスよ！」*
 
 &nbsp;
 
-#### “Yes! SR, I want to defeat the boss too!”
+#### “Yes! Esuar, I want to defeat the boss too!”
 
 *「はい！　エスアールさん、私もボスが倒したいです！」*
 

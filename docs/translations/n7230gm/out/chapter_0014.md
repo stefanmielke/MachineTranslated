@@ -75,7 +75,7 @@
 
 &nbsp;
 
-#### "You were with the escort of SR, right? Tell me about it."
+#### "You were with the escort of Esuar, right? Tell me about it."
 
 *「エスアール様の護衛に付いていたんでしょう？　お話を聞かせてよ」*
 
@@ -187,7 +187,7 @@
 
 &nbsp;
 
-#### Apparently, they told Phenon that SR is a hero. It was necessary to give her hope, they explained.
+#### Apparently, they told Phenon that Esuar is a hero. It was necessary to give her hope, they explained.
 
 *なんでも、フェノンにはエスアールのことを勇者であると伝えているらしい。彼女に、希望を持たせるためには必要なことだと――そう説明を受けた。*
 
@@ -211,7 +211,7 @@
 
 &nbsp;
 
-#### "Hey, can I stop calling him 'hero' for a moment? I’ve been calling him SR or you, so it feels a bit awkward."
+#### "Hey, can I stop calling him 'hero' for a moment? I’ve been calling him Esuar or you, so it feels a bit awkward."
 
 *「なぁ、その前に『勇者』と呼ぶのを止めてもいいか？　ずっとエスアールとか、貴様と呼んでいたから、どうもむず痒くてな」*
 
@@ -229,7 +229,7 @@
 
 &nbsp;
 
-#### "You know, right? That SR isn’t really a hero."
+#### "You know, right? That Esuar isn’t really a hero."
 
 *「知っているんだろう？　エスアールが勇者じゃないことぐらい」*
 
@@ -253,7 +253,7 @@
 
 &nbsp;
 
-#### Then, I told her about my encounter with SR, the mock battle, what he accomplished, and how he told me he 'disliked' me—all of it.
+#### Then, I told her about my encounter with Esuar, the mock battle, what he accomplished, and how he told me he 'disliked' me—all of it.
 
 *それから、私はエスアールとの出会い、模擬戦、彼の成したこと、そして『嫌いだ』と言われたこと――全てを話した。*
 
@@ -271,7 +271,7 @@
 
 *だが彼が別れ際に話した『強くなる方法』とやらのことは、話さなかった。*
 
-#### If what SR said about becoming stronger is true, then it’s probably not through legitimate means. I had a guilty feeling in my heart, and that made me hesitate to share it with her.
+#### If what Esuar said about becoming stronger is true, then it’s probably not through legitimate means. I had a guilty feeling in my heart, and that made me hesitate to share it with her.
 
 *もしエスアールの言う通り強くなれるとしたら、それはきっと正規の手段ではないと思う。どこか後ろめたい気持ちが心にあり、それが彼女に話すことを躊躇わせた。*
 
@@ -283,7 +283,7 @@
 
 &nbsp;
 
-#### "Do you think SR has amazing talent?"
+#### "Do you think Esuar has amazing talent?"
 
 *「セラは、勇者様にすごい才能があると思ったの？」*
 
@@ -313,7 +313,7 @@
 
 &nbsp;
 
-#### "I don’t know about talent, but… after hearing your story about SR, don’t you think he’s strong because he’s working hard?"
+#### "I don’t know about talent, but… after hearing your story about Esuar, don’t you think he’s strong because he’s working hard?"
 
 *「才能のことはわからないけど……でも、今のセラの話を聞いたら、勇者様が強いのは、頑張ってるからじゃないの？」*
 
@@ -331,7 +331,7 @@
 
 &nbsp;
 
-#### SR’s efforts… huh.
+#### Esuar’s efforts… huh.
 
 *エスアールのした努力……か。*
 
@@ -359,11 +359,11 @@
 
 &nbsp;
 
-#### Hearing her words, I felt relieved. I understood that SR was working to save the princess.
+#### Hearing her words, I felt relieved. I understood that Esuar was working to save the princess.
 
 *彼女の言葉を聞いて、私は安堵した。エスアールが、王女を救うために動いているのだとわかったからだ。*
 
-#### Even if I and the Thunderbolt’s trail couldn’t conquer it, surely SR could handle a B-rank dungeon while humming a tune. That’s what I thought.
+#### Even if I and the Thunderbolt’s trail couldn’t conquer it, surely Esuar could handle a B-rank dungeon while humming a tune. That’s what I thought.
 
 *私や迅雷の軌跡が踏破できなくとも、確かにあのエスアールなら、Ｂランクダンジョンなど、鼻歌を歌いながらやってくれそうだ。そう思ったから。*
 
@@ -373,7 +373,7 @@
 
 *だが、話の脈絡がわからない。*
 
-#### Wasn’t it about SR’s efforts? Just as I was about to ask Phenon about her intentions, her mouth moved again. It was an unexpected statement.
+#### Wasn’t it about Esuar’s efforts? Just as I was about to ask Phenon about her intentions, her mouth moved again. It was an unexpected statement.
 
 *エスアールの努力の話ではなかったか？　そう思い、フェノンに意図を問いかけようとしたところで、彼女の口が再び動く。それは、私の予想外の言葉だった。*
 
@@ -425,7 +425,7 @@
 
 &nbsp;
 
-#### In a dungeon filled with monsters, where he could be attacked at any moment, SR spent his days from morning till night. Since he was going solo, he couldn’t even afford to relax by having a lookout.
+#### In a dungeon filled with monsters, where he could be attacked at any moment, Esuar spent his days from morning till night. Since he was going solo, he couldn’t even afford to relax by having a lookout.
 
 *魔物のいる、いつ襲われてもおかしくないダンジョンで、エスアールは朝から晩まで過ごしていた。ソロで潜っているから、見張りを置いて気を休めることもできない。*
 
@@ -589,7 +589,7 @@
 
 *最初は強がりとも思った。だけど、長年の付き合いだからわかる。*
 
-#### She wasn’t afraid of death right now. She looked a bit different from her expression before SR came.
+#### She wasn’t afraid of death right now. She looked a bit different from her expression before Esuar came.
 
 *彼女は今、死に怯えていない。エスアールが来る前の表情とは、少し違うように見えるのだ。*
 

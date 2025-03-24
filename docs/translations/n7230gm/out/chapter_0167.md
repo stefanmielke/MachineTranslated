@@ -39,7 +39,7 @@
 
 &nbsp;
 
-#### "By the way, in the world where you were, SR-san, there are vehicles that don't require horses, right? I've heard they don't even need magic stones."
+#### "By the way, in the world where you were, Esuar-san, there are vehicles that don't require horses, right? I've heard they don't even need magic stones."
 
 *「そういえばエスアールさんのいた世界では、馬を必要としない乗り物があるのですよね？　なんでも魔石すらも必要としないとか」*
 
@@ -219,7 +219,7 @@
 
 &nbsp;
 
-#### "Hey, you guys should also work hard to aim for ASR's SR! It's a good thing to have your goal nearby! After all, my daughter grew up aiming for my back!"
+#### "Hey, you guys should also work hard to aim for ASR's Esuar! It's a good thing to have your goal nearby! After all, my daughter grew up aiming for my back!"
 
 *「兄ちゃんたちもＡＳＲのエスアールを目指して頑張りな！　目標が近くにいるってのはいいことだぞ！　なにしろウチの娘も俺の背中を目指して育ったからな！」*
 

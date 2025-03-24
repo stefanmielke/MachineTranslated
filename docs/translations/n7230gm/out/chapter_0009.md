@@ -37,13 +37,13 @@
 
 &nbsp;
 
-#### "Hahaha! Regulus, who was said to be the best in the kingdom, is saying that. Truly, what a surprise that Sir SR is. To think he hadn't chosen a profession until yesterday."
+#### "Hahaha! Regulus, who was said to be the best in the kingdom, is saying that. Truly, what a surprise that Sir Esuar is. To think he hadn't chosen a profession until yesterday."
 
 *『はっはっは！　王国随一とまで言われていたレグルスが、そこまで言うか。まったく、とんでもないなエスアール殿は。これで昨日まで職業未選択だったとは』*
 
 &nbsp;
 
-#### "I was suspicious as well and asked to see his status after the mock battle—but as he said, he was a level 5 swordsman. SR may not have high physical abilities, but he overwhelmed with skill alone."
+#### "I was suspicious as well and asked to see his status after the mock battle—but as he said, he was a level 5 swordsman. Esuar may not have high physical abilities, but he overwhelmed with skill alone."
 
 *『私も不審に思い、模擬戦の後でステータスを見せてもらいましたが――本人が言う通り、剣士のレベル５でした。エスアールは高い身体能力はありませんが、技量のみで圧倒しておりました』*
 
@@ -55,7 +55,7 @@
 
 &nbsp;
 
-#### "That's right. SR is the hope of Her Highness the Princess—and by extension, our hope for Her Highness. We can't push him too hard, but let's provide support as much as possible."
+#### "That's right. Esuar is the hope of Her Highness the Princess—and by extension, our hope for Her Highness. We can't push him too hard, but let's provide support as much as possible."
 
 *『そうでしょう。エスアールは王女殿下の希望――ひいては、王女殿下を想う我々の希望です。無茶はさせられませんが、可能な限り支援をすることとしましょう』*
 
@@ -185,7 +185,7 @@
 
 &nbsp;
 
-#### "First of all, let me address what SR is most concerned about. For now, permission to enter E-rank dungeons has been granted even for lower classes. Show this paper at the reception when your status is checked."
+#### "First of all, let me address what Esuar is most concerned about. For now, permission to enter E-rank dungeons has been granted even for lower classes. Show this paper at the reception when your status is checked."
 
 *「とりあえずエスアールが一番気にしていることから言うぞ。ひとまず、下級職でもＥランクダンジョン以上への入場許可が下りた。ステータスの確認をされる時に、この紙を受付に見せろ」*
 
@@ -267,7 +267,7 @@
 
 &nbsp;
 
-#### "Indeed, SR will have a guard assigned."
+#### "Indeed, Esuar will have a guard assigned."
 
 *「やはりエスアールには、護衛が付くことになった」*
 
@@ -307,7 +307,7 @@
 
 &nbsp;
 
-#### "SR wants to save the princess, right? If something were to happen to you, what would happen to the princess?"
+#### "Esuar wants to save the princess, right? If something were to happen to you, what would happen to the princess?"
 
 *「エスアールは、王女様を救いたいんだろう？　もしお前に何かあったら、王女様はどうなる？」*
 
@@ -365,7 +365,7 @@
 
 &nbsp;
 
-#### "Then a guard would be a hindrance—so said Lord Dino. Also, this is my opinion, but I believe SR can handle the shallow layers of a B-rank dungeon in his current state."
+#### "Then a guard would be a hindrance—so said Lord Dino. Also, this is my opinion, but I believe Esuar can handle the shallow layers of a B-rank dungeon in his current state."
 
 *「だったら護衛は足枷になるだろう――と、ディーノ様が言っていた。あと、これは俺の意見だがな。エスアールは今の状態でも、Ｂランクダンジョンの浅い階層なら、問題ないと思っている」*
 

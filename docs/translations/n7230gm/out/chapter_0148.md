@@ -33,7 +33,7 @@
 
 &nbsp;
 
-#### Name: SR
+#### Name: Esuar
 
 *名前︰ＳＲ*
 
@@ -113,7 +113,7 @@
 
 &nbsp;
 
-#### I've already told the members of Thunderbolt's trajectory and my party that I would conquer the dungeon as soon as I reached level 100, and yesterday, I also informed Dino through Fenon that "SR will conquer the S-rank dungeon alone."
+#### I've already told the members of Thunderbolt's trajectory and my party that I would conquer the dungeon as soon as I reached level 100, and yesterday, I also informed Dino through Fenon that "Esuar will conquer the S-rank dungeon alone."
 
 *すでに迅雷の軌跡やパーティメンバーたちには『レベルが１００になり次第踏破する』という話をしている上に、昨日、フェノン経由でディーノさんにも『エスアールがＳランクダンジョンを一人で踏破する』という話をしている。*
 
@@ -189,7 +189,7 @@
 
 &nbsp;
 
-#### "……H-Hey, Port. Quickly――quickly contact Lord Dino! SR of ASR has conquered the S-rank dungeon alone! This is incredible!"
+#### "……H-Hey, Port. Quickly――quickly contact Lord Dino! Esuar of ASR has conquered the S-rank dungeon alone! This is incredible!"
 
 *「…………お、おいポルト。すぐに――すぐにディーノ様へと連絡を！　ＡＳＲのエスアール殿が、Ｓランクダンジョンを一人で踏破された！　これはとんでもないことだぞっ！」*
 
@@ -205,7 +205,7 @@
 
 &nbsp;
 
-#### "Oh! Finally, huh! We also showed the card before SR returned. There shouldn't be any suspicion that 'actually, we went in together.'"
+#### "Oh! Finally, huh! We also showed the card before Esuar returned. There shouldn't be any suspicion that 'actually, we went in together.'"
 
 *「おぉっ！　ついに、だな！　私たちもエスアールが帰ってくる前にカードを見せておいたからな。『実は一緒に入っていた』などと疑われることもあるまい」*
 
@@ -245,7 +245,7 @@
 
 &nbsp;
 
-#### "You must be tired, SR. For now, let's head home――you all, we are returning to the royal capital. If you have business with SR, please do it after tomorrow."
+#### "You must be tired, Esuar. For now, let's head home――you all, we are returning to the royal capital. If you have business with Esuar, please do it after tomorrow."
 
 *「お疲れですよね、エスアールさん。ひとまず今日は帰りましょう――貴方たち、私たちは王都へ帰ります。もしエスアールさんに用事があるのであれば、明日以降になさい」*
 

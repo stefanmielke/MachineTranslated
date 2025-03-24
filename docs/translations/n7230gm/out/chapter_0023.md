@@ -75,7 +75,7 @@
 
 &nbsp;
 
-#### Name: SR
+#### Name: Esuar
 
 *名前︰ＳＲ*
 
@@ -237,7 +237,7 @@
 
 &nbsp;
 
-#### "Hey! SR! You're overdoing it!"
+#### "Hey! Esuar! You're overdoing it!"
 
 *「おい！　エスアール！　やりすぎだ！」*
 
@@ -305,7 +305,7 @@
 
 &nbsp;
 
-#### "I told you! SR is strong!"
+#### "I told you! Esuar is strong!"
 
 *「だから言っただろう！　エスアールは強いんだ！」*
 
@@ -443,7 +443,7 @@
 
 &nbsp;
 
-#### "Haah, haah—SR, are you really okay?"
+#### "Haah, haah—Esuar, are you really okay?"
 
 *「はぁ、はぁ――エスアールは、本当に大丈夫なの？」*
 

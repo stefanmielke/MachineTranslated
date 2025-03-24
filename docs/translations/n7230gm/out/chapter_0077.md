@@ -127,7 +127,7 @@
 
 &nbsp;
 
-#### "I almost forgot in the heat of the match. I got a message from Shin last night; it seems he’s coming to Reinaas soon. He asked me to let SR and the others know."
+#### "I almost forgot in the heat of the match. I got a message from Shin last night; it seems he’s coming to Reinaas soon. He asked me to let Esuar and the others know."
 
 *「試合に夢中で忘れるところだった。昨晩シン君から通信が入ってね、近々レーナスに来るらしいよ。それをエスアール君たちに伝えてほしいと頼まれてたんだ」*
 
@@ -265,7 +265,7 @@
 
 &nbsp;
 
-#### "Hehe, you can't beat SR-san."
+#### "Hehe, you can't beat Esuar-san."
 
 *「ふふ、エスアールさんには負けますよ」*
 
@@ -315,7 +315,7 @@
 
 &nbsp;
 
-#### "The Thunderbolt Brigade has a sense of duty, huh... Ah, you don't need to worry about SR."
+#### "The Thunderbolt Brigade has a sense of duty, huh... Ah, you don't need to worry about Esuar."
 
 *「迅雷の軌跡も、律儀なところがあるんだな……あぁ、エスアールは気にしなくていいぞ」*
 
@@ -345,7 +345,7 @@
 
 &nbsp;
 
-#### "Don't sulk, SR."
+#### "Don't sulk, Esuar."
 
 *「そう拗ねるなエスアール」*
 

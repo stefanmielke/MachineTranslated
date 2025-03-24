@@ -59,7 +59,7 @@
 
 &nbsp;
 
-#### "We'll leave everything in our inventory with SR. It would be a waste if it disappeared."
+#### "We'll leave everything in our inventory with Esuar. It would be a waste if it disappeared."
 
 *「私たちのインベントリの中身は全てエスアールに預けておくです。消えたら勿体ないですからね」*
 
@@ -123,7 +123,7 @@
 
 &nbsp;
 
-#### "We're in the same party, so feel free to use all of my things, SR."
+#### "We're in the same party, so feel free to use all of my things, Esuar."
 
 *「同じパーティなのだし、私のモノは全てエスアールが使ってくれて構わないぞ」*
 
@@ -175,7 +175,7 @@
 
 &nbsp;
 
-#### "Ah, the three of us—me, Shin, and Suzu—went to speak directly with His Majesty. We told him, 'Don't interfere with SR.' Was that unnecessary?"
+#### "Ah, the three of us—me, Shin, and Suzu—went to speak directly with His Majesty. We told him, 'Don't interfere with Esuar.' Was that unnecessary?"
 
 *「あぁ、私とシンとスズの３人で陛下に直談判してきた。『エスアールの邪魔をするな』とな。必要なかったか？」*
 
@@ -187,7 +187,7 @@
 
 &nbsp;
 
-#### "At least for me, Shin and Suzu now have tremendous authority. Clearing an A-rank dungeon is quite an achievement, you know? It might not be a big deal for SR, but..."
+#### "At least for me, Shin and Suzu now have tremendous authority. Clearing an A-rank dungeon is quite an achievement, you know? It might not be a big deal for Esuar, but..."
 
 *「私はともかく、シンとスズはいまや凄まじい発言権を持っているからな。Ａランクダンジョンの踏破はそれだけ凄いことなんだぞ？　エスアールにとっては大したことないかもしれないが」*
 
@@ -293,7 +293,7 @@
 
 &nbsp;
 
-#### "SR, don't do anything dangerous either."
+#### "Esuar, don't do anything dangerous either."
 
 *「エスアールも危険な真似はするなよ」*
 
@@ -427,7 +427,7 @@
 
 &nbsp;
 
-#### "Nice to meet you, SR. I'm what you call a 'brat,' the one who summoned you to this world—and the god who created this world."
+#### "Nice to meet you, Esuar. I'm what you call a 'brat,' the one who summoned you to this world—and the god who created this world."
 
 *「どうも初めまして、ＳＲ君。僕は君の言うところの『クソガキ』で、君をこの世界に呼び出した張本人であり――この世界を創造した神だ」*
 

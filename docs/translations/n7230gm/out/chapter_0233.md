@@ -35,13 +35,13 @@
 
 &nbsp;
 
-#### "SR-san, I can't hold back my excitement anymore! Can I go now?"
+#### "Esuar-san, I can't hold back my excitement anymore! Can I go now?"
 
 *「ＳＲさん、私はもううずうずが抑えられねぇッス。もう行っていいっスか？」*
 
 &nbsp;
 
-#### "Of course not. Everyone is waiting outside—besides, I want to explore this world quickly too... and SR-san is holding back like crazy."
+#### "Of course not. Everyone is waiting outside—besides, I want to explore this world quickly too... and Esuar-san is holding back like crazy."
 
 *「ダメに決まってるでしょ。外でみんなが待ってるんだから――それにボクだって早くこの世界を見て回りたいのも一緒だし……ＳＲさんだって死ぬほど我慢してるんだから」*
 
@@ -265,7 +265,7 @@
 
 &nbsp;
 
-#### "Okay, SR-san, let’s decide who will fight first with rock-paper-scissors!"
+#### "Okay, Esuar-san, let’s decide who will fight first with rock-paper-scissors!"
 
 *「じゃあＳＲさん、誰が一番に戦うかじゃんけんで決めるっスよ！」*
 
@@ -277,7 +277,7 @@
 
 &nbsp;
 
-#### "If I win, I'll give it to SR-san. But I’ll participate since it would be annoying to let Mika go first."
+#### "If I win, I'll give it to Esuar-san. But I’ll participate since it would be annoying to let Mika go first."
 
 *「僕が勝ったらＳＲさんに譲ります。だけど、ミカに先を越されるのは癪なので参加しますね」*
 

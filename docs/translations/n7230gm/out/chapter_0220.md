@@ -43,7 +43,7 @@
 
 &nbsp;
 
-#### "What's wrong, SR? If you have a problem, let me know."
+#### "What's wrong, Esuar? If you have a problem, let me know."
 
 *「どうしたんだエスアール、悩みがあるなら聞かせてくれ」*
 
@@ -241,7 +241,7 @@
 
 &nbsp;
 
-#### "We successfully conquered it, SR! We took a bit longer because these folks asked for our guidance."
+#### "We successfully conquered it, Esuar! We took a bit longer because these folks asked for our guidance."
 
 *「無事、攻略してきましたよＳＲさん。この方たちに教えを請われましたので、少々時間がかかってしまいました」*
 

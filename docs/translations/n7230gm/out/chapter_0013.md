@@ -33,7 +33,7 @@
 
 &nbsp;
 
-#### "First of all, this is a penalty for me. You don't need to thank me, SR."
+#### "First of all, this is a penalty for me. You don't need to thank me, Esuar."
 
 *「そもそも、これは私に対しての罰則だ。エスアールは礼を言わなくていい」*
 
@@ -291,7 +291,7 @@
 
 &nbsp;
 
-#### "Are you going to the dungeon again from the morning tomorrow, SR?"
+#### "Are you going to the dungeon again from the morning tomorrow, Esuar?"
 
 *「エスアールは、明日も朝からダンジョンか？」*
 
@@ -321,7 +321,7 @@
 
 &nbsp;
 
-#### "I see. If it's you, SR, you might actually be able to conquer the C-rank dungeon."
+#### "I see. If it's you, Esuar, you might actually be able to conquer the C-rank dungeon."
 
 *「そうか。エスアールなら、案外Ｃランクダンジョンも踏破できてしまうかもしれないな」*
 
@@ -495,7 +495,7 @@
 
 &nbsp;
 
-#### Name: SR
+#### Name: Esuar
 
 *名前︰ＳＲ*
 

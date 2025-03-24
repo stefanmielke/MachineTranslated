@@ -109,7 +109,7 @@
 
 &nbsp;
 
-#### “Y-yes! This is a perfect Yoshi Yoshi with no flaws! I do wonder if it’s appropriate for a mere maid like me to receive such a reward from you, SR-san, but I thought it would be rude to forfeit my rights as the victor, and I didn’t take the targets of Sera-san and Phenon-sama just to be petted, it was truly just a coincidence!”
+#### “Y-yes! This is a perfect Yoshi Yoshi with no flaws! I do wonder if it’s appropriate for a mere maid like me to receive such a reward from you, Esuar-san, but I thought it would be rude to forfeit my rights as the victor, and I didn’t take the targets of Sera-san and Phenon-sama just to be petted, it was truly just a coincidence!”
 
 *「は、はいっ！　非の打ちどころがなく完璧なヨシヨシです！　そもそも私のような一介のメイドがエスアールさんにこのようなご褒美をいただいて良いものかと疑問ではありますが勝者としての権利を放棄するのも失礼にあたると考えた次第でございまして別にヨシヨシしてもらいたくてセラさんやフェノン様の標的を横取りしたとかそういうこともなくあれは本当にたまたまでしたので！」*
 
@@ -125,7 +125,7 @@
 
 &nbsp;
 
-#### “I do feel a bit sorry for the two of you who are mutually in love, but this is a competition, so you’ll have to accept it! I won! I worked hard to capture a lot! So this is my rightful—no, it’s almost a duty! And you have the right to pet my head, SR-san! Congratulations!”
+#### “I do feel a bit sorry for the two of you who are mutually in love, but this is a competition, so you’ll have to accept it! I won! I worked hard to capture a lot! So this is my rightful—no, it’s almost a duty! And you have the right to pet my head, Esuar-san! Congratulations!”
 
 *「両思いであるお二方には申し訳ない気持ちもありますがこれは勝負なので仕方がないと割り切ってもらうしかありません！　私、勝ちましたので！　頑張っていっぱい捕まえましたので！　だからこれは当然の権利――いえ、もはや義務と言ってしまってもいいでしょう！　そしてエスアールさんには私の頭を撫でる権利があるのです！　おめでとうございます！」*
 

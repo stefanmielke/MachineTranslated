@@ -175,7 +175,7 @@
 
 &nbsp;
 
-#### Name: SR
+#### Name: Esuar
 
 *名前︰ＳＲ*
 
@@ -223,7 +223,7 @@
 
 &nbsp;
 
-#### My name is SR, and that remains the same. Additionally, an age category has been added that wasn’t displayed in the game. It seems I’ve rejuvenated by fifteen years. I’m too happy.
+#### My name is Esuar, and that remains the same. Additionally, an age category has been added that wasn’t displayed in the game. It seems I’ve rejuvenated by fifteen years. I’m too happy.
 
 *名前はＳＲ、これはそのままだ。そしてゲームの世界では表示されていなかった、年齢の項目が追加されている。１５年分若返っているみたいだ。嬉しすぎる。*
 
@@ -275,7 +275,7 @@
 
 &nbsp;
 
-#### “Please do that if possible. My name is SR. Besides, I’m not a Brave One…”
+#### “Please do that if possible. My name is Esuar. Besides, I’m not a Brave One…”
 
 *「できればそうしてください。名前はＳＲです。そもそも、俺は勇者じゃないんですが……」*
 
@@ -287,7 +287,7 @@
 
 &nbsp;
 
-#### “My name is Shiri. You’re quite the jokester, aren’t you, SR-sama?”
+#### “My name is Shiri. You’re quite the jokester, aren’t you, Esuar-sama?”
 
 *「私はシリーと申します。エスアール様はご冗談もおっしゃるのですね」*
 
@@ -627,7 +627,7 @@
 
 &nbsp;
 
-#### “I apologize for the wait, SR-sama. If you’re feeling well, I will guide you to His Majesty.”
+#### “I apologize for the wait, Esuar-sama. If you’re feeling well, I will guide you to His Majesty.”
 
 *「お待たせしました、エスアール様。ご気分がよろしければ陛下のもとへご案内いたします」*
 

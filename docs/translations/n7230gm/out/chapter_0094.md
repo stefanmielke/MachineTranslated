@@ -109,7 +109,7 @@
 
 &nbsp;
 
-#### "…? SR, don't you look a bit pale? Is this perhaps a dungeon you don't know about?"
+#### "…? Esuar, don't you look a bit pale? Is this perhaps a dungeon you don't know about?"
 
 *「……？　エスアール、顔色が悪くないか？　もしかして貴方の知らないダンジョンだったのか？」*
 

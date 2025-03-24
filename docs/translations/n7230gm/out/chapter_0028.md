@@ -97,7 +97,7 @@
 
 &nbsp;
 
-#### "That's right. And since you're an SR, a little rudeness will be forgiven. After all, you saved the princess's life."
+#### "That's right. And since you're an Esuar, a little rudeness will be forgiven. After all, you saved the princess's life."
 
 *「ですです。それにエスアールなら多少無礼でも許されるですよ。なんと言っても王女様の命を救ったですから」*
 
@@ -275,7 +275,7 @@
 
 &nbsp;
 
-#### "Ha, SR-dono, you are a hero who saved Fenon's life! There is no need to be nervous. And Thunderbolt, Sera, you are the same. Overcoming a B-rank dungeon is a historic achievement. Hold your heads high."
+#### "Ha, Esuar-dono, you are a hero who saved Fenon's life! There is no need to be nervous. And Thunderbolt, Sera, you are the same. Overcoming a B-rank dungeon is a historic achievement. Hold your heads high."
 
 *「ふっ、エスアール殿、そなたはフェノンの命を救った英雄なのだぞ？　緊張する必要は無い。そして、迅雷の軌跡、セラよ。そなたたちも同様だ。Ｂランクダンジョンの踏破は、歴史に名を刻む偉業である。胸を張れ」*
 
@@ -353,7 +353,7 @@
 
 &nbsp;
 
-#### "SR-dono. When you were summoned to this world, you said, 'I am not a hero; I am not someone who can meet expectations.'"
+#### "Esuar-dono. When you were summoned to this world, you said, 'I am not a hero; I am not someone who can meet expectations.'"
 
 *「エスアール殿。この世界に召喚された時――そなたは言ったな。自分は勇者ではない、期待に添える人物ではないと」*
 
@@ -385,7 +385,7 @@
 
 &nbsp;
 
-#### "In less than a month, you have led Thunderbolt and Sera, some of the kingdom's strongest, to conquer a B-rank dungeon. Who else can we call a hero if not you, SR-dono?"
+#### "In less than a month, you have led Thunderbolt and Sera, some of the kingdom's strongest, to conquer a B-rank dungeon. Who else can we call a hero if not you, Esuar-dono?"
 
 *「そなたは１ヶ月にも満たないわずかな期間で、迅雷の軌跡、セラという王国有数の強者たちを従え、Ｂランクダンジョンの踏破を成し遂げてみせた。出会って間もない、フェノンのために。エスアール殿を勇者と呼ばずに、誰を勇者と呼べようか！」*
 

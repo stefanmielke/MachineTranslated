@@ -283,7 +283,7 @@
 
 &nbsp;
 
-#### “That’s right—due to the time limit, the match between Thunderbolt Trajectory and SR will be declared a draw!”
+#### “That’s right—due to the time limit, the match between Thunderbolt Trajectory and Esuar will be declared a draw!”
 
 *「そういうことだ――時間制限により、迅雷の軌跡、エスアールの試合は引き分けとするっ！」*
 
@@ -323,7 +323,7 @@
 
 &nbsp;
 
-#### “SR, are you going to use a potion? You’ve taken a few hits, and if necessary, I can heal you too.”
+#### “Esuar, are you going to use a potion? You’ve taken a few hits, and if necessary, I can heal you too.”
 
 *「エスアール、ポーション使うですか？　何度か攻撃が当たったですし、必要ならヒールもするですよ」*
 
@@ -363,7 +363,7 @@
 
 &nbsp;
 
-#### “H-Hey, SR, what’s your current job? What kind of job were we fighting against?”
+#### “H-Hey, Esuar, what’s your current job? What kind of job were we fighting against?”
 
 *「ね、ねぇエスアール、あなた、今の職業は？　私たちは、なんの職業と戦っていたの？」*
 

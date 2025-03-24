@@ -39,19 +39,19 @@
 
 &nbsp;
 
-#### "SR, why did you dodge to the left just now? I think just bowing your head would have been enough."
+#### "Esuar, why did you dodge to the left just now? I think just bowing your head would have been enough."
 
 *「ＳＲさん、いまなんで左に躱したんですか？　頭を下げるだけでも十分だったと思うのですが」*
 
 &nbsp;
 
-#### "SR, you changed your grip a bit, didn’t you? Why is that?"
+#### "Esuar, you changed your grip a bit, didn’t you? Why is that?"
 
 *「ＳＲさん、少し握る位置を変えてましたよね？　どうしてですか？」*
 
 &nbsp;
 
-#### "SR, are you careful not to let the effect of the White Lotus wear off?"
+#### "Esuar, are you careful not to let the effect of the White Lotus wear off?"
 
 *「ＳＲさん、白蓮の効果を切れさせないように気を付けていることとかありますか？」*
 

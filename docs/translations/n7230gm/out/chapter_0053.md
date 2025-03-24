@@ -267,7 +267,7 @@
 
 &nbsp;
 
-#### "Have confidence. Sera-san, who has been trained by SR, will surely be strong."
+#### "Have confidence. Sera-san, who has been trained by Esuar, will surely be strong."
 
 *「自信を持つです。エスアールに鍛えられたセラさんはきっと強くなってるです」*
 
@@ -301,7 +301,7 @@
 
 &nbsp;
 
-#### "“Because SR is our master.””
+#### "“Because Esuar is our master.””
 
 *「「エスアールが師匠だから」」*
 

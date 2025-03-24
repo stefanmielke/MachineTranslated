@@ -121,7 +121,7 @@
 
 &nbsp;
 
-#### "Sera did knock properly. It's been a while, SR."
+#### "Sera did knock properly. It's been a while, Esuar."
 
 *「セラはしっかりノックしていたぞ。久しぶりだな、エスアール」*
 
@@ -281,7 +281,7 @@
 
 &nbsp;
 
-#### "After Sera's individual match as a guest, there's going to be our party match, and there's talk about having SR participate in that."
+#### "After Sera's individual match as a guest, there's going to be our party match, and there's talk about having Esuar participate in that."
 
 *「セラがゲストとして出場する個人戦のあとに俺たちのパーティ戦があるんだが、そこにエスアールが出場するのはどうかって話が出ている」*
 
@@ -305,7 +305,7 @@
 
 &nbsp;
 
-#### "It's a match between us and just one SR."
+#### "It's a match between us and just one Esuar."
 
 *「俺たちと、エスアール一人の試合だ」*
 
@@ -333,7 +333,7 @@
 
 &nbsp;
 
-#### "You say you don't want to stand out, but thanks to conquering the B-rank dungeon and your title, the name 'SR' is already known throughout the country. Plus, since the faces of title holders aren't widely known, there are rumors about 'What kind of person are they?'"
+#### "You say you don't want to stand out, but thanks to conquering the B-rank dungeon and your title, the name 'Esuar' is already known throughout the country. Plus, since the faces of title holders aren't widely known, there are rumors about 'What kind of person are they?'"
 
 *「お前さんは目立ちなくないって言うがな、Ｂランクダンジョンの踏破と称号のせいで『エスアール』の名前はすでに国中に知れ渡っているぞ。それに、称号持ちの顔が世間に知られていないから『どんな奴だ』って逆に噂になってるみたいだ」*
 
@@ -379,7 +379,7 @@
 
 &nbsp;
 
-#### "As someone who respects SR, it really annoys me to hear people saying, 'They must be weak after all.' Sera understands, right?"
+#### "As someone who respects Esuar, it really annoys me to hear people saying, 'They must be weak after all.' Sera understands, right?"
 
 *「エスアールを尊敬してる身としては、お前さんが周りから『本当は弱いんじゃないか』なんて言われてるのを聞くと、腹が立って仕方がないんだよ。セラもわかるだろ」*
 

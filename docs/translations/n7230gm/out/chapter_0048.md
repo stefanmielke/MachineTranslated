@@ -21,7 +21,7 @@
 
 &nbsp;
 
-#### Two weeks have passed since SR and the others left the royal capital.
+#### Two weeks have passed since Esuar and the others left the royal capital.
 
 *エスアールたちが王都をたって２週間が経過した。*
 
@@ -79,7 +79,7 @@
 
 &nbsp;
 
-#### "We're going to be diving into dungeons with SR for almost a month, right? It’s definitely going to be dangerous."
+#### "We're going to be diving into dungeons with Esuar for almost a month, right? It’s definitely going to be dangerous."
 
 *「エスアールと一ヶ月近くダンジョンに潜るんだぜ？　絶対やばいだろ」*
 
@@ -103,19 +103,19 @@
 
 &nbsp;
 
-#### Yes―― we finally succeeded in clearing the B-rank dungeon without SR or Sera.
+#### Yes―― we finally succeeded in clearing the B-rank dungeon without Esuar or Sera.
 
 *そう――俺たちはついに、エスアールやセラ抜きでＢランクダンジョンを踏破することに成功したのだ。*
 
 &nbsp;
 
-#### While it was partly because of the status bonuses he taught us that strengthened us, observing the boss's movements up close for an extended period was also beneficial. It’s all thanks to SR.
+#### While it was partly because of the status bonuses he taught us that strengthened us, observing the boss's movements up close for an extended period was also beneficial. It’s all thanks to Esuar.
 
 *彼が教えてくれたステータスボーナスによって自身が強化されていたこともあるが、ボスの動きを間近で――しかも長時間観察していたのが良かった。全部エスアールのおかげだな。*
 
 &nbsp;
 
-#### "I don't know about the princess or the maid, but Sera will definitely evolve, right? She was already unusually fast at leveling up to C-rank, and she adapted to our teamwork in no time. If a monster like SR is guiding her, it’s definitely going to be dangerous."
+#### "I don't know about the princess or the maid, but Sera will definitely evolve, right? She was already unusually fast at leveling up to C-rank, and she adapted to our teamwork in no time. If a monster like Esuar is guiding her, it’s definitely going to be dangerous."
 
 *「王女様やメイドのことは知らないが、セラは間違いなく化けるぞ？　あいつはＣランクまで上がってくるスピードも異常だったし、俺たちの連携に合わせるのもあっという間だった。エスアールっていうバケモノが指導してみろ、絶対やばいぞ」*
 
@@ -279,7 +279,7 @@
 
 &nbsp;
 
-#### "SR is training Sera and the others, right? Moreover, there’s no doubt that Rei will win the individual competition in the martial arts tournament. In the end, it will be him and Sera fighting."
+#### "Esuar is training Sera and the others, right? Moreover, there’s no doubt that Rei will win the individual competition in the martial arts tournament. In the end, it will be him and Sera fighting."
 
 *「エスアールがセラさんたちを鍛えてるですよね？　しかも、武闘大会の個人戦で優勝するのは間違いなくレイ。最後に彼とセラが戦うことになるです」*
 
@@ -291,11 +291,11 @@
 
 &nbsp;
 
-#### Regarding the individual competition, it seems SR declined to participate, or rather, Sera expressed her desire to compete. She probably wanted a chance for a revenge match against her brother.
+#### Regarding the individual competition, it seems Esuar declined to participate, or rather, Sera expressed her desire to compete. She probably wanted a chance for a revenge match against her brother.
 
 *個人戦に関してはエスアールが辞退したというか、セラが出場を希望したらしい。兄とリベンジマッチの機会が欲しかったのだろう。*
 
-#### Just like SR, she has a competitive personality.
+#### Just like Esuar, she has a competitive personality.
 
 *エスアールと同じで負けず嫌いな性格だ。*
 
@@ -313,7 +313,7 @@
 
 &nbsp;
 
-#### "Yes, yes. With Sera’s abnormal growth speed, she is being trained by the extraordinarily skilled SR. It’s dangerous."
+#### "Yes, yes. With Sera’s abnormal growth speed, she is being trained by the extraordinarily skilled Esuar. It’s dangerous."
 
 *「ですです。異常な成長スピードを持つセラが、異常な実力のエスアールから指導を受けるですよ。やばいです」*
 
@@ -331,7 +331,7 @@
 
 &nbsp;
 
-#### "Yes, yes. I’m sure Duke Margus also received an elixir from SR and revived."
+#### "Yes, yes. I’m sure Duke Margus also received an elixir from Esuar and revived."
 
 *「ですです。きっとマーガス公爵もエスアールにエリクサーをもらって復活してるです」*
 
@@ -347,7 +347,7 @@
 
 &nbsp;
 
-#### "Even if SR is a monster, we have our pride too. Tomorrow, we’ll be leveling up in the dungeon from morning!"
+#### "Even if Esuar is a monster, we have our pride too. Tomorrow, we’ll be leveling up in the dungeon from morning!"
 
 *「エスアールがいくらバケモノっつったって、俺たちにだって意地がある。明日も朝からダンジョンでガンガンレベル上げだ！」*
 
@@ -359,7 +359,7 @@
 
 &nbsp;
 
-#### "Yes, yes. We’ll surprise SR and the others at the martial arts tournament!"
+#### "Yes, yes. We’ll surprise Esuar and the others at the martial arts tournament!"
 
 *「ですです。エスアールたちを武闘大会で驚かせてやるです！」*
 
@@ -381,7 +381,7 @@
 
 &nbsp;
 
-#### What SR mentioned about the overall level-up of the world—and the devaluation of elixirs.
+#### What Esuar mentioned about the overall level-up of the world—and the devaluation of elixirs.
 
 *エスアールが言っていた、世界全体のレベルアップ――そしてエリクサーの価値の暴落。*
 
@@ -397,7 +397,7 @@
 
 &nbsp;
 
-#### SR probably still holds many secrets about this world that we are unaware of.
+#### Esuar probably still holds many secrets about this world that we are unaware of.
 
 *エスアールはおそらく、俺たちが知らないこの世界の秘密をまだたくさん握っている。*
 
@@ -419,13 +419,13 @@
 
 &nbsp;
 
-#### Until after the martial arts tournament when SR revealed a new secret.
+#### Until after the martial arts tournament when Esuar revealed a new secret.
 
 *武闘大会後、エスアールから新たな秘密を明かされるまでは本気でそう思っていた。*
 
 &nbsp;
 
-#### Yes—until I asked about the place SR was aiming for.
+#### Yes—until I asked about the place Esuar was aiming for.
 
 *そう――エスアールの目指している場所について聞くまでは。*
 

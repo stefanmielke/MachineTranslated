@@ -303,7 +303,7 @@
 
 &nbsp;
 
-#### "Of course. But I must also thank SR—what incredible bow accuracy. Even in the midst of battle, it made me momentarily stop moving."
+#### "Of course. But I must also thank Esuar—what incredible bow accuracy. Even in the midst of battle, it made me momentarily stop moving."
 
 *「もちろんだとも。だが、エスアールにも助けられた――とんでもない弓の精度だったな。戦闘中だというのに思わず動きを止めてしまったぞ」*
 

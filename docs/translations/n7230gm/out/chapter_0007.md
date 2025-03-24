@@ -113,7 +113,7 @@
 
 &nbsp;
 
-#### A very brief introduction. When I replied similarly with "I'm SR," she narrowed her eyes slightly and asked.
+#### A very brief introduction. When I replied similarly with "I'm Esuar," she narrowed her eyes slightly and asked.
 
 *とても短い挨拶。俺も同じように「ＳＲです」と返すと、彼女はやや目を細めながら問いかけてきた。*
 
@@ -153,7 +153,7 @@
 
 &nbsp;
 
-#### "Now, I'll explain. First, Sera—this SR is the target of your protection. The deadline is ten days. This is a punishment for you, so no objections are allowed. I've also received approval from Count Bernault."
+#### "Now, I'll explain. First, Sera—this Esuar is the target of your protection. The deadline is ten days. This is a punishment for you, so no objections are allowed. I've also received approval from Count Bernault."
 
 *「では、後は俺から説明しよう。まずセラ――このエスアールが今回の護衛対象だ。期限は１０日。これはお前への罰だから、反論は認めん。ベルノート伯爵にも了承は得ているからな」*
 
@@ -233,7 +233,7 @@
 
 &nbsp;
 
-#### "SR is a level 1 of a lower class job, right? This is a necessary measure."
+#### "Esuar is a level 1 of a lower class job, right? This is a necessary measure."
 
 *「エスアールは下級職のレベル１だろ？　これは必要な措置なんだ」*
 
@@ -281,7 +281,7 @@
 
 &nbsp;
 
-#### "Why are you talking about the king and Lord Dino!? And how can you casually say you're going to the royal castle… wasn't SR a commoner!?"
+#### "Why are you talking about the king and Lord Dino!? And how can you casually say you're going to the royal castle… wasn't Esuar a commoner!?"
 
 *「どうして陛下やディーノ様の話が出てくるんだ！？　しかもそんな気軽に王城に行くとか……エスアールは平民じゃなかったのか！？」*
 
@@ -397,7 +397,7 @@
 
 &nbsp;
 
-#### "However, if SR loses, we will have to assign proper protection—this is the condition. It might have been a good opportunity for Lord Dino as well; it gives a good excuse to assign protection."
+#### "However, if Esuar loses, we will have to assign proper protection—this is the condition. It might have been a good opportunity for Lord Dino as well; it gives a good excuse to assign protection."
 
 *「ただし、エスアールが負けた場合はきちんと護衛を付けさせてもらう――というのが条件だ。ディーノ様としても、お前の提案は渡りに船だったかもしれんな。護衛を付けるいい口実になる」*
 

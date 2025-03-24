@@ -167,7 +167,7 @@
 
 &nbsp;
 
-#### In response, Phanon was praising me to the skies. Sera joined in, so I felt like I wanted to escape. I mean, she really said, "Mr. SR is my life." I was happy, though.
+#### In response, Phanon was praising me to the skies. Sera joined in, so I felt like I wanted to escape. I mean, she really said, "Mr. Esuar is my life." I was happy, though.
 
 *そしてそれに対するフェノンはというと、俺をべた褒めしていた。セラもそれに乗っかったので、俺としては逃げ出したい気分である。いやほんとに、『エスアールさんが、私の人生です』なんて言ってたし。嬉しかったけども。*
 

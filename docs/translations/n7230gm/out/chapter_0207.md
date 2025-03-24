@@ -33,7 +33,7 @@
 
 &nbsp;
 
-#### "Then, does that mean that person also came from the same world as SR?"
+#### "Then, does that mean that person also came from the same world as Esuar?"
 
 *「では、その者もエスアールと同じ世界から来たということか」*
 
@@ -61,7 +61,7 @@
 
 &nbsp;
 
-#### "Uh, I don't want to say this too much, but... well, you know. I don't want to spend less time with SR!"
+#### "Uh, I don't want to say this too much, but... well, you know. I don't want to spend less time with Esuar!"
 
 *「あ、あまりこういうことは言いたくないが……その、なんだ。エスアールと一緒にいる時間が減るのは嫌だからな！」*
 
@@ -99,7 +99,7 @@
 
 &nbsp;
 
-#### "Thank you very much. However, SR, I must let you know that both Sera and I are willing to accept up to two more."
+#### "Thank you very much. However, Esuar, I must let you know that both Sera and I are willing to accept up to two more."
 
 *「ありがとうございます。ですがエスアールさん、あと二人までなら、私もセラも許容することにしていますよ？」*
 
@@ -119,7 +119,7 @@
 
 &nbsp;
 
-#### 'If by any chance, His Majesty or those around him start saying they will execute the summoned SR, I will take responsibility and get you out of this country. At that time, I will accompany you, if you allow me.'
+#### 'If by any chance, His Majesty or those around him start saying they will execute the summoned Esuar, I will take responsibility and get you out of this country. At that time, I will accompany you, if you allow me.'
 
 *『万が一、召喚されたエスアール様を処刑するなどと陛下やその周囲が言い始めたら、私が責任を持って貴方をこの国から連れ出しましょう。その際は、僭越ながらお供させていただきますね』*
 
@@ -201,7 +201,7 @@
 
 &nbsp;
 
-#### "Is it true, SR!?"
+#### "Is it true, Esuar!?"
 
 *「本当ですかエスアールさん！？」*
 

@@ -65,7 +65,7 @@
 
 &nbsp;
 
-#### “Hey, SR! Don’t keep the princesses waiting too long!”
+#### “Hey, Esuar! Don’t keep the princesses waiting too long!”
 
 *「おうエスアール！　あまり王女様たちを待たせるんじゃねぇぞ！」*
 

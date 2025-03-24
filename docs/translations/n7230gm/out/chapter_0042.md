@@ -47,7 +47,7 @@
 
 &nbsp;
 
-#### "Of course. He is the brave one who worked himself to the bone to obtain an elixir for someone he didn't even know—there's no man other than Lord SR who interests me more than a grain of sand."
+#### "Of course. He is the brave one who worked himself to the bone to obtain an elixir for someone he didn't even know—there's no man other than Lord Esuar who interests me more than a grain of sand."
 
 *「もちろんです。彼は見ず知らずの私のために、身を粉にしてエリクサーを入手してみせた勇ましき御方――エスアール様以外の男性など、砂粒よりも興味ありません」*
 
@@ -59,7 +59,7 @@
 
 &nbsp;
 
-#### "I see, I see. Then, it means that Lord SR and I will eventually become relatives. Please take good care of Phenon."
+#### "I see, I see. Then, it means that Lord Esuar and I will eventually become relatives. Please take good care of Phenon."
 
 *「そうかそうか、ならばエスアール君と俺はいずれ親戚になるわけだな。フェノンをよろしく頼むぞ」*
 
@@ -133,7 +133,7 @@
 
 &nbsp;
 
-#### "I am fully aware of that. Besides, I will be diving with Lord SR and Sera, so there is no danger—right, Lord SR?"
+#### "I am fully aware of that. Besides, I will be diving with Lord Esuar and Sera, so there is no danger—right, Lord Esuar?"
 
 *「承知の上です。それに、エスアール様やセラと潜るのですから、危険などありません――ですよね、エスアール様」*
 
@@ -161,7 +161,7 @@
 
 &nbsp;
 
-#### "...I cannot gauge the abilities of Lord SR and Sera. It will have to be judged by the guild master of Reinas."
+#### "...I cannot gauge the abilities of Lord Esuar and Sera. It will have to be judged by the guild master of Reinas."
 
 *「……エスアール君やセラの実力については、俺では測ることができん。レーナスのギルドマスターに判断してもらうことになるだろう」*
 
@@ -183,7 +183,7 @@
 
 &nbsp;
 
-#### "Once a rule is established, it cannot be changed so easily. Even if it's a request from the hero, Lord SR, or Phenon. If a new profession becomes accepted by society, I will consider lifting the seal."
+#### "Once a rule is established, it cannot be changed so easily. Even if it's a request from the hero, Lord Esuar, or Phenon. If a new profession becomes accepted by society, I will consider lifting the seal."
 
 *「一度決めた規則だ、そう簡単に変更するわけにもいかん。勇者の称号を持つエスアール君や、フェノンの頼みでもだ。新たな職業が世間に馴染めば、封鎖の解除も考えているがな」*
 
@@ -387,7 +387,7 @@
 
 &nbsp;
 
-#### "Then, Uncle. Of course, you will prepare accommodations and meals for all of us, as well as grant us entry to the B-rank dungeon, right? Do you have anything to say, Lord SR?"
+#### "Then, Uncle. Of course, you will prepare accommodations and meals for all of us, as well as grant us entry to the B-rank dungeon, right? Do you have anything to say, Lord Esuar?"
 
 *「それでは叔父様。Ｂランクダンジョンの入場はもちろん、私たち全員の宿と食事をこの家で用意してくださいますよね？　エスアール様からは何かありますか？」*
 
@@ -485,7 +485,7 @@
 
 &nbsp;
 
-#### "Uncle, this is a request from Lord SR, you know?"
+#### "Uncle, this is a request from Lord Esuar, you know?"
 
 *「叔父様、エスアール様からのお願いですよ？」*
 
@@ -541,7 +541,7 @@
 
 &nbsp;
 
-#### "I don't know how to thank you... SR, my lord. What can I give you in return?"
+#### "I don't know how to thank you... Esuar, my lord. What can I give you in return?"
 
 *「なんとお礼を言っていいのか……エスアール、殿。俺は君に何が返せる？」*
 

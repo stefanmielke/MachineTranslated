@@ -249,7 +249,7 @@
 
 &nbsp;
 
-#### “Well, it’s SR-san, so if the wives are okay with it, there shouldn’t be a problem, right?”
+#### “Well, it’s Esuar-san, so if the wives are okay with it, there shouldn’t be a problem, right?”
 
 *「まぁＳＲさんっスからね。奥さんたちがオッケーなら問題ないんじゃないっスか？」*
 

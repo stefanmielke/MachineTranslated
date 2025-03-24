@@ -119,13 +119,13 @@
 
 &nbsp;
 
-#### "Then we should check with Duke Margus. I assume SR wants to build outside the city?"
+#### "Then we should check with Duke Margus. I assume Esuar wants to build outside the city?"
 
 *「となると、マーガス公爵に確認したほうがいいだろうな。エスアールは街の外に建てたいんだろう？」*
 
 &nbsp;
 
-#### "Does SR prefer a quieter place?"
+#### "Does Esuar prefer a quieter place?"
 
 *「エスアールさんは静かなほうが好きなのですか？」*
 
@@ -157,7 +157,7 @@
 
 &nbsp;
 
-#### "So SR is dungeon-oriented, huh..."
+#### "So Esuar is dungeon-oriented, huh..."
 
 *「あくまでエスアールさんはダンジョン基準なんですね……」*
 
@@ -169,7 +169,7 @@
 
 &nbsp;
 
-#### "That may be true, but I think there are few people who are as completely detached as SR. Moreover, explorers earn money by delivering drop items to the guild."
+#### "That may be true, but I think there are few people who are as completely detached as Esuar. Moreover, explorers earn money by delivering drop items to the guild."
 
 *「それはそうかもしれませんが、エスアールさんみたいに完全に割り切っている方は少ないと思いますよ。それに、探索者はギルドにドロップ品を納品することでお金を稼ぎますし」*
 
@@ -229,7 +229,7 @@
 
 &nbsp;
 
-#### "Of course! Since SR has been helping me in the dungeon, I will do my best here!"
+#### "Of course! Since Esuar has been helping me in the dungeon, I will do my best here!"
 
 *「もちろんです！　エスアールさんにダンジョンでお世話になっている分、私はこちらで頑張りますわ！」*
 
@@ -259,7 +259,7 @@
 
 &nbsp;
 
-#### "Do you like wooden carvings, SR?"
+#### "Do you like wooden carvings, Esuar?"
 
 *「エスアールさんは木彫りの品物が好きなんですか？」*
 

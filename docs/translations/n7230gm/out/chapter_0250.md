@@ -87,7 +87,7 @@
 
 &nbsp;
 
-#### "Originally, I was half in doubt, including myself. Just being told that the dungeon connects to another continent doesn't hold any credibility. The only reason it’s worth considering is that the speaker is from SR."
+#### "Originally, I was half in doubt, including myself. Just being told that the dungeon connects to another continent doesn't hold any credibility. The only reason it’s worth considering is that the speaker is from Esuar."
 
 *「もともと俺も含めて半信半疑なんだ。ダンジョン内で別の大陸と繋がってるなんて、口で言われただけじゃ信ぴょう性も何もないからな。唯一検討に値するって理由が、発言者がエスアールってことぐらいだからな」*
 

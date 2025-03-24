@@ -63,7 +63,7 @@
 
 &nbsp;
 
-#### "Hehe, it's fine because SR-san is here."
+#### "Hehe, it's fine because Esuar-san is here."
 
 *「ふふ、エスアールさんがいるから大丈夫ですよ」*
 
@@ -127,7 +127,7 @@
 
 &nbsp;
 
-#### "...You have a face like a mischievous boy, SR."
+#### "...You have a face like a mischievous boy, Esuar."
 
 *「……意地の悪い少年のような顔つきになっているぞ、エスアール」*
 

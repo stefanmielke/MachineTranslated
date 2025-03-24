@@ -151,7 +151,7 @@
 
 &nbsp;
 
-#### "SR came from another world, right? Was there a similar dungeon?"
+#### "Esuar came from another world, right? Was there a similar dungeon?"
 
 *「エスアールは別の世界から来たんだろう？　同じようなダンジョンがあったのか？」*
 
@@ -249,7 +249,7 @@
 
 &nbsp;
 
-#### "SR has just come to this world, right? It’s not something you should worry about."
+#### "Esuar has just come to this world, right? It’s not something you should worry about."
 
 *「エスアールはこの世界に来たばかりだろう？　お前が気に病むことじゃない」*
 

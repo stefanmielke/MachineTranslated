@@ -77,7 +77,7 @@
 
 &nbsp;
 
-#### "—Ah! That's right! There's SR! SR was level 1 just ten days ago, but has already cleared a C-rank dungeon! You can do it, can't you!?"
+#### "—Ah! That's right! There's Esuar! Esuar was level 1 just ten days ago, but has already cleared a C-rank dungeon! You can do it, can't you!?"
 
 *「――っ！　そ、そうだっ！　エスアールがいるじゃないかっ！　エスアールは、１０日前まではレベル１だったのに、既にＣランクダンジョンを踏破しているっ！　貴方ならできるのではないかっ！？」*
 
@@ -95,7 +95,7 @@
 
 &nbsp;
 
-#### "I did! If it's SR, then in ten days, you can clear a B-rank dungeon, right!? Right!?"
+#### "I did! If it's Esuar, then in ten days, you can clear a B-rank dungeon, right!? Right!?"
 
 *「言ったとも。エスアールなら１０日もあれば、Ｂランクダンジョンを踏破できるよなっ！　なぁ、できるよなっ！？」*
 
@@ -491,7 +491,7 @@
 
 &nbsp;
 
-#### "I will go talk to Thunderbolt's Trail now. SR, are you going to the dungeon?"
+#### "I will go talk to Thunderbolt's Trail now. Esuar, are you going to the dungeon?"
 
 *「私もこれから迅雷の軌跡に話をしに行こう。エスアールはダンジョンか？」*
 
@@ -503,7 +503,7 @@
 
 &nbsp;
 
-#### "I think SR should be the one to rest... understood. Fenon— may I go see Her Highness the princess?"
+#### "I think Esuar should be the one to rest... understood. Fenon— may I go see Her Highness the princess?"
 
 *「エスアールこそ休むべきだと思うが……承知した。フェノン――王女殿下の所には行ってもいいのか？」*
 

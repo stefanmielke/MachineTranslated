@@ -263,7 +263,7 @@
 
 &nbsp;
 
-#### Isn't this the moment where they should say, "Now I understand your feelings," or "So this is what SR felt back then"? Am I wrong?
+#### Isn't this the moment where they should say, "Now I understand your feelings," or "So this is what Esuar felt back then"? Am I wrong?
 
 *ここはさぁ、「いまならお前の気持ちがわかるぜ」とか、「これがあの時のエスアールの感覚なのだな」とか言ってくれたりする場面じゃないの？　違うの？*
 

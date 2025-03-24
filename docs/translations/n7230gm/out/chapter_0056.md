@@ -89,13 +89,13 @@
 
 &nbsp;
 
-#### "I know that— but with Sera and SR around, there are so many strong people lately... I wonder if it's okay to still be called the number one party in the kingdom..."
+#### "I know that— but with Sera and Esuar around, there are so many strong people lately... I wonder if it's okay to still be called the number one party in the kingdom..."
 
 *「わかってるよ――だがセラといいエスアールといい、最近周りに強いやつが多くて……これでまだ王国ナンバーワンのパーティなんて呼ばれていいのかどうか――」*
 
 &nbsp;
 
-#### "Don't compare yourself to SR. He's a monster."
+#### "Don't compare yourself to Esuar. He's a monster."
 
 *「エスアールと比べちゃダメよ。彼は化け物だから」*
 
@@ -249,7 +249,7 @@
 
 &nbsp;
 
-#### "That's right— thank you for your guidance, SR. But I would be happy if you continue to teach me."
+#### "That's right— thank you for your guidance, Esuar. But I would be happy if you continue to teach me."
 
 *「そうだったな――世話になったエスアール。だが、これからも指導はしてくれると嬉しい」*
 
@@ -283,7 +283,7 @@
 
 &nbsp;
 
-#### "Well, if you guys receive SR's guidance, you'll get strong quickly too."
+#### "Well, if you guys receive Esuar's guidance, you'll get strong quickly too."
 
 *「なに、シンたちもエスアールの指導を受ければすぐに強くなる」*
 
@@ -301,7 +301,7 @@
 
 &nbsp;
 
-#### "I received power from SR. The smoothness of the match was partly thanks to this."
+#### "I received power from Esuar. The smoothness of the match was partly thanks to this."
 
 *「私は、エスアールから力を貰っていたからな。あんなにすんなり試合が運んだのは、コレのおかげでもある」*
 
@@ -465,7 +465,7 @@
 
 &nbsp;
 
-#### "If you gave it to Sera, then SR can't just decide to loan it out."
+#### "If you gave it to Sera, then Esuar can't just decide to loan it out."
 
 *「そもそもセラにあげたのなら、エスアールが勝手に貸すなんて決めたらダメでしょ」*
 

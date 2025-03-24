@@ -125,7 +125,7 @@
 
 &nbsp;
 
-#### "Are you the one to say that, S.R.? We decided together to issue permits at the guild, didn't we?"
+#### "Are you the one to say that, Esuar? We decided together to issue permits at the guild, didn't we?"
 
 *「エスアールがそれを言うか？　ギルドで許可証を発行するよう、一緒に決めただろうが」*
 
@@ -343,7 +343,7 @@
 
 &nbsp;
 
-#### "I'm sorry, S.R., but could you let me participate?"
+#### "I'm sorry, Esuar, but could you let me participate?"
 
 *「すまないエスアール、できれば私に出場させてくれないか？」*
 
@@ -411,7 +411,7 @@
 
 &nbsp;
 
-#### "Alright, understood. ...S.R., just take it easy."
+#### "Alright, understood. ...Esuar, just take it easy."
 
 *「よしわかった。……エスアールはほどほどにな」*
 

@@ -1,7 +1,7 @@
 ###### [Next Chapter](./chapter_0063.md)
 ###### [Previous Chapter](./chapter_0061.md)&nbsp;/&nbsp;
 
-# 60 〇King SR
+# 60 〇King Esuar
 
 ## ６０　〇王エスアール
 
@@ -81,7 +81,7 @@
 
 &nbsp;
 
-#### "SR said earlier that there are two conditions, right? I understand the level requirement for the designated class, so I want to know the other condition."
+#### "Esuar said earlier that there are two conditions, right? I understand the level requirement for the designated class, so I want to know the other condition."
 
 *「エスアールは先程、条件は二つあると言ったですよね？　規定職業のレベルに関しては把握したですから、もう一つの条件を知りたいです」*
 
@@ -137,7 +137,7 @@
 
 &nbsp;
 
-#### "I feel like we might be getting poisoned by SR if we think we can manage B-rank dungeons..."
+#### "I feel like we might be getting poisoned by Esuar if we think we can manage B-rank dungeons..."
 
 *「Ｂランクダンジョンならなんとかなりそう――って思ってしまう時点で、私たちもエスアールに毒されてきてるのかしら……」*
 
@@ -161,7 +161,7 @@
 
 &nbsp;
 
-#### "So, what do you want me to do, SR?"
+#### "So, what do you want me to do, Esuar?"
 
 *「それで、エスアールは俺にどうしてほしいんだ？」*
 
@@ -271,7 +271,7 @@
 
 &nbsp;
 
-#### "Yes, yes. This is what it means to be SR."
+#### "Yes, yes. This is what it means to be Esuar."
 
 *「ですです。これぞエスアールって感じです」*
 
@@ -299,7 +299,7 @@
 
 &nbsp;
 
-#### "SR? Where are you going?"
+#### "Esuar? Where are you going?"
 
 *「エスアール？　何処に行くんだ？」*
 
@@ -359,7 +359,7 @@
 
 &nbsp;
 
-#### "What class is SR going to become? Are you going to be the same as us— a Sword Saint?"
+#### "What class is Esuar going to become? Are you going to be the same as us— a Sword Saint?"
 
 *「エスアールはなんの職業に就くんだ？　私たちと同じ――剣聖か？」*
 

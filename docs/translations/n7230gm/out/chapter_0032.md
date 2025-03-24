@@ -67,7 +67,7 @@
 
 &nbsp;
 
-#### “By the way, how old is SR?”
+#### “By the way, how old is Esuar?”
 
 *「そういえば、エスアールは何歳です？」*
 
@@ -105,7 +105,7 @@
 
 &nbsp;
 
-#### “You can drink from 18. Are you not good with alcohol, SR?”
+#### “You can drink from 18. Are you not good with alcohol, Esuar?”
 
 *「１８から飲めるですよ。エスアールはお酒が苦手ですか？」*
 
@@ -343,7 +343,7 @@
 
 &nbsp;
 
-#### “Yes, yes. I’m looking forward to your advice, SR.”
+#### “Yes, yes. I’m looking forward to your advice, Esuar.”
 
 *「ですです。アドバイス楽しみにしてるですよ、エスアール」*
 
@@ -415,7 +415,7 @@
 
 &nbsp;
 
-#### “Ah, ah, you’ve drunk too much. SR, you better take care of her.”
+#### “Ah, ah, you’ve drunk too much. Esuar, you better take care of her.”
 
 *「あーあー、こりゃ飲み過ぎだな。エスアール、お前さんしっかり面倒見てやれよ」*
 

@@ -253,13 +253,13 @@
 
 &nbsp;
 
-#### Two hours had passed since SR started fighting the monster. Thanks to the status window, I could tell the time, but the perceived time had easily exceeded ten hours. I had been wishing in my heart, "Please end soon," for so long.
+#### Two hours had passed since Esuar started fighting the monster. Thanks to the status window, I could tell the time, but the perceived time had easily exceeded ten hours. I had been wishing in my heart, "Please end soon," for so long.
 
 *エスアールが魔物と殺り合い始めて、２時間が過ぎた。時間が分かるのはステータスウィンドウのおかげで、体感時間は優に１０時間を超えている。そう思えるぐらい、心の中では『早く終わってくれ』と願い続けていた。*
 
 &nbsp;
 
-#### We had moved close enough to not interfere with the battle, and just barely close enough to see SR's expression.
+#### We had moved close enough to not interfere with the battle, and just barely close enough to see Esuar's expression.
 
 *俺たちは戦闘の邪魔にならない程度、そして、エスアールの表情がギリギリ見えるぐらいのところまで近づいてきている。*
 
@@ -283,11 +283,11 @@
 
 &nbsp;
 
-#### Even while holding my chest, my gaze never left SR. I wanted to absorb even a little of that outstanding technique.
+#### Even while holding my chest, my gaze never left Esuar. I wanted to absorb even a little of that outstanding technique.
 
 *俺は胸を押さえながらも、視線はエスアールから離さない。それはあの卓越した技術を、少しでも自分の物にしたいからだった。*
 
-#### But it was hard on my heart. I had lost count of how many times I thought SR had died; it was too tedious to even keep track.
+#### But it was hard on my heart. I had lost count of how many times I thought Esuar had died; it was too tedious to even keep track.
 
 *だが、心臓に悪い。何度エスアールが死んだと思ったか、数えるのも億劫になるほどだ。*
 
@@ -305,7 +305,7 @@
 
 &nbsp;
 
-#### "Yeah. SR looks down on us. The difference in dimensions is just too much."
+#### "Yeah. Esuar looks down on us. The difference in dimensions is just too much."
 
 *「……だな。エスアールも俺たちのことを下に見るわけだ。次元が違いすぎる」*
 
@@ -345,13 +345,13 @@
 
 *また死んだかと思った。*
 
-#### The Cyclops's massive axe had passed under SR's chin. He continued straight ahead as if nothing had happened, slashing at the enemy's side with his sword.
+#### The Cyclops's massive axe had passed under Esuar's chin. He continued straight ahead as if nothing had happened, slashing at the enemy's side with his sword.
 
 *魔物の持つ大きな斧が、エスアールの顎の下を通過していったのだ。彼はなんでも無いことのように、そのまま直進して敵の脇を剣で斬る。*
 
 &nbsp;
 
-#### "SR is amazing... really amazing."
+#### "Esuar is amazing... really amazing."
 
 *「すごいな、エスアールは……本当にすごい」*
 
@@ -425,7 +425,7 @@
 
 *回避にまったく無駄がないからこそ、反撃に転じることができる。*
 
-#### It seemed that SR had that ingrained in her body, as her evasion movements seamlessly flowed into her attacks.
+#### It seemed that Esuar had that ingrained in her body, as her evasion movements seamlessly flowed into her attacks.
 
 *エスアールはそれが身体に染み付いているようで、回避の動きがそのまま攻撃に繋がっているようにも見えた。*
 
@@ -437,7 +437,7 @@
 
 &nbsp;
 
-#### From afar, I could hear SR's voice, completely unaware of our anxiety. Even though the monster couldn't understand his words, he seemed to be taunting the enemy, as if he craved more attacks.
+#### From afar, I could hear Esuar's voice, completely unaware of our anxiety. Even though the monster couldn't understand his words, he seemed to be taunting the enemy, as if he craved more attacks.
 
 *遠くからは、こちらがハラハラしていることなど知りもしないエスアールの叫び声が聞こえてくる。魔物に言葉が通じるはずも無いのに、彼は攻められ足りないのか、敵を煽っていた。*
 
@@ -453,7 +453,7 @@
 
 &nbsp;
 
-#### Seeing SR's fighting style, Suzu said that. Looking at her face, I could see it was also tense.
+#### Seeing Esuar's fighting style, Suzu said that. Looking at her face, I could see it was also tense.
 
 *エスアールの戦いぶりを見て、スズがそんなことを言う。見れば彼女の顔も引きつっていた。*
 
@@ -463,7 +463,7 @@
 
 &nbsp;
 
-#### An hour passed, then another hour, and a total of four hours had passed since the battle with the boss began. That was the shortest time SR had mentioned it would take to finish the battle. If things were going well, it should be ending soon.
+#### An hour passed, then another hour, and a total of four hours had passed since the battle with the boss began. That was the shortest time Esuar had mentioned it would take to finish the battle. If things were going well, it should be ending soon.
 
 *それから１時間が過ぎ、さらに１時間が過ぎ、ボスとの戦闘が始まってから合計４時間が経過した。それはエスアールが戦う前に言っていた、戦闘が終わるのに掛かる最短の時間だった。上手くいっているのなら、そろそろ終わるはずだ。*
 
@@ -477,7 +477,7 @@
 
 &nbsp;
 
-#### But I couldn't shake the feeling that SR might lose if things continued like this---his expression had grown increasingly severe.
+#### But I couldn't shake the feeling that Esuar might lose if things continued like this---his expression had grown increasingly severe.
 
 *だが俺は、このままではエスアールが負けるのではないかと――そう思ってしまう。それほどまでに、彼の表情は険しくなっていた。*
 

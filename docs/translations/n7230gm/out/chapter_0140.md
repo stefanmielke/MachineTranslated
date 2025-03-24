@@ -117,7 +117,7 @@
 
 &nbsp;
 
-#### "Yes. I requested that there be a small number of capable individuals, as too many would be noisy. I also conveyed your request for them to be easy to talk to and reliable, Mr. SR."
+#### "Yes. I requested that there be a small number of capable individuals, as too many would be noisy. I also conveyed your request for them to be easy to talk to and reliable, Mr. Esuar."
 
 *「はい。あまり人数が多くても騒がしいので、優秀な人物を少ない人数で――とお願いしました。もちろんエスアールさんの要望である、話しやすく約束が守れる人物ということもお伝えしましたわ」*
 
@@ -175,7 +175,7 @@
 
 &nbsp;
 
-#### "No, I meant about where we will live. We are building a house separate from you SR folks, so I was wondering if it would be there again."
+#### "No, I meant about where we will live. We are building a house separate from you Esuar folks, so I was wondering if it would be there again."
 
 *「いえ、住む場所についてです。私たちはエスアールさんたちと別の場所に家を建てておりますので、今回もそこなのかなぁと」*
 
@@ -275,7 +275,7 @@
 
 &nbsp;
 
-#### "Indeed! Well, I don't think it will come to that with SR."
+#### "Indeed! Well, I don't think it will come to that with Esuar."
 
 *「うむっ！　まぁエスアールに限ってそんなことにはならないと思うがな」*
 

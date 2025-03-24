@@ -57,7 +57,7 @@
 
 &nbsp;
 
-#### "Your corpse will be sent back to Earth. Your soul will merge with the current SR's."
+#### "Your corpse will be sent back to Earth. Your soul will merge with the current Esuar's."
 
 *「お主の死体だけ地球に戻すのじゃ。魂は現在のＳＲのモノと融合することになる」*
 
@@ -69,7 +69,7 @@
 
 &nbsp;
 
-#### The soul will probably end up mixing my memories with SR's memories. I hope that one side's consciousness doesn't just disappear. For both of our sakes.
+#### The soul will probably end up mixing my memories with Esuar's memories. I hope that one side's consciousness doesn't just disappear. For both of our sakes.
 
 *魂のほうはきっと、俺の記憶とＳＲの記憶が混じり合うような形になるんだろう。片方だけ意識が消えるなんてことは無いと願いたい。両方の自分のために。*
 
@@ -101,7 +101,7 @@
 
 &nbsp;
 
-#### "We will skillfully make it a case that goes unsolved. There may be some costs for the investigation, but money will be properly circulated. So you should just switch places with SR without worrying about anything."
+#### "We will skillfully make it a case that goes unsolved. There may be some costs for the investigation, but money will be properly circulated. So you should just switch places with Esuar without worrying about anything."
 
 *「その辺りは上手く迷宮入りさせておくのじゃ。捜査に多少の費用はかかるじゃろうが、金はきちんとめぐるようにしておこう。だからお主は何も心配せずにＳＲと入れ替わればいいのじゃ」*
 
@@ -117,7 +117,7 @@
 
 &nbsp;
 
-#### "Can't I talk to my other half—SR?"
+#### "Can't I talk to my other half—Esuar?"
 
 *「俺と片割れ――ＳＲは話すことはできないんですか？」*
 
@@ -129,7 +129,7 @@
 
 &nbsp;
 
-#### "That's difficult. You and SR won't physically move; instead, you will switch places. If there's something you want to say, I can convey it for you."
+#### "That's difficult. You and Esuar won't physically move; instead, you will switch places. If there's something you want to say, I can convey it for you."
 
 *「それは難しいの。お主とＳＲは物理的に移動するわけではなく、場所が入れ替わる形になるからの。何か言いたいことがあるならばワシから伝えておくが？」*
 
@@ -141,7 +141,7 @@
 
 &nbsp;
 
-#### If I write a long message, my strongest feelings towards SR probably won't get across, and more importantly, it's a hassle to think about. What does it even mean to send a message to myself? It's confusing.
+#### If I write a long message, my strongest feelings towards Esuar probably won't get across, and more importantly, it's a hassle to think about. What does it even mean to send a message to myself? It's confusing.
 
 *あまり長ったらしい文章を並べても、俺のＳＲに対する一番強い気持ちが伝わらないだろうし、何より考えるのが面倒くさい。だいたい自分自身に伝言ってなんだよ。わけわからんわ。*
 
@@ -153,7 +153,7 @@
 
 &nbsp;
 
-#### To the one who will die in my place, make sure to express your gratitude, SR. I'll be there soon.
+#### To the one who will die in my place, make sure to express your gratitude, Esuar. I'll be there soon.
 
 *身代わりとなって死ぬ俺に、精々感謝するんだなＳＲよ。俺もすぐにそっちに行ってやるからな。*
 
@@ -173,7 +173,7 @@
 
 &nbsp;
 
-#### ～SR Side～
+#### ～Esuar Side～
 
 *～ＳＲSide～*
 
@@ -459,7 +459,7 @@
 
 *そもそも、今の状態では隙だらけで回復できるのかも怪しい。*
 
-#### How long can SR hold on?
+#### How long can Esuar hold on?
 
 *はたしてエスアールはどこまで粘れるか。*
 

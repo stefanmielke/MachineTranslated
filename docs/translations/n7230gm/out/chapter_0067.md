@@ -137,7 +137,7 @@
 
 &nbsp;
 
-#### "Of course, I will go! Even if my father opposes it, I will definitely follow you, Sir S.R.――Mr. S.R.!"
+#### "Of course, I will go! Even if my father opposes it, I will definitely follow you, Sir Esuar――Mr. Esuar!"
 
 *「もちろん行きますわ！　お父様がたとえ反対しようとも、絶対にエスアール様――エスアールさんについていきます！」*
 
@@ -261,7 +261,7 @@
 
 &nbsp;
 
-#### "Hmm… But if it’s a request from S.R., I think he would be willing to accommodate a little? My father is grateful to you, so I think it’s okay to be a bit more assertive."
+#### "Hmm… But if it’s a request from Esuar, I think he would be willing to accommodate a little? My father is grateful to you, so I think it’s okay to be a bit more assertive."
 
 *「むぅ……。だが、エスアールからの要望であれば、少しは無理を聞いてくれると思うぞ？　父は貴方に感謝しているのだし、もう少し威張ってもいいと思うが」*
 
@@ -279,7 +279,7 @@
 
 &nbsp;
 
-#### "If S.R. says so… understood. I will convey that to my father."
+#### "If Esuar says so… understood. I will convey that to my father."
 
 *「エスアールがそう言うのであれば……わかった。そのように父に伝えてくる」*
 

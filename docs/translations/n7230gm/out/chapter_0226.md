@@ -123,7 +123,7 @@
 
 &nbsp;
 
-#### "Exactly. SR should tell that idiot over there to 'get married already.'"
+#### "Exactly. Esuar should tell that idiot over there to 'get married already.'"
 
 *「ですです。エスアールもそこのアホに『いい加減結婚しろ』と言ってやるです」*
 

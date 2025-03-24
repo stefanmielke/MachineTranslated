@@ -277,13 +277,13 @@
 
 &nbsp;
 
-#### “Understood! By the way, today, Lord SR was really cool! You truly felt like a hero!”
+#### “Understood! By the way, today, Lord Esuar was really cool! You truly felt like a hero!”
 
 *「わかりました！　それにしても、今日のエスアール様は本当にかっこよかったです！　まさに勇者様といった感じでした！」*
 
 &nbsp;
 
-#### “Lord SR has a completely different atmosphere when fighting compared to usual. When I first met you, I thought you were a very gentle person, but when facing monsters, you seem like a mischievous boy—ah, I don’t mean that in a bad way! I’m complimenting you!”
+#### “Lord Esuar has a completely different atmosphere when fighting compared to usual. When I first met you, I thought you were a very gentle person, but when facing monsters, you seem like a mischievous boy—ah, I don’t mean that in a bad way! I’m complimenting you!”
 
 *「エスアール様は、普段と戦っている時では随分と雰囲気が違いますね。初めてお会いした時は、とても穏やかな方だと思いましたが、魔物を相手にしている時はやんちゃな少年みたいです――あっ、これは悪い意味ではなくてですね！　褒めているんですっ！」*
 
@@ -295,7 +295,7 @@
 
 &nbsp;
 
-#### “Not at all. I can’t thank Lord SR enough. I will definitely learn by watching your battles!”
+#### “Not at all. I can’t thank Lord Esuar enough. I will definitely learn by watching your battles!”
 
 *「とんでもないです。エスアール様には感謝してもしきれません。必ずお役に立てるよう、戦いを見て学ばせていただきます！」*
 
@@ -333,7 +333,7 @@
 
 &nbsp;
 
-#### “Until the martial arts tournament, can I call you Master SR?”
+#### “Until the martial arts tournament, can I call you Master Esuar?”
 
 *「武闘大会までだけでも、エスアールのことを師匠と呼ばせてくれないか？」*
 

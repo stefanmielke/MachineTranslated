@@ -81,7 +81,7 @@
 
 &nbsp;
 
-#### "I also know about SR. I heard you have been trained by the Thunderbolt's Trail."
+#### "I also know about Esuar. I heard you have been trained by the Thunderbolt's Trail."
 
 *「エスアールのことも知っている。君は迅雷の軌跡たちから訓練を受けているそうだな」*
 

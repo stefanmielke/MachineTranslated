@@ -1,7 +1,7 @@
 ###### [Next Chapter](./chapter_0058.md)
 ###### [Previous Chapter](./chapter_0056.md)&nbsp;/&nbsp;
 
-# 55 The Thoughts of SR
+# 55 The Thoughts of Esuar
 
 ## ５５　エスアールの想い
 
@@ -131,7 +131,7 @@
 
 &nbsp;
 
-#### “I’m looking forward to your match, SR-sama. I’ll be cheering for you!”
+#### “I’m looking forward to your match, Esuar-sama. I’ll be cheering for you!”
 
 *「エスアール様の試合、楽しみです。応援してますね」*
 
@@ -155,7 +155,7 @@
 
 &nbsp;
 
-#### “That’s not true! Just seeing you move, SR-sama, is already worth watching! I’m satisfied!”
+#### “That’s not true! Just seeing you move, Esuar-sama, is already worth watching! I’m satisfied!”
 
 *「そんなことありませんわ！　エスアール様が動いているだけで、見ごたえはバッチリです！　満足です！」*
 
@@ -173,7 +173,7 @@
 
 &nbsp;
 
-#### “Besides, if SR were to fight seriously, it would be difficult for even the Thunderbolt's Trajectory to match up. Even though Shin and the others have become stronger, SR is also leveling up.”
+#### “Besides, if Esuar were to fight seriously, it would be difficult for even the Thunderbolt's Trajectory to match up. Even though Shin and the others have become stronger, Esuar is also leveling up.”
 
 *「そもそもエスアールが本気で戦うこととなれば、いくら迅雷の軌跡といえど相手をするのは難しいだろう。シンたちも強くなっているとはいえ、同じようにエスアールもレベルが上がっているわけだし」*
 
@@ -185,7 +185,7 @@
 
 &nbsp;
 
-#### “That sounds tough in its own right... But I’m sure SR-sama will be fine.”
+#### “That sounds tough in its own right... But I’m sure Esuar-sama will be fine.”
 
 *「それはそれで大変そうですね……でも、エスアール様ならきっと大丈夫ですよ」*
 
@@ -251,7 +251,7 @@
 
 &nbsp;
 
-#### “SR-sama, don’t you feel anxious? I know you’re strong, but your opponents are the Thunderbolt's Trajectory…”
+#### “Esuar-sama, don’t you feel anxious? I know you’re strong, but your opponents are the Thunderbolt's Trajectory…”
 
 *「エスアール様は不安になることはないのですか？　貴方様が強いのは知っていますが、相手は迅雷の軌跡の方々ですし……」*
 

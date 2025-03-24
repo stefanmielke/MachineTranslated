@@ -149,7 +149,7 @@
 
 &nbsp;
 
-#### "Hey, SR. Can I try it too?"
+#### "Hey, Esuar. Can I try it too?"
 
 *「なぁエスアール。ちょっと俺も試してみていいか？」*
 

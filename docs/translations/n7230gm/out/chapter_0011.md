@@ -221,7 +221,7 @@
 
 &nbsp;
 
-#### Surprisingly, he—SR—wasn't a resident of this world. If he was such a valuable person, then it made sense that he needed protection. The introduction was so absurd that I was able to calm down a little.
+#### Surprisingly, he—Esuar—wasn't a resident of this world. If he was such a valuable person, then it made sense that he needed protection. The introduction was so absurd that I was able to calm down a little.
 
 *なんと彼――エスアールは、この世界の住人ではないらしい。確かに、そんな貴重な人材ならば護衛が必要だろう。あまりにも突拍子もない紹介だったために、私は少しだけ冷静になることができた。*
 
@@ -375,7 +375,7 @@
 
 &nbsp;
 
-#### Frustration—anxiety—helplessness—various emotions mixed together, and I instinctively thrust towards SR's eyes.
+#### Frustration—anxiety—helplessness—various emotions mixed together, and I instinctively thrust towards Esuar's eyes.
 
 *苛立ち――焦り――不甲斐なさ――色々な感情が合わさり、私は咄嗟にエスアールの目に向けて突きを放ってしまった。*
 
@@ -393,7 +393,7 @@
 
 &nbsp;
 
-#### The tip of my sword was closing in on his eye. Yet, for some reason, SR stepped towards me.
+#### The tip of my sword was closing in on his eye. Yet, for some reason, Esuar stepped towards me.
 
 *彼の眼球に剣の切先が迫る。だというのに、何故かエスアールはこちらへと足を踏み出していた。*
 
@@ -453,7 +453,7 @@
 
 &nbsp;
 
-#### SR emerged from the dungeon after about two hours, just as he had declared.
+#### Esuar emerged from the dungeon after about two hours, just as he had declared.
 
 *エスアールは、宣言通り２時間ほどでダンジョンから出てきた。*
 
@@ -463,7 +463,7 @@
 
 &nbsp;
 
-#### And unbelievably, SR then said he was heading to a D-rank dungeon next.
+#### And unbelievably, Esuar then said he was heading to a D-rank dungeon next.
 
 *そして信じられないことに、エスアールはこの後Ｄランクダンジョンへと向かうと言い出したのだ。*
 
@@ -481,7 +481,7 @@
 
 &nbsp;
 
-#### SR brushed off my persuasion with a grin and, in the end, entered the D-rank dungeon without even properly equipping himself.
+#### Esuar brushed off my persuasion with a grin and, in the end, entered the D-rank dungeon without even properly equipping himself.
 
 *エスアールは私の説得をヘラヘラと受け流し、結局、装備もろくに整えることのないままＤランクダンジョンへと入っていった。*
 

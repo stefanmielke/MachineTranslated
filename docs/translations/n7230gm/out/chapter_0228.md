@@ -97,13 +97,13 @@
 
 &nbsp;
 
-#### "Hehe, but I don't want to worry SR, so we'll go together. That's okay with you, right, Mika?"
+#### "Hehe, but I don't want to worry Esuar, so we'll go together. That's okay with you, right, Mika?"
 
 *「ふふっ、でもＳＲさんに心配はかけたくないので、二人で行くことにします。ミカもそれでいいよね？」*
 
 &nbsp;
 
-#### "I guess it can't be helped. If I worry too much and SR can't move, that would be sad, so we'll do that."
+#### "I guess it can't be helped. If I worry too much and Esuar can't move, that would be sad, so we'll do that."
 
 *「しょうがないッスね～。心配しすぎてＳＲさんが動けなくなったら可哀想っスから、そうするっス」*
 
@@ -205,7 +205,7 @@
 
 &nbsp;
 
-#### "I hear there's something like archery target practice. There seem to be various other things, but if it's SR, you'll definitely win."
+#### "I hear there's something like archery target practice. There seem to be various other things, but if it's Esuar, you'll definitely win."
 
 *「弓の的当てのようなものがあるらしいな。他にもいろいろあるようだが、エスアールなら優勝間違いなしだろう」*
 

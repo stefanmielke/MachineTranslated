@@ -233,7 +233,7 @@
 
 &nbsp;
 
-#### "That's right. I thought maybe I could have a little fun with Rezel's S-rank, but if the opponent is too weak, I can't really tell the difference. Plus, it seems like I could finally fight SR-san with all my strength after a long time."
+#### "That's right. I thought maybe I could have a little fun with Rezel's S-rank, but if the opponent is too weak, I can't really tell the difference. Plus, it seems like I could finally fight Esuar-san with all my strength after a long time."
 
 *「そうだねぇ。ボクもレゼルのＳランクで『ちょっとは楽しめるのかな？』なんて思ったけど、相手が弱すぎると違いもあまりわからないから。それに、そこでならＳＲさんと久しぶりに全力で戦えそうですし」*
 
@@ -251,7 +251,7 @@
 
 &nbsp;
 
-#### "If SR-san can enjoy it, then I'm all for it."
+#### "If Esuar-san can enjoy it, then I'm all for it."
 
 *「私はエスアールさんが楽しめるのなら大賛成です」*
 

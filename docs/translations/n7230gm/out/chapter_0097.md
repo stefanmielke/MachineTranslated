@@ -43,7 +43,7 @@
 
 &nbsp;
 
-#### "Haha, there's no way I'm backing down after coming this far. Besides, what I learned from SR earlier would go to waste."
+#### "Haha, there's no way I'm backing down after coming this far. Besides, what I learned from Esuar earlier would go to waste."
 
 *「ははっ、ここまで来て引くわけがないだろう。それに、先程エスアールに教えてもらったことが無駄になってしまうしな」*
 
@@ -353,7 +353,7 @@
 
 &nbsp;
 
-#### "I'm not trying to rush you… but please don't overdo it, okay? I'm worried about SR being left alone. I don't think you'll lose, but Venom is still strong, right?"
+#### "I'm not trying to rush you… but please don't overdo it, okay? I'm worried about Esuar being left alone. I don't think you'll lose, but Venom is still strong, right?"
 
 *「別に急かすつもりじゃないんだが……無理はしないでくれよ？　私は一人になったエスアールが心配だ。貴方が負けるとは思わないが、ベノムというのはやはり強いんだろう？」*
 
@@ -427,7 +427,7 @@
 
 &nbsp;
 
-#### "This is my last selfish request. SR."
+#### "This is my last selfish request. Esuar."
 
 *「最後の我儘だ。エスアール」*
 

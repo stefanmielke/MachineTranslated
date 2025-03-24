@@ -29,7 +29,7 @@
 
 &nbsp;
 
-#### With a lackadaisical shout from SR, the four-on-one mock battle began. Just five seconds after the start, we were already being scattered by SR.
+#### With a lackadaisical shout from Esuar, the four-on-one mock battle began. Just five seconds after the start, we were already being scattered by Esuar.
 
 *そんな気の抜けたようなエスアールの掛け声で始まった四対一の模擬戦。スタートしてからわずか５秒後には、すでに俺たちはエスアールに蹴散らされていた。*
 
@@ -83,7 +83,7 @@
 
 &nbsp;
 
-#### Noah complained, then leaped off the ground with such force that it dug into the earth, charging toward SR with great speed. She was faster than anyone else present, except for the opponent, of course.
+#### Noah complained, then leaped off the ground with such force that it dug into the earth, charging toward Esuar with great speed. She was faster than anyone else present, except for the opponent, of course.
 
 *ノアは愚痴るように言うと、地面を抉るほどの力強さで足を踏み切り、勢いよくエスアールの下へと駆け出していく。そのスピードは、この場にいる誰よりも速い。もちろん、相手を除いてだが。*
 
@@ -93,7 +93,7 @@
 
 &nbsp;
 
-#### At the same time Noah dashed forward, Jill, who had somehow gotten back on her feet, also ran toward SR. With eyes filled with fighting spirit and a quick recovery, it seemed both of them were still far from broken.
+#### At the same time Noah dashed forward, Jill, who had somehow gotten back on her feet, also ran toward Esuar. With eyes filled with fighting spirit and a quick recovery, it seemed both of them were still far from broken.
 
 *そしてノアが駆け出すと同時、いつの間にか立ち上がっていたジルもエスアールへと走り出していた。闘争心の宿った目といい、立ち直りの早さといい、どうやら二人ともまだまだ心は折れていないらしい。*
 
@@ -105,7 +105,7 @@
 
 &nbsp;
 
-#### SR murmured, showing no sign of feeling threatened by the approaching duo.
+#### Esuar murmured, showing no sign of feeling threatened by the approaching duo.
 
 *差し迫る二人をまったく脅威と感じていない様子で、エスアールが呟く。*
 
@@ -117,7 +117,7 @@
 
 &nbsp;
 
-#### As she said this, SR swayed her body with a strange weight shift, and in the next moment, she was right in front of Noah.
+#### As she said this, Esuar swayed her body with a strange weight shift, and in the next moment, she was right in front of Noah.
 
 *そう言いながら、エスアールは不思議な体重移動で身体をふらふらと揺らしたかと思うと、次の瞬間にはノアの目前に。*
 
@@ -145,7 +145,7 @@
 
 &nbsp;
 
-#### More importantly, there's SR.
+#### More importantly, there's Esuar.
 
 *と、そんなことよりエスアールだ。*
 
@@ -157,7 +157,7 @@
 
 &nbsp;
 
-#### SR had said she wouldn't use skills... which means that fire spell was the one Noah had prepared earlier...? Did she even use that?
+#### Esuar had said she wouldn't use skills... which means that fire spell was the one Noah had prepared earlier...? Did she even use that?
 
 *エスアールはスキルを使わないと言っていた……ということはあの射出魔法は、ノアが先ほど準備していた魔法……？　それすらも利用したっていうのか？*
 
@@ -169,7 +169,7 @@
 
 &nbsp;
 
-#### Saying this, SR, without caring that her opponent was a seemingly young girl, delivered a heavy kick to Jill's midsection, who was distracted by the spell. The painful sound made us wince.
+#### Saying this, Esuar, without caring that her opponent was a seemingly young girl, delivered a heavy kick to Jill's midsection, who was distracted by the spell. The painful sound made us wince.
 
 *そう言いながら、エスアールは相手が見た目幼い女の子であることなど気にした様子もなく、魔法に気を取られていたジルのどてっぱらに重々しい蹴りを放つ。見聞きしているこちらが顔を顰めてしまうほどの、痛々しい音。*
 
@@ -183,7 +183,7 @@
 
 *ジルは地面に手をつき、苦しそうな咳とともに胃液を吐き出した。*
 
-#### With tears in her eyes, she glared fiercely in SR's direction.
+#### With tears in her eyes, she glared fiercely in Esuar's direction.
 
 *そして目を潤ませながら、キッとエスアールがいる方向を睨んでいる。*
 
@@ -209,7 +209,7 @@
 
 *その気持ちはわかるぞジル。*
 
-#### When I saw SR face off against the Cyclops, I wanted to question the existence of such a person. Even back then, when our levels were low, we were astonished. What Jill and Arnold are feeling now might be close to sheer terror.
+#### When I saw Esuar face off against the Cyclops, I wanted to question the existence of such a person. Even back then, when our levels were low, we were astonished. What Jill and Arnold are feeling now might be close to sheer terror.
 
 *俺もエスアールとサイクロプスの一騎打ちを見た時、あんな人間が存在するのかと疑いたくなったもんな。レベルが低かったあの時でさえ俺たちは驚愕したのだ。今のジルやアーノルドが感じているモノは、もはや恐怖に近いかもしれない。*
 
@@ -261,7 +261,7 @@
 
 &nbsp;
 
-#### SR was distributing elixirs to us as we lay defeated, saying, "Drink up."
+#### Esuar was distributing elixirs to us as we lay defeated, saying, "Drink up."
 
 *エスアールは倒れている俺たちに「飲んどけよ」とエリクサーを配っていく。*
 
@@ -277,7 +277,7 @@
 
 &nbsp;
 
-#### I hadn't even factored in the break time—while saying this, SR poked the bouncing slime with her finger. It looked like she was playing with it, but that's an enemy.
+#### I hadn't even factored in the break time—while saying this, Esuar poked the bouncing slime with her finger. It looked like she was playing with it, but that's an enemy.
 
 *休憩時間まで計算に入れてなかったわ――そう言いながら、エスアールは地面を跳ねるスライムを指で突いている。じゃれているようにも見えるが、敵だぞソレ。*
 
@@ -307,7 +307,7 @@
 
 &nbsp;
 
-#### "...That seems likely... Hah... It's so far removed from reality that it feels unreal. I keep thinking that what just happened was a dream. Does SR have multiple brains and eyes? That's impossible."
+#### "...That seems likely... Hah... It's so far removed from reality that it feels unreal. I keep thinking that what just happened was a dream. Does Esuar have multiple brains and eyes? That's impossible."
 
 *「……そうでしょうね……。――っはぁああああ……いくらなんでも離れすぎていて、現実味がないわ。今起こったことが夢なんじゃないかって思ってるもの。エスアールは脳と目が複数あるんじゃない？　ありえないでしょ」*
 
@@ -341,7 +341,7 @@
 
 &nbsp;
 
-#### Most likely, it was something like, "Wasn't it SR who truly discovered the profession?" or "Wasn't it SR who conquered the B-rank dungeon and saved the princess?" or something along those lines.
+#### Most likely, it was something like, "Wasn't it Esuar who truly discovered the profession?" or "Wasn't it Esuar who conquered the B-rank dungeon and saved the princess?" or something along those lines.
 
 *大方、『本当に職業を発見していたのはエスアールじゃないか』とか『Ｂランクダンジョンを踏破して王女を救ったのはエスアールじゃないか』とかそんなところだろう。*
 
@@ -363,7 +363,7 @@
 
 &nbsp;
 
-#### I will become stronger and someday I will defeat SR.
+#### I will become stronger and someday I will defeat Esuar.
 
 *もっと強くなって、いつかエスアールに打ち勝ってみせるさ。*
 

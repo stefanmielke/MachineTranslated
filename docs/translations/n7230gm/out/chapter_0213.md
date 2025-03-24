@@ -81,7 +81,7 @@
 
 &nbsp;
 
-#### "I'll follow SR's decision."
+#### "I'll follow Esuar's decision."
 
 *「ボクはＳＲさんの決定に従います」*
 
@@ -191,7 +191,7 @@
 
 &nbsp;
 
-#### "But SR is kind of the same, right?"
+#### "But Esuar is kind of the same, right?"
 
 *「でもＳＲさんも似たようなもんッスよね？」*
 
@@ -209,7 +209,7 @@
 
 &nbsp;
 
-#### "But, SR, you’re originally in your thirties, right? Isn’t it true that there are many people around you who are much younger?"
+#### "But, Esuar, you’re originally in your thirties, right? Isn’t it true that there are many people around you who are much younger?"
 
 *「でも、ＳＲさん、元が三十代ッスよね？　いまＳＲさんの周り、ひと回り年下の人たちが多くないッスか？」*
 
@@ -227,7 +227,7 @@
 
 &nbsp;
 
-#### "Huh? Ah, that’s true. So, does that mean SR likes younger people?"
+#### "Huh? Ah, that’s true. So, does that mean Esuar likes younger people?"
 
 *「ん？　あー、確かにそうッスね。じゃあＳＲさんは年下が好きなんッスか？」*
 

@@ -95,7 +95,7 @@
 
 &nbsp;
 
-#### "SR-kun, do you have any idea how long you've been fighting?"
+#### "Esuar-kun, do you have any idea how long you've been fighting?"
 
 *「ＳＲ君、自分がどれぐらい戦っていたかわかるかい？」*
 
@@ -189,7 +189,7 @@
 
 &nbsp;
 
-#### "Good night, SR-kun. Please rest well."
+#### "Good night, Esuar-kun. Please rest well."
 
 *「おやすみ、ＳＲ君。ゆっくり休んでくれ」*
 

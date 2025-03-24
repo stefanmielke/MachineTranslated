@@ -167,7 +167,7 @@
 
 &nbsp;
 
-#### "At the very least, it's certain that Lord S.R. was hiding his true strength... I don't know the reason, though. Still, with an unknown profession and unknown skills—I'm very curious, but it would be difficult to pry that information out. To oppose him would be nothing short of foolish."
+#### "At the very least, it's certain that Lord Esuar was hiding his true strength... I don't know the reason, though. Still, with an unknown profession and unknown skills—I'm very curious, but it would be difficult to pry that information out. To oppose him would be nothing short of foolish."
 
 *「少なくとも、エスアール殿が実力を隠していたことは確かでしょう……理由はわかりませんが。それにしても未知の職業に未知のスキル――知りたいのは山々ですが、無理に聞きだすのも難しいでしょう。彼と敵対するのは愚策としか言えません」*
 
@@ -191,13 +191,13 @@
 
 &nbsp;
 
-#### "Ha ha ha! I'm sorry for the trouble. However, I thought Lord S.R. would need achievements worthy of being Phenon's husband... but the roles have reversed in an instant. Is it really okay for me to stand next to him just because I'm a princess?"
+#### "Ha ha ha! I'm sorry for the trouble. However, I thought Lord Esuar would need achievements worthy of being Phenon's husband... but the roles have reversed in an instant. Is it really okay for me to stand next to him just because I'm a princess?"
 
 *「ふははははっ！　苦労を掛けてすまん。しかしエスアール殿にはフェノンの夫たりえる実績が必要だとは思っていたが……あっという間に立場が逆転してしまったな。はたして王女であるというだけで彼の隣に立って良いものか」*
 
 &nbsp;
 
-#### From Phenon's usual demeanor, it's clear that she has feelings for Lord S.R.
+#### From Phenon's usual demeanor, it's clear that she has feelings for Lord Esuar
 
 *フェノンの日頃の様子から、彼女がエスアール殿に好意を寄せているのは一目瞭然だ。*
 
@@ -211,7 +211,7 @@
 
 &nbsp;
 
-#### "I think it would be fine. Above all, he—Lord S.R. himself seemed to want that—ah, it's likely that Count Bernot's Sera and the maid Shiri will also marry him. Worrying about his capability is a waste of time."
+#### "I think it would be fine. Above all, he—Lord Esuar himself seemed to want that—ah, it's likely that Count Bernot's Sera and the maid Shiri will also marry him. Worrying about his capability is a waste of time."
 
 *「問題ないと思いますよ。何よりも、彼――エスアール殿自身がそれを望んでいる様子でしたので――あぁ、おそらくはベルノート伯爵家のセラと、メイドのシリーも彼の元に嫁ぐことになるでしょうな。甲斐性に関しては心配するだけ無駄でしょう」*
 
@@ -237,7 +237,7 @@
 
 &nbsp;
 
-#### "From what we've discussed so far, I believe Lord S.R. would prefer to be treated normally."
+#### "From what we've discussed so far, I believe Lord Esuar would prefer to be treated normally."
 
 *「これまで話してきた様子からして、エスアール殿は普段通りに接して欲しいと思いますがね」*
 

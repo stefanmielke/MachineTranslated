@@ -105,7 +105,7 @@
 
 &nbsp;
 
-#### Name: SR
+#### Name: Esuar
 
 *名前︰ＳＲ*
 
@@ -149,7 +149,7 @@
 
 &nbsp;
 
-#### "Lord SR, do you have any plans for tomorrow?"
+#### "Lord Esuar, do you have any plans for tomorrow?"
 
 *「エスアール様、明日は何かご予定がありますか？」*
 
@@ -181,7 +181,7 @@
 
 &nbsp;
 
-#### "It's not a big deal, but my father wants to talk to you, Lord SR, and he has cleared his schedule for tomorrow."
+#### "It's not a big deal, but my father wants to talk to you, Lord Esuar, and he has cleared his schedule for tomorrow."
 
 *「大したことではないのですが、お父様がエスアール様とお話をしたいらしく、明日の予定を空けているそうなので」*
 
@@ -237,7 +237,7 @@
 
 &nbsp;
 
-#### "Um, SR?"
+#### "Um, Esuar?"
 
 *「あの、エスアール？」*
 
@@ -295,7 +295,7 @@
 
 &nbsp;
 
-#### "SR is not a bug! He is a proper human!"
+#### "Esuar is not a bug! He is a proper human!"
 
 *「エスアールは虫などではない！　ちゃんとした人間だ！」*
 
@@ -313,7 +313,7 @@
 
 &nbsp;
 
-#### "Is that so? I-I-I don't have any such intentions, but if that were the case, with SR, it should be fine. After all, he has the endorsement of Fenon and His Majesty."
+#### "Is that so? I-I-I don't have any such intentions, but if that were the case, with Esuar, it should be fine. After all, he has the endorsement of Fenon and His Majesty."
 
 *「そ、そうだろうか？　べ、べべべつに私はそそそそんなつもりはないが、も、もしそうだとしても、エスアールならば、問題ないだろう。なにせフェノンや陛下のお墨付きなのだからな」*
 
@@ -331,7 +331,7 @@
 
 &nbsp;
 
-#### "If there are any complaints about Lord SR, even if it's the Count—"
+#### "If there are any complaints about Lord Esuar, even if it's the Count—"
 
 *「もしエスアール様に不満があるなどと言ったら、その時はたとえ伯爵といえど――」*
 
@@ -387,7 +387,7 @@
 
 &nbsp;
 
-#### "Lord SR, you are also a power holder like Sera and the others, you know? Please be aware of that."
+#### "Lord Esuar, you are also a power holder like Sera and the others, you know? Please be aware of that."
 
 *「エスアール様も、セラ様たちと同じ権力者なのですよ？　きちんとご自覚なさってくださいね」*
 

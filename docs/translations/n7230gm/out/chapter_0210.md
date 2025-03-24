@@ -73,7 +73,7 @@
 
 &nbsp;
 
-#### "Is there anywhere you want to go, SR?"
+#### "Is there anywhere you want to go, Esuar?"
 
 *「エスアールはどこか行きたいところはあるか？」*
 
@@ -213,7 +213,7 @@
 
 &nbsp;
 
-#### "You're kind, SR."
+#### "You're kind, Esuar."
 
 *「エスアールは優しいな」*
 
@@ -225,7 +225,7 @@
 
 &nbsp;
 
-#### "But that doesn't mean you have to hold back, SR. While it's certainly fun to stroll around the city like this, I, like you, also enjoy dungeon exploration just as much."
+#### "But that doesn't mean you have to hold back, Esuar. While it's certainly fun to stroll around the city like this, I, like you, also enjoy dungeon exploration just as much."
 
 *「だが、それでエスアールが我慢する必要はないのだぞ？　こうして二人で街を散策するのもたしかに楽しいが、私も貴方と同様で、ダンジョン探索も同じぐらい好きだからな」*
 

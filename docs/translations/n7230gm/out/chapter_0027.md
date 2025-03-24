@@ -185,7 +185,7 @@
 
 &nbsp;
 
-#### "Did you call for me? Lord SR."
+#### "Did you call for me? Lord Esuar."
 
 *「お呼びでしょうか？　エスアール様」*
 
@@ -295,7 +295,7 @@
 
 &nbsp;
 
-#### "Yes. Since both Lady Sera and Lord SR had injuries, and everyone seemed quite exhausted, the audience with His Majesty has been postponed until tomorrow. I don't know the details about it either..."
+#### "Yes. Since both Lady Sera and Lord Esuar had injuries, and everyone seemed quite exhausted, the audience with His Majesty has been postponed until tomorrow. I don't know the details about it either..."
 
 *「はい。セラ様とエスアール様は怪我のこともありましたし、なにより皆様大変お疲れのご様子でしたから、陛下との謁見は明日となりました。内容に関しては、私も詳しいことは聞いておりませんので……」*
 
@@ -417,7 +417,7 @@
 
 &nbsp;
 
-#### "More than me, it's you, SR. You promised not to overdo it, yet you seem to have pushed yourself quite a bit."
+#### "More than me, it's you, Esuar. You promised not to overdo it, yet you seem to have pushed yourself quite a bit."
 
 *「私のことよりも、エスアールだ。人に無茶をするなと約束させておきながら、自分は随分と無理をしたようだが？」*
 
@@ -547,7 +547,7 @@
 
 &nbsp;
 
-#### "Thank you, SR."
+#### "Thank you, Esuar."
 
 *「ありがとう、エスアール」*
 

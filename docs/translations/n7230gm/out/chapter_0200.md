@@ -115,7 +115,7 @@
 
 &nbsp;
 
-#### “--- Huuuu… I have to do this, or it won't mean anything. I can't waste the opportunity that SR-san has given me”
+#### “--- Huuuu… I have to do this, or it won't mean anything. I can't waste the opportunity that Esuar-san has given me”
 
 *「――ふううううう……やらなきゃ、やらなきゃ意味ないでしょう。私のためにＳＲさんが与えてくれた機会、無駄にするわけにはいきません」*
 
@@ -133,7 +133,7 @@
 
 &nbsp;
 
-#### “Hehe, is the S in SR for Sadist?”
+#### “Hehe, is the S in Esuar for Sadist?”
 
 *「ふふっ、ＳＲさんのＳはサディストのＳなんですか？」*
 
@@ -167,7 +167,7 @@
 
 &nbsp;
 
-#### “So SR… it’s straightforward, huh?”
+#### “So Esuar… it’s straightforward, huh?”
 
 *「それでＳＲ……そのまんまッスね」*
 
@@ -203,7 +203,7 @@
 
 &nbsp;
 
-#### “It's fine. Everyone confuses it with Super Rare or Sniper Rifle anyway—well, just for clarity, let's stick with SR here. I'm living as SR in this world now. The Rokudo Shuui from Earth is already dead.”
+#### “It's fine. Everyone confuses it with Super Rare or Sniper Rifle anyway—well, just for clarity, let's stick with Esuar here. I'm living as Esuar in this world now. The Rokudo Shuui from Earth is already dead.”
 
 *「いいんだよ。みんなスーパーレアとかスナイパーライフルと勘違いしてるし――ま、他の人が混乱しないよう、こっちではＳＲで頼むよ。俺はこの世界で、ＳＲとして生きているんだからな。地球の六道修維は、もう死んだ」*
 

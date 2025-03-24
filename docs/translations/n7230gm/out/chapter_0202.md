@@ -187,7 +187,7 @@
 
 &nbsp;
 
-#### "I wonder about that," I said, tilting my head, and Crescent called out to me with a grin, "SR-san, SR-san." After clearing his throat, he said,
+#### "I wonder about that," I said, tilting my head, and Crescent called out to me with a grin, "Esuar-san, Esuar-san." After clearing his throat, he said,
 
 *「どうですかね」と首を傾げつつ言うと、クレセントが「ＳＲさんＳＲさん」とニヤニヤしながら声を掛けてきた。そして咳ばらいをしてから、*
 

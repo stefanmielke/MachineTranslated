@@ -159,7 +159,7 @@
 
 &nbsp;
 
-#### "I am SR, a party member of ASR from the Lindale Kingdom."
+#### "I am Esuar, a party member of ASR from the Lindale Kingdom."
 
 *「リンデール王国、ＡＳＲのパーティメンバーのＳＲです」*
 

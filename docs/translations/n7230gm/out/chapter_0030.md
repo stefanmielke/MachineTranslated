@@ -167,7 +167,7 @@
 
 &nbsp;
 
-#### "Does that relate to the fact that Lord SR and you were leveling up your lower-class jobs?"
+#### "Does that relate to the fact that Lord Esuar and you were leveling up your lower-class jobs?"
 
 *「それは、エスアール殿や君たちが、下級職のレベルを上げていたことと関係していますか？」*
 
@@ -393,7 +393,7 @@
 
 &nbsp;
 
-#### "…Yes. That means it must have been a bother for Lord SR to receive the title as well. However, this is also a request from a certain person. I hope you can understand."
+#### "…Yes. That means it must have been a bother for Lord Esuar to receive the title as well. However, this is also a request from a certain person. I hope you can understand."
 
 *「……えぇ。ということは、エスアール殿には称号もご迷惑でしたでしょうな。しかし、これはとある御方からの頼みでもあるのです。なにとぞご了承ください」*
 
@@ -429,7 +429,7 @@
 
 &nbsp;
 
-#### "Of course. After all, explorers have no borders, so it would be difficult to hide it even if we wanted to. However, is that alright with you, Lord SR? It seems you have no benefits from this."
+#### "Of course. After all, explorers have no borders, so it would be difficult to hide it even if we wanted to. However, is that alright with you, Lord Esuar? It seems you have no benefits from this."
 
 *「それはもちろん。どの道探索者に国境はありませんので、隠そうと思っても難しいでしょう。しかし、エスアール殿はそれでよろしいのですか？　貴方には何も利点が無いように思えますが」*
 

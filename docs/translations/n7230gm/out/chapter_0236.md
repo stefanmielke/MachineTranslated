@@ -65,7 +65,7 @@
 
 &nbsp;
 
-#### “Then it’s rock-paper-scissors with SR!”
+#### “Then it’s rock-paper-scissors with Esuar!”
 
 *「じゃあＳＲさんジャンケンっス！」*
 
@@ -81,7 +81,7 @@
 
 &nbsp;
 
-#### “Why is it assumed that we’re fighting solo…? Isn’t this the first time for SR and the others to see this enemy? Aren’t you scared?”
+#### “Why is it assumed that we’re fighting solo…? Isn’t this the first time for Esuar and the others to see this enemy? Aren’t you scared?”
 
 *「なんでソロで戦う前提なんだ……エスアールたちにとっても初めて見る敵なのだろう？　怖くはないのか？」*
 

@@ -119,7 +119,7 @@
 
 &nbsp;
 
-#### "Could it be that you are the one—Sir SR, who has received the title of 'Hero'?!"
+#### "Could it be that you are the one—Sir Esuar, who has received the title of 'Hero'?!"
 
 *「も、もしかして貴方様があの――『勇者』の称号をいただいたエスアール様ですか！？」*
 
@@ -257,7 +257,7 @@
 
 &nbsp;
 
-#### "I am Explorer SR."
+#### "I am Explorer Esuar."
 
 *「俺は探索者のＳＲです」*
 
@@ -333,7 +333,7 @@
 
 &nbsp;
 
-#### "Yes. Perhaps there is something written in the letter that might clarify—Sir SR, let’s read the sealed letter first."
+#### "Yes. Perhaps there is something written in the letter that might clarify—Sir Esuar, let’s read the sealed letter first."
 
 *「えぇ。もしかすると、手紙に何か書いているかもしれないわね――エスアール様、預かった封書を先に読んでもらいましょう」*
 
@@ -425,7 +425,7 @@
 
 &nbsp;
 
-#### "The monsters can all be handled by Sir SR alone. With Sera and Siri as guards, that should be sufficient. Just so you know, this matter is strictly confidential. If you accidentally let it slip to anyone else, the Lindell royal family will take action."
+#### "The monsters can all be handled by Sir Esuar alone. With Sera and Siri as guards, that should be sufficient. Just so you know, this matter is strictly confidential. If you accidentally let it slip to anyone else, the Lindell royal family will take action."
 
 *「魔物は全てエスアール様一人で対処できるわ。それに護衛もセラとシリーがいれば十分よ。言っておくけど、このことは口外禁止だから。もしうっかり他に漏らしたりなんかしたら、リンデール王家が相手になるわよ」*
 
@@ -475,7 +475,7 @@
 
 &nbsp;
 
-#### "Though I hold the position of Guild Master, I am also an active explorer. My highest achievement so far has been the third level of a B-rank dungeon. If I were to grant you entry, it wouldn't be enough just to defeat me. Show me that you can overwhelm me, Sir SR."
+#### "Though I hold the position of Guild Master, I am also an active explorer. My highest achievement so far has been the third level of a B-rank dungeon. If I were to grant you entry, it wouldn't be enough just to defeat me. Show me that you can overwhelm me, Sir Esuar."
 
 *「ギルドマスターの地位にはいるけど、僕は現役の探索者でもある。いままでの最高到達はＢランクダンジョンの３階層だ。入場を認めるとしたら、僕を倒すだけじゃ足りない。エスアール君一人で僕を圧倒してみせてくれ」*
 
@@ -553,7 +553,7 @@
 
 &nbsp;
 
-#### "I don't think this is the case, but don't even think about testing SR's abilities. If it comes to a one-on-one duel, make sure to hold back enough!"
+#### "I don't think this is the case, but don't even think about testing Esuar's abilities. If it comes to a one-on-one duel, make sure to hold back enough!"
 
 *『ないとは思うが、エスアールの力試しをしようなんてバカなことは考えるなよ。もし一騎打ちをすることになったなら、十分に手加減してもらえ！』*
 

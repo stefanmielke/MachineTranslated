@@ -189,7 +189,7 @@
 
 &nbsp;
 
-#### "SR, can I come in?"
+#### "Esuar, can I come in?"
 
 *「エスアール、入ってもいいか？」*
 
@@ -273,7 +273,7 @@
 
 &nbsp;
 
-#### "Yeah. The members of Jinrai no Kiseki were half in doubt about the status bonuses before entering the dungeon, but after defeating monsters without any issues, they seemed to have confirmed that what SR said was true. After that, it was a whirlwind of monster hunting. Of course, I believed what you said was true from the start."
+#### "Yeah. The members of Jinrai no Kiseki were half in doubt about the status bonuses before entering the dungeon, but after defeating monsters without any issues, they seemed to have confirmed that what Esuar said was true. After that, it was a whirlwind of monster hunting. Of course, I believed what you said was true from the start."
 
 *「あぁ。迅雷の軌跡の皆は、ダンジョンに入るまではステータスボーナスに関して半信半疑だったが、問題なく倒せたことで、エスアールの言ったことが真実だと確信したようだ。それからは怒涛の魔物狩りだった。もちろん、私は貴方の言ったことは本当だと信じていたがな」*
 
@@ -289,7 +289,7 @@
 
 &nbsp;
 
-#### "I reached level 30 the day before yesterday, and yesterday I spent the whole day reverting my job and confirming our coordination in the C-rank dungeon. Unlike Jinrai no Kiseki, I'm a solo explorer like you, SR."
+#### "I reached level 30 the day before yesterday, and yesterday I spent the whole day reverting my job and confirming our coordination in the C-rank dungeon. Unlike Jinrai no Kiseki, I'm a solo explorer like you, Esuar."
 
 *「レベル３０に到達したのは一昨日で、昨日はずっと職業を元に戻してから、Ｃランクダンジョンで連携の確認をしていた。迅雷の軌跡はともかく、私もエスアールと同じでソロの探索者だからな」*
 
@@ -421,7 +421,7 @@
 
 &nbsp;
 
-#### The three of them replied, and Sera-san and I responded that we had indeed slept well—or that SR might oversleep, etc.
+#### The three of them replied, and Sera-san and I responded that we had indeed slept well—or that Esuar might oversleep, etc.
 
 *３人はそれぞれ返事をしてくれて、俺とセラさんもそれに対して、ちゃんと寝ましたよ――とか、エスアールは寝坊するかもしれないから――などと返答する。*
 

@@ -73,7 +73,7 @@
 
 &nbsp;
 
-#### "You've never seen me fight, have you, SR? Where does that confidence come from? I have the strength to be chosen as a representative of the country, you know?"
+#### "You've never seen me fight, have you, Esuar? Where does that confidence come from? I have the strength to be chosen as a representative of the country, you know?"
 
 *「あんた――エスアールは私の戦うところを見たことがないでしょ？　どこからその自信はでてくるわけ？　私だって国の代表に選ばれるぐらいの力はあるのよ？」*
 
@@ -177,7 +177,7 @@
 
 &nbsp;
 
-#### "Jill, why don't you just show him the match against Shin or the Sword Princess? If SR and the others agree... but..."
+#### "Jill, why don't you just show him the match against Shin or the Sword Princess? If Esuar and the others agree... but..."
 
 *「ジル姉さん、シンや剣姫との試合を見せてもらえばいいんじゃないか？　エスアールたちが了承すれば……だが」*
 
@@ -255,7 +255,7 @@
 
 &nbsp;
 
-#### "That's fine. You really like to hide things, SR."
+#### "That's fine. You really like to hide things, Esuar."
 
 *「それでいいわ。本当にエスアールは隠すのが好きね」*
 
@@ -267,7 +267,7 @@
 
 &nbsp;
 
-#### "Yes. It's a bit hard to imagine that Noah-sama and SR are stronger than Shin and Sera, but... I'm looking forward to it."
+#### "Yes. It's a bit hard to imagine that Noah-sama and Esuar are stronger than Shin and Sera, but... I'm looking forward to it."
 
 *「うむ。ノア様やエスアールがシンやセラよりも強いというのは少し想像し辛いが……楽しみだな」*
 
@@ -301,7 +301,7 @@
 
 &nbsp;
 
-#### "Well, the second strongest after SR is Noah, right? What? Is there really that much of a gap between you two?"
+#### "Well, the second strongest after Esuar is Noah, right? What? Is there really that much of a gap between you two?"
 
 *「だって、エスアールの次に強いのがノアなんでしょ？　なに？　あんたたちの間にもそんなに差があるわけ？」*
 
@@ -351,7 +351,7 @@
 
 &nbsp;
 
-#### "Are you saying that SR is stronger than Noah-sama!?"
+#### "Are you saying that Esuar is stronger than Noah-sama!?"
 
 *「そのノア様よりもエスアールのほうが上だというのですかっ！？」*
 

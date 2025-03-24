@@ -215,7 +215,7 @@
 
 &nbsp;
 
-#### "I've heard that Duke Margus has sealed it――but it should be no problem for SR."
+#### "I've heard that Duke Margus has sealed it――but it should be no problem for Esuar."
 
 *「マーガス公爵が封鎖したと聞いているな――だが、エスアールなら問題ないはずだ」*
 
@@ -227,7 +227,7 @@
 
 &nbsp;
 
-#### "I think so too. After all, it’s Lord SR."
+#### "I think so too. After all, it’s Lord Esuar."
 
 *「私もそう思いますわ。なんと言っても、エスアール様ですから」*
 
@@ -249,7 +249,7 @@
 
 &nbsp;
 
-#### "As a hint, currently, Duke Margus is facing a certain problem. And Lord SR should be able to solve that problem quite easily."
+#### "As a hint, currently, Duke Margus is facing a certain problem. And Lord Esuar should be able to solve that problem quite easily."
 
 *「ヒントを差し上げますと、現在マーガス公爵はある問題を抱えているのです。そしてその問題を、エスアール様はいとも容易く解決できるでしょう」*
 
@@ -261,7 +261,7 @@
 
 &nbsp;
 
-#### "Yes, Duke Margus is a man of his word. If you ask Lord SR, I believe he will grant permission without hesitation."
+#### "Yes, Duke Margus is a man of his word. If you ask Lord Esuar, I believe he will grant permission without hesitation."
 
 *「えぇ、マーガス公爵は義理堅い御方ですから。エスアール様からお願いすれば二つ返事で許可すると思いますよ」*
 
@@ -335,7 +335,7 @@
 
 &nbsp;
 
-#### "Lord SR! I will do my best to be of help someday!"
+#### "Lord Esuar! I will do my best to be of help someday!"
 
 *「エスアール様！　私もいずれお力になれるよう頑張ります！」*
 

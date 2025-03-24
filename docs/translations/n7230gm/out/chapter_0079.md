@@ -67,7 +67,7 @@
 
 &nbsp;
 
-#### "That doesn't matter. Hey, SR, don't you think we should prioritize the leader's opinion? If you're a leader too, you should think so, right?"
+#### "That doesn't matter. Hey, Esuar, don't you think we should prioritize the leader's opinion? If you're a leader too, you should think so, right?"
 
 *「んなの関係ねぇよ。なぁ、エスアールもリーダーの意見を優先すべきだと思わないか？　お前さんもリーダーならそう思うだろ？」*
 
@@ -117,7 +117,7 @@
 
 &nbsp;
 
-#### "I, of course, want to enter with SR-sama—uhm!"
+#### "I, of course, want to enter with Esuar-sama—uhm!"
 
 *「私はもちろん、エスアール様と一緒に入り――んぶっ」*
 
@@ -361,7 +361,7 @@
 
 &nbsp;
 
-#### "—C-Come on, since it's just the two of us guys, let's talk more. SR has some nice muscles."
+#### "—C-Come on, since it's just the two of us guys, let's talk more. Esuar has some nice muscles."
 
 *「――ほ、ほらせっかく男二人なんだし、もっと話そうぜ。エスアールはいい筋肉シテルナー」*
 

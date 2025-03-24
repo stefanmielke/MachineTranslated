@@ -117,7 +117,7 @@
 
 &nbsp;
 
-#### "Don't be selfish. Both me and SR are holding back."
+#### "Don't be selfish. Both me and Esuar are holding back."
 
 *「わがまま言わないよ。私もＳＲさんも我慢してるんだから」*
 
@@ -145,7 +145,7 @@
 
 &nbsp;
 
-#### As I teased them, both of them replied, "Please call out if SR-san gets in trouble too (okay?)". They seemed quite relaxed in front of the monsters.
+#### As I teased them, both of them replied, "Please call out if Esuar-san gets in trouble too (okay?)". They seemed quite relaxed in front of the monsters.
 
 *からかうようにそう言うと、二人は揃って『ＳＲさんも危なくなったら叫んでくださいね（っス）』と言い返してきた。魔物を前にしながら随分と余裕である。*
 

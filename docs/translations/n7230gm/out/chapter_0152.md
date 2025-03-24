@@ -127,7 +127,7 @@
 
 &nbsp;
 
-#### "Excuse me. SR-san."
+#### "Excuse me. Esuar-san."
 
 *「失礼します。エスアールさん」*
 
@@ -273,7 +273,7 @@
 
 &nbsp;
 
-#### "I believe in you, SR. Your heart and your strength. ...For now, forget about us as the audience. Once you step into the arena, immerse yourself in your own world. Any unnecessary baggage will be a hindrance. So, focus solely on the fight. If you can exert your full power, there is no way you could lose, no matter what enemy appears."
+#### "I believe in you, Esuar. Your heart and your strength. ...For now, forget about us as the audience. Once you step into the arena, immerse yourself in your own world. Any unnecessary baggage will be a hindrance. So, focus solely on the fight. If you can exert your full power, there is no way you could lose, no matter what enemy appears."
 
 *「私はエスアールを信じているからな。貴方の心も、貴方の強さも。……私たち観客のことは、一旦忘れるといい。そして闘技場に足を踏み入れたら、自分の世界に没入するといい。余計なしがらみは足かせとなるだろう。だから、戦いだけに集中するんだ。もしエスアールが十全の力を発揮できるのならば、たとえどんな敵が現れようとも、貴方が負けることなどありえないのだから」*
 

@@ -145,7 +145,7 @@
 
 *０２５６：名無しの最強*
 
-#### Ah, SR, huh.
+#### Ah, Esuar, huh.
 
 *あぁ、ＳＲね。*
 
@@ -155,7 +155,7 @@
 
 *０２５７：名無しの最強*
 
-#### SR is a god. A paper god, though.
+#### Esuar is a god. A paper god, though.
 
 *ＳＲは神だろ。紙だけど。*
 
@@ -165,7 +165,7 @@
 
 *０２５９：名無しの最強*
 
-#### The name came out immediately, huh? I mean, every time a strongest thread is created, it ends with "Well, it's SR, right?" Do something about that! It's pointless to talk about players who have already retired.
+#### The name came out immediately, huh? I mean, every time a strongest thread is created, it ends with "Well, it's Esuar, right?" Do something about that! It's pointless to talk about players who have already retired.
 
 *即名前でてますやんｗ　というか最強スレ立つたびに『まぁＳＲだよねぇ』の結論で終わるのどうにかしろよｗ　もう引退してるプレイヤー語っても仕方ないだろうに。*
 
@@ -213,7 +213,7 @@
 
 *すみません三ヶ月前に始めたペーペーです。*
 
-#### That SR person? Were they really that strong? Stronger than Crescent from "Tsuki"?
+#### That Esuar person? Were they really that strong? Stronger than Crescent from "Tsuki"?
 
 *そのＳＲさん？　って人、そんなに強かったんですか？　『月』のクレセントさんよりも？*
 
@@ -227,7 +227,7 @@
 
 *ようこそテンペストへ新人君！*
 
-#### If you want to know about SR, feel free to ask anything.
+#### If you want to know about Esuar, feel free to ask anything.
 
 *ＳＲ君のことについて知りたければなんでも聞いてくれたまへ。*
 
@@ -237,7 +237,7 @@
 
 *０２７０：名無しの最強*
 
-#### Are you a fan of SR? lol
+#### Are you a fan of Esuar? lol
 
 *お前ＳＲのファンかよｗ*
 
@@ -267,7 +267,7 @@
 
 *０２７３：名無しの最強*
 
-#### I mean, is there anyone in this thread who doesn't like SR? lol There were often people saying they wanted to defeat SR, though.
+#### I mean, is there anyone in this thread who doesn't like Esuar? lol There were often people saying they wanted to defeat Esuar, though.
 
 *そもそもこのスレの住民でＳＲ嫌いなやつとかいないだろｗ　打倒ＳＲってやつはよくいたけどさ。*
 
@@ -277,7 +277,7 @@
 
 *０２７４：名無しの最強*
 
-#### Um, so, about SR…
+#### Um, so, about Esuar…
 
 *あのー、それでＳＲさんって……*
 
@@ -291,7 +291,7 @@
 
 *待たせたな！　そしてよくぞ聞いてくれた。*
 
-#### SR refers to the strongest player in Tempest who retired two years ago.
+#### Esuar refers to the strongest player in Tempest who retired two years ago.
 
 *ＳＲとは二年前に引退したテンペストの最強プレイヤーのことだ。*
 
@@ -309,7 +309,7 @@
 
 *お馬鹿さんｗ　まぁ間違ってないけどｗ*
 
-#### Their evasion ability was on another level. If you're curious, try searching "SR evasion." You'll find tons of videos.
+#### Their evasion ability was on another level. If you're curious, try searching "Esuar evasion." You'll find tons of videos.
 
 *回避能力がレベチだったよなぁ。新人君も気になったら『ＳＲ　回避』で検索してみたら？　めちゃくちゃ動画出てくるから。*
 
@@ -339,7 +339,7 @@
 
 *０２９５：名無しの最強*
 
-#### Is this a thread to worship SR?
+#### Is this a thread to worship Esuar?
 
 *ここはＳＲを崇めるスレですか？*
 
@@ -359,7 +359,7 @@
 
 *０２９９：名無しの最強*
 
-#### Even if a player stronger than Crescent comes out, it seems like it would still end up being "Well, they probably can't beat SR."
+#### Even if a player stronger than Crescent comes out, it seems like it would still end up being "Well, they probably can't beat Esuar."
 
 *まぁクレセント以上に強いプレイヤーが出てきたとしても、なんだかんだ『ＳＲには勝てんだろうなぁ』ってなりそうだよな。*
 

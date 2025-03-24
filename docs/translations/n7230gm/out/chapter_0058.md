@@ -73,7 +73,7 @@
 
 &nbsp;
 
-#### "I think SR is fine on par with monsters."
+#### "I think Esuar is fine on par with monsters."
 
 *「エスアールは魔物と同列で大丈夫だと思うです」*
 

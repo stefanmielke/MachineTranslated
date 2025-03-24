@@ -215,7 +215,7 @@
 
 &nbsp;
 
-#### "Do you think SR would have won even if we had participated?"
+#### "Do you think Esuar would have won even if we had participated?"
 
 *「エスアールは私たちが出場していても勝っていたと思うか？」*
 

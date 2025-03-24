@@ -83,7 +83,7 @@
 
 &nbsp;
 
-#### “Oh, seeing that outfit, you look like an SR!”
+#### “Oh, seeing that outfit, you look like an Esuar!”
 
 *「おー、その恰好を見ると、ＳＲさんって感じっス！」*
 
@@ -227,7 +227,7 @@
 
 &nbsp;
 
-#### “――As expected of an SR, you have eyes on the back of your head! I mean, in this situation, only a fool would try to counterattack like you!”
+#### “――As expected of an Esuar, you have eyes on the back of your head! I mean, in this situation, only a fool would try to counterattack like you!”
 
 *「――やっぱＳＲさん、背中に目が付いてるっス！　というかこの状況で反撃しようとするバカは、世界広しと言えどあなたぐらいっスよ！」*
 
@@ -461,7 +461,7 @@
 
 &nbsp;
 
-#### “SR! Outside! Let’s go outside!”
+#### “Esuar! Outside! Let’s go outside!”
 
 *「ＳＲさん！　外！　外行きましょう！」*
 

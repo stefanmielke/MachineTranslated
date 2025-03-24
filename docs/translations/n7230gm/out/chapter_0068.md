@@ -193,7 +193,7 @@
 
 &nbsp;
 
-#### “How many S-rank dungeons does SR say will appear? The higher the rank, the fewer dungeons there are, right?”
+#### “How many S-rank dungeons does Esuar say will appear? The higher the rank, the fewer dungeons there are, right?”
 
 *「エスアールが言う、Ｓランクダンジョンというのはどれぐらいの数が出現するの？　高ランクになるほど、ダンジョンの数は減っていくでしょう？」*
 

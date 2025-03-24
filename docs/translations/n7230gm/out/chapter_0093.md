@@ -483,11 +483,11 @@
 
 &nbsp;
 
-#### Don't give up, SR! (´；ω；｀)
+#### Don't give up, Esuar! (´；ω；｀)
 
 *折れるなエスアール！(´；ω；｀)*
 
-#### Hang in there, SR! (´；ω；｀)
+#### Hang in there, Esuar! (´；ω；｀)
 
 *がんばれエスアール！(´；ω；｀)*
 

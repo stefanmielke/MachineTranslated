@@ -305,7 +305,7 @@
 
 &nbsp;
 
-#### “I don’t want to hear that from someone who uses initials like SR!”
+#### “I don’t want to hear that from someone who uses initials like Esuar!”
 
 *「イニシャルを付けてるＳＲさんだけには言われたくないッス」*
 

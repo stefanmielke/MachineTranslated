@@ -331,7 +331,7 @@
 
 &nbsp;
 
-#### "Last night, someone from the guild visited from the royal capital. It seems the guild master there wants to hear detailed information about SR. Surely, he understands that you are the one who knows the most about the current situation."
+#### "Last night, someone from the guild visited from the royal capital. It seems the guild master there wants to hear detailed information about Esuar. Surely, he understands that you are the one who knows the most about the current situation."
 
 *「昨日の夜に王都からギルドの人間が訪ねてきたんだ。王都のギルドマスターがエスアールに詳しい話を聞きたいと言っていたらしい。きっと、今の状況について一番詳しいのは貴方だということは彼もわかっているのだろう」*
 

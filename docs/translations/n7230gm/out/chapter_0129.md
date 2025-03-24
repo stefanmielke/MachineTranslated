@@ -185,7 +185,7 @@
 
 &nbsp;
 
-#### "Even though I'm here to protect Arnold, with Noah and SR around, I probably won't have much of a role. So I thought I'd level up while I can—but was that a mistake?"
+#### "Even though I'm here to protect Arnold, with Noah and Esuar around, I probably won't have much of a role. So I thought I'd level up while I can—but was that a mistake?"
 
 *「アーノルドのお守とはいえ、ノアとエスアールがいるからな。私の出番はないだろうし、せっかくだからレベルを上げておこうと思ったんだが――ダメだったか？」*
 
@@ -209,7 +209,7 @@
 
 &nbsp;
 
-#### "Fufu, I'm SR's disciple, after all! Of course!"
+#### "Fufu, I'm Esuar's disciple, after all! Of course!"
 
 *「ふ、ふふふっ、私はエスアールの弟子だからなっ！　当然だ！」*
 
@@ -305,7 +305,7 @@
 
 &nbsp;
 
-#### "SR seems fine with just one sword, no matter the job. No need to rely on skills."
+#### "Esuar seems fine with just one sword, no matter the job. No need to rely on skills."
 
 *「エスアールはどの職業でも剣一本あれば大丈夫そうだがな。スキルに頼る必要もあるまい」*
 

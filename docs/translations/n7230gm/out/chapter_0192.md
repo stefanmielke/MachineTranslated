@@ -31,7 +31,7 @@
 
 &nbsp;
 
-#### “Should we take down the Cyclops with five of us? Or should SR handle it like last time?”
+#### “Should we take down the Cyclops with five of us? Or should Esuar handle it like last time?”
 
 *「サイクロプスも五人で倒すか？　それともあの時と同じようにエスアールがやるか？」*
 
@@ -111,7 +111,7 @@
 
 &nbsp;
 
-#### “I’ve never seen armor or weapons like that—SR, do you know who it is?”
+#### “I’ve never seen armor or weapons like that—Esuar, do you know who it is?”
 
 *「見たことのない防具と武器だ――エスアールは知っているか？」*
 
@@ -141,7 +141,7 @@
 
 &nbsp;
 
-#### “Oh! It’s really SR!”
+#### “Oh! It’s really Esuar!”
 
 *「おぉ！　本当にＳＲさんがいたっス！」*
 
@@ -173,7 +173,7 @@
 
 &nbsp;
 
-#### “Wow, I had an accident and died, you know? That guy who ran the red light is definitely going to hell. Oh, and then the god—was it Lady Idea? That person? That god? asked me if I wanted to come to this world, and I said yes right away because I heard SR was here!”
+#### “Wow, I had an accident and died, you know? That guy who ran the red light is definitely going to hell. Oh, and then the god—was it Lady Idea? That person? That god? asked me if I wanted to come to this world, and I said yes right away because I heard Esuar was here!”
 
 *「いやー、自分、事故って死んじゃったんスよねぇ。信号無視したアイツはきっと地獄に堕ちるッスよ。あ、それで神様――イデア様でしたっけ？　その人？　その神様？　にこの世界に来るかーって聞かれたんで、行きますって答えたッス。ＳＲさんがいるって聞いたから即答したッスね！」*
 
@@ -197,7 +197,7 @@
 
 &nbsp;
 
-#### “Yep! I was lightly told to fight some people from this world, so this is basically the mission given to me! SR, you soloed the Venom, right? You’re still doing crazy things!”
+#### “Yep! I was lightly told to fight some people from this world, so this is basically the mission given to me! Esuar, you soloed the Venom, right? You’re still doing crazy things!”
 
 *「そうっス！　軽くこの世界の人と戦ってくれーって言われたから、いわばこれが私に与えられた使命っスね！　ＳＲさんはソロでベノム討伐やったんっスよね？　相変わらずやることがぶっ飛んでるッスよ」*
 
@@ -209,7 +209,7 @@
 
 &nbsp;
 
-#### “Only someone like SR could do that! You’re still treated like a legend! There are still plenty of people who doubt it’s not cheating because your player skills are just insane!”
+#### “Only someone like Esuar could do that! You’re still treated like a legend! There are still plenty of people who doubt it’s not cheating because your player skills are just insane!”
 
 *「それができるのはエスアールさんぐらいッスよ！　いまでも伝説扱いですからね！　チートって疑う人も未だ大勢いるぐらい、プレイヤースキルヤバヤバッスから！」*
 
@@ -251,7 +251,7 @@
 
 &nbsp;
 
-#### “I feel like I want to clash with SR again after a long time, but for now, I’ll fulfill this god’s mission. I want to see the outside world instead of being stuck in such a gloomy place!”
+#### “I feel like I want to clash with Esuar again after a long time, but for now, I’ll fulfill this god’s mission. I want to see the outside world instead of being stuck in such a gloomy place!”
 
 *「久しぶりにＳＲさんとバチバチやり合いたい気もしますけど、とりあえず神様の使命とやらを全うすることにするッス。こんな陰気臭いとこじゃなくて、早く外も見てみたいッスからね！」*
 

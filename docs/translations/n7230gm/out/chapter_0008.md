@@ -57,7 +57,7 @@
 
 &nbsp;
 
-#### "Use this weapon. Since SR is also a swordsman, a sword should be fine, right?"
+#### "Use this weapon. Since Esuar is also a swordsman, a sword should be fine, right?"
 
 *「武器はこれを使え。エスアールも剣士だから剣でいいよな？」*
 
@@ -149,7 +149,7 @@
 
 &nbsp;
 
-#### "Now, we will begin the mock battle. The match will end when one party declares 'I give up' or becomes unable to act—alternatively, if I determine that continuation is impossible. Additionally, if SR can evade Sera's attacks for more than five minutes this time, he will be declared the winner!"
+#### "Now, we will begin the mock battle. The match will end when one party declares 'I give up' or becomes unable to act—alternatively, if I determine that continuation is impossible. Additionally, if Esuar can evade Sera's attacks for more than five minutes this time, he will be declared the winner!"
 
 *「では、これより模擬戦を始める。勝敗は一方が『まいった』と宣言するか、行動不能になった場合――もしくは俺が続行不可能と判断したら試合は終わりだ。それに加えて、今回に限りエスアールが５分以上セラの攻撃を躱すことができたら、エスアールの勝利とする！」*
 
@@ -427,7 +427,7 @@
 
 &nbsp;
 
-#### "Ah, damn it! I got it! The winner is SR!"
+#### "Ah, damn it! I got it! The winner is Esuar!"
 
 *「あーくそっ！　わかったよっ！　勝者、エスアールっ！」*
 

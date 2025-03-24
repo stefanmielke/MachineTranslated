@@ -45,7 +45,7 @@
 
 &nbsp;
 
-#### "Is SR okay? You look a bit better, but you don't seem 100%,"
+#### "Is Esuar okay? You look a bit better, but you don't seem 100%,"
 
 *「エスアールは大丈夫なのか？　顔色は少しマシに見えるが、万全っていう風には見えないぞ」*
 
@@ -315,7 +315,7 @@
 
 &nbsp;
 
-#### "Hehe, SR, watch me! My reborn swordsmanship!"
+#### "Hehe, Esuar, watch me! My reborn swordsmanship!"
 
 *「ふふん。エスアールも見ていてくれ、私の生まれ変わった剣術をっ！」*
 
@@ -613,7 +613,7 @@
 
 &nbsp;
 
-#### "—But, if you do that, SR—"
+#### "—But, if you do that, Esuar—"
 
 *「――っ！　だが、それではエスアールが――」*
 

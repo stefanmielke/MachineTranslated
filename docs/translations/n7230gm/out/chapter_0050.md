@@ -73,7 +73,7 @@
 
 &nbsp;
 
-#### "Please don't worry about us. The one who is most tired here is Lord SR."
+#### "Please don't worry about us. The one who is most tired here is Lord Esuar."
 
 *「私たちのことはお気になさらないでください。この中で一番疲れているのはエスアール様なのですから」*
 
@@ -327,7 +327,7 @@
 
 &nbsp;
 
-#### "...That's quite an extraordinary item. Lord SR, is there a limit to the number of these rings?"
+#### "...That's quite an extraordinary item. Lord Esuar, is there a limit to the number of these rings?"
 
 *「……それはまた、とんでもない代物ですね。エスアール様、こちらの指輪の個数に制限はないんでしょうか？」*
 
@@ -387,7 +387,7 @@
 
 &nbsp;
 
-#### At my words, Fenon smiled and said, "I'll leave it to you, Lord SR," while Shiri shook her head vigorously, looking flustered.
+#### At my words, Fenon smiled and said, "I'll leave it to you, Lord Esuar," while Shiri shook her head vigorously, looking flustered.
 
 *俺の言葉にフェノンさんは「エスアール様にお任せします」と笑顔で言い、シリーさんは恐縮した様子で手をブンブンと激しく横に振る。*
 
@@ -557,7 +557,7 @@
 
 &nbsp;
 
-#### "Ah, um... well. Th-thank you... Lord SR."
+#### "Ah, um... well. Th-thank you... Lord Esuar."
 
 *「あ、そ、その……だな。あ、ありがとう……エスアール」*
 

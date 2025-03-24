@@ -177,7 +177,7 @@
 
 &nbsp;
 
-#### "You should be more aware of your position in influencing the world's future, SR-kun..."
+#### "You should be more aware of your position in influencing the world's future, Esuar-kun..."
 
 *「ＳＲ君はもっと世界の行く末を左右する立場にいることを自覚するべきだよ……」*
 
@@ -231,7 +231,7 @@
 
 &nbsp;
 
-#### It has been three full days since SR-kun started leveling up.
+#### It has been three full days since Esuar-kun started leveling up.
 
 *ＳＲ君がレベル上げを始めてから、丸三日が経過した。*
 
@@ -253,7 +253,7 @@
 
 &nbsp;
 
-#### SR-kun is currently fighting all the bosses from the S-rank dungeon simultaneously. A one against six—it's a situation that would likely make my children flee barefoot. Ice, fire, wind—various magic and violence are attacking him, yet none have managed to catch him even once.
+#### Esuar-kun is currently fighting all the bosses from the S-rank dungeon simultaneously. A one against six—it's a situation that would likely make my children flee barefoot. Ice, fire, wind—various magic and violence are attacking him, yet none have managed to catch him even once.
 
 *ＳＲ君は今、Ｓランクダンジョンのボス全てと同時に戦っている。一対六の――僕の子供たちが見れば裸足で逃げ出してしまいそうな状況だ。氷、炎、風――様々な魔法や暴力が彼に襲い掛かるが、一度として彼を捉えることができていない。*
 
@@ -297,7 +297,7 @@
 
 &nbsp;
 
-#### It seems SR-kun recognizes the skill "Dodge" of the Brawler as something that reduces the time lag from perceiving with his eyes to moving his body, but that’s not the case.
+#### It seems Esuar-kun recognizes the skill "Dodge" of the Brawler as something that reduces the time lag from perceiving with his eyes to moving his body, but that’s not the case.
 
 *ＳＲ君は拳闘士のスキルである『見切り』のことを、目で捉えてから身体を動かすまでのタイムラグを減少させるモノ――として認識しているようだが、実際は違う。*
 
@@ -321,7 +321,7 @@
 
 &nbsp;
 
-#### This bizarre scene of six monsters fighting SR-kun, when I get used to it, seems to show that he is the one attacking the monsters rather than the other way around.
+#### This bizarre scene of six monsters fighting Esuar-kun, when I get used to it, seems to show that he is the one attacking the monsters rather than the other way around.
 
 *六体の魔物がＳＲ君と戦っているこの異様な光景も、見慣れてくると魔物がＳＲ君を襲っているのではなく、彼のほうが魔物を襲っているように見えるから不思議だ。*
 
@@ -375,7 +375,7 @@
 
 &nbsp;
 
-#### Watching SR-kun’s back, I couldn’t help but feel a sense of fear, almost close to terror. As a god, towards him, a mere human.
+#### Watching Esuar-kun’s back, I couldn’t help but feel a sense of fear, almost close to terror. As a god, towards him, a mere human.
 
 *僕はそんなＳＲ君の背中を見て、あろうことか恐怖に近い感情を抱いてしまった。神である僕が、人の身である彼に対して。*
 
@@ -421,7 +421,7 @@
 
 &nbsp;
 
-#### So, this is the meaning of SR's name!
+#### So, this is the meaning of Esuar's name!
 
 *と、言うわけで、これがＳＲの名前の意味です！*
 

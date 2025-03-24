@@ -183,7 +183,7 @@
 
 &nbsp;
 
-#### "Don't you want to buy a house in the royal capital, SR? I think it's inconvenient to always stay at an inn."
+#### "Don't you want to buy a house in the royal capital, Esuar? I think it's inconvenient to always stay at an inn."
 
 *「エスアールは王都に家を買わないですか？　いつも宿屋では不便だと思うですが」*
 
@@ -237,7 +237,7 @@
 
 &nbsp;
 
-#### "Then how about the inn that used to be the hideout of the thieves? The owner has surely been caught, so the land should be vacant—what do you think, SR?"
+#### "Then how about the inn that used to be the hideout of the thieves? The owner has surely been caught, so the land should be vacant—what do you think, Esuar?"
 
 *「それならちょうど窃盗犯のアジトとなっていた宿の場所がいいんじゃない？　所有者はもちろん捕まっているだろうから、土地もきっと空いたままだわ――エスアールさんはどう思いますか？」*
 

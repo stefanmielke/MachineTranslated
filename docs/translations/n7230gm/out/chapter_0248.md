@@ -171,7 +171,7 @@
 
 &nbsp;
 
-#### "Since it's SR, you must have beaten her up, right?"
+#### "Since it's Esuar, you must have beaten her up, right?"
 
 *「ＳＲさんのことだから、ボコボコにしたんスよね？」*
 
@@ -229,7 +229,7 @@
 
 &nbsp;
 
-#### "But SR fought against Neska's group, right?"
+#### "But Esuar fought against Neska's group, right?"
 
 *「でもＳＲさんはネスカさんたちとヤッたんですよね？」*
 
@@ -251,7 +251,7 @@
 
 &nbsp;
 
-#### "Princess, there's no need to apologize. That was completely SR's fault for being too conscious of that kind of thing. This is why boys... they always try to take things in a lewd direction..."
+#### "Princess, there's no need to apologize. That was completely Esuar's fault for being too conscious of that kind of thing. This is why boys... they always try to take things in a lewd direction..."
 
 *「姫ちゃん、謝ることはないっスよ。今のは完全にＳＲさんがそっち系を意識しすぎって感じっスから。まったく男子はこれだから……すーぐエッチな方向に持って行こうとするんっスよね～」*
 

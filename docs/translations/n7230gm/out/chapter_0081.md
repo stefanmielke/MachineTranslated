@@ -99,7 +99,7 @@
 
 &nbsp;
 
-#### “You don’t have to worry about manners. There are only explorers here… Besides, SR doesn’t like stiff meals, right?”
+#### “You don’t have to worry about manners. There are only explorers here… Besides, Esuar doesn’t like stiff meals, right?”
 
 *「別にマナーなんて気にしなくていいわ。ここには探索者しかいないのだし……それにエスアールさんも堅苦しい食事は嫌ですよね？」*
 
@@ -137,7 +137,7 @@
 
 &nbsp;
 
-#### “Sorry to interrupt your bliss, SR. This is a gift from us.”
+#### “Sorry to interrupt your bliss, Esuar. This is a gift from us.”
 
 *「とろけた顔しているところ悪いが、エスアール。俺たちからのプレゼントだ」*
 
@@ -377,7 +377,7 @@
 
 &nbsp;
 
-#### “N-No, SR! That part was just a slip of the hand――. Th-This part! The bent petal was Phenon’s doing.”
+#### “N-No, Esuar! That part was just a slip of the hand――. Th-This part! The bent petal was Phenon’s doing.”
 
 *「ち、違うんだエスアール！　その部分はちょっと手が滑っただけで――。こ、ここ！　花びらが曲がっているのはフェノンの仕業だぞ」*
 

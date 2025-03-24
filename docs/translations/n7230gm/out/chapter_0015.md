@@ -215,7 +215,7 @@
 
 &nbsp;
 
-#### “So, please trust me too, SR! I want to be by your side!”
+#### “So, please trust me too, Esuar! I want to be by your side!”
 
 *「だから、エスアールも私を信用してくれ！　私を、あなたの傍に置いてほしいっ！」*
 
@@ -307,7 +307,7 @@
 
 &nbsp;
 
-#### “Understood. If SR says so, let’s go together.”
+#### “Understood. If Esuar says so, let’s go together.”
 
 *「わかった。エスアールがそう言うなら、共に行こう」*
 
@@ -337,7 +337,7 @@
 
 &nbsp;
 
-#### “SR is special. It’s rare to even be guided to a private room, you know? Even if you were guided, I’ve never seen snacks served.”
+#### “Esuar is special. It’s rare to even be guided to a private room, you know? Even if you were guided, I’ve never seen snacks served.”
 
 *「エスアールが特別なんだ。そもそも個室に案内されること自体、稀なんだぞ？　案内されたとしても、茶菓子が出てきたことなぞ見たことがない」*
 
@@ -407,7 +407,7 @@
 
 &nbsp;
 
-#### “—Huh!? What are you talking about!? Sera and SR are not in that kind of relationship!”
+#### “—Huh!? What are you talking about!? Sera and Esuar are not in that kind of relationship!”
 
 *「――っ！？　なにをっ！？　私とエスアールはそのような関係ではないっ！」*
 
@@ -425,7 +425,7 @@
 
 &nbsp;
 
-#### “As SR said, there’s no time. The jokes end here.”
+#### “As Esuar said, there’s no time. The jokes end here.”
 
 *「エスアールが言ったように、時間がない。おふざけはここまでだ」*
 
@@ -441,7 +441,7 @@
 
 &nbsp;
 
-#### “Actually, I just wanted to hear about SR’s situation, but I could add something to discuss. Sera—well, that’s fine. It’s probably important for you too.”
+#### “Actually, I just wanted to hear about Esuar’s situation, but I could add something to discuss. Sera—well, that’s fine. It’s probably important for you too.”
 
 *「本当はエスアールの状況を聞きたいだけだったんだが、追加で話すことができた。セラは――まぁいいだろう。お前にとっても、大事なことだろうからな」*
 

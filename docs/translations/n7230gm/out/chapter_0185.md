@@ -21,7 +21,7 @@
 
 &nbsp;
 
-#### "Good job, SR."
+#### "Good job, Esuar."
 
 *「お疲れ様だ、エスアール」*
 
@@ -135,7 +135,7 @@
 
 &nbsp;
 
-#### "You’re not suggesting that SR's husband should join in, right...?"
+#### "You’re not suggesting that Esuar's husband should join in, right...?"
 
 *「代わりにエスアールの旦那が入るとか言わないよな……？」*
 
@@ -179,7 +179,7 @@
 
 &nbsp;
 
-#### It was impressive to see Shiri and Phenon with serious expressions, perhaps because they were frustrated about losing to Neska and the others. Before the match, they had said, "We can't let SR's face get any more mud on it!" So it might have been more important to them not to tarnish my reputation than the fact that they lost.
+#### It was impressive to see Shiri and Phenon with serious expressions, perhaps because they were frustrated about losing to Neska and the others. Before the match, they had said, "We can't let Esuar's face get any more mud on it!" So it might have been more important to them not to tarnish my reputation than the fact that they lost.
 
 *ネスカさんたちに負けたことが悔しかったのか、シリーとフェノンがマジな目つきになっていたのが印象的だった。試合前に「これ以上エスアールさんの顔に泥を塗るわけには行きません！」などと言っていたから、もしかすると自分が負けたということよりも、そっちの方が彼女たちにとって重要だったのかもしれない。*
 
@@ -199,7 +199,7 @@
 
 *その後も俺たちは暗くなるまで和気藹々と模擬戦を続けた。*
 
-#### In the end, Carl got really into it and said, "Let's somehow land a hit on SR!" and we ended up having a match with a total of eleven people, including Niz-kun, the guild master, and the members of ASR.
+#### In the end, Carl got really into it and said, "Let's somehow land a hit on Esuar!" and we ended up having a match with a total of eleven people, including Niz-kun, the guild master, and the members of ASR.
 
 *最後の方なんかはカルがムキになって「なんとかエスアールの旦那に一撃を浴びせようぜ」と発言し、ニーズ君やギルドマスター、そしてＡＳＲのメンバーをも加えた総勢十一名で俺と試合することに。*
 

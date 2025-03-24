@@ -89,7 +89,7 @@
 
 &nbsp;
 
-#### "They will definitely come. After all, it's SR who is going. If she changes her hair color and outfit, she shouldn't be recognized either. She was mostly in a dress when in public."
+#### "They will definitely come. After all, it's Esuar who is going. If she changes her hair color and outfit, she shouldn't be recognized either. She was mostly in a dress when in public."
 
 *「間違いなく来るぞ。なんといっても、エスアールが行くのだからな。彼女も髪色や服装が変われば気付かれることはないだろう。人前に出る時は、ほとんどドレス姿だったしな」*
 
@@ -263,7 +263,7 @@
 
 &nbsp;
 
-#### "Oh dear, that explorer is unfortunate. Of all people, to be targeted by SR."
+#### "Oh dear, that explorer is unfortunate. Of all people, to be targeted by Esuar."
 
 *「あらら、その探索者が気の毒ね。よりにもよってエスアールに目をつけられるなんて」*
 
@@ -387,7 +387,7 @@
 
 &nbsp;
 
-#### "Is SR still carrying a bomb?"
+#### "Is Esuar still carrying a bomb?"
 
 *「まだエスアールは爆弾を抱えてるですか」*
 

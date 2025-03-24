@@ -167,7 +167,7 @@
 
 &nbsp;
 
-#### “If I say I’m going to challenge it, Sera will definitely get angry. Phenon will probably have some unfounded confidence like, ‘You’ll be fine, SR!’”
+#### “If I say I’m going to challenge it, Sera will definitely get angry. Phenon will probably have some unfounded confidence like, ‘You’ll be fine, Esuar!’”
 
 *「挑むって言ったら、間違いなくセラは怒るよな。フェノンは『エスアールさんなら大丈夫！』なんて根拠もない自信を持ってそうだけど」*
 
@@ -223,13 +223,13 @@
 
 &nbsp;
 
-#### “SR will surely resent me.”
+#### “Esuar will surely resent me.”
 
 *「ＳＲ君はきっと、僕を恨むだろうな」*
 
 &nbsp;
 
-#### In the mirror reflecting the world, I see SR looking lovingly at the gifts from the party members. He touches the charm engraved with Yukarimusubi with a gentle hand, as if caressing a baby's cheek.
+#### In the mirror reflecting the world, I see Esuar looking lovingly at the gifts from the party members. He touches the charm engraved with Yukarimusubi with a gentle hand, as if caressing a baby's cheek.
 
 *世界を映し出す鏡には、パーティメンバーから貰ったプレゼントを愛おしそうに眺めるＳＲ君の姿が写っている。ユカリムスビの絵柄が彫られたお守りを、彼は赤子の頬でも撫でるような優しい手つきで触っていた。*
 
@@ -247,7 +247,7 @@
 
 &nbsp;
 
-#### Of course, SR cannot see me, so there is no reaction. The act of bowing my head is merely my own self-satisfaction.
+#### Of course, Esuar cannot see me, so there is no reaction. The act of bowing my head is merely my own self-satisfaction.
 
 *もちろん、ＳＲ君はこちらを見ることができないため、何も反応はない。頭を下げるという行為は、あくまで僕の自己満足だった。*
 
@@ -289,7 +289,7 @@
 
 &nbsp;
 
-#### Moreover, even if SR manages to destroy Venom as I expect, all I can offer him is at most the right to be completely reborn.
+#### Moreover, even if Esuar manages to destroy Venom as I expect, all I can offer him is at most the right to be completely reborn.
 
 *加えて、ＳＲ君が僕の想定通りベノムを滅ぼすことができたとしても、僕が彼に与えられるものは、せいぜい完全な転生の権利ぐらいしかないのだ。*
 
@@ -313,7 +313,7 @@
 
 *彼と顔を合わせても謝るつもりはない。だから、今のうちに好きなだけ頭を下げておく。*
 
-#### I plan to face SR as an ‘evil’ so that I won’t be told, “If you’re going to apologize, don’t do it from the start.” I made that resolve long ago.
+#### I plan to face Esuar as an ‘evil’ so that I won’t be told, “If you’re going to apologize, don’t do it from the start.” I made that resolve long ago.
 
 *謝るなら最初からするな――などと言われないように、僕は『悪』としてＳＲ君に向き合うつもりだ。その覚悟は、ずっと昔に済ませている。*
 
@@ -373,7 +373,7 @@
 
 *だけど、僕は彼を信じている。*
 
-#### I believe in SR’s strength more than Sera = Bernot.
+#### I believe in Esuar’s strength more than Sera = Bernot.
 
 *セラ＝ベルノート以上に、ＳＲ君の強さを信じている。*
 

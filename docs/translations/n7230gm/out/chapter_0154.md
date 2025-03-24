@@ -65,7 +65,7 @@
 
 &nbsp;
 
-#### For those who do not know SR well—mainly people from other countries—believing in the tall tale of "solo clearing an S-rank dungeon" was unlikely, but they would understand once they saw the match—what kind of battle were they planning to show? With such doubts and curious gazes, they turned their eyes to the stage of the arena.
+#### For those who do not know Esuar well—mainly people from other countries—believing in the tall tale of "solo clearing an S-rank dungeon" was unlikely, but they would understand once they saw the match—what kind of battle were they planning to show? With such doubts and curious gazes, they turned their eyes to the stage of the arena.
 
 *エスアールを良く知る者以外の人間――主に他国の人々からすれば、『Ｓランクダンジョン単独踏破』などという与太話を信じてはいなかったが、それも試合を見ればわかるだろう――いったいどんな戦いを見せるつもりなのだろうか――そんな疑心と好奇の視線で、闘技場のステージへと目を向けていた。*
 
@@ -85,7 +85,7 @@
 
 *目まぐるしく展開される攻防の数々に、集まった人々は大きな歓声を上げていた。*
 
-#### They raised their arms and occasionally shouted SR's name, giving enthusiastic support. Some even shouted things like "Here!" or "There's an opening!" as if they were fighting on stage themselves.
+#### They raised their arms and occasionally shouted Esuar's name, giving enthusiastic support. Some even shouted things like "Here!" or "There's an opening!" as if they were fighting on stage themselves.
 
 *腕を振り上げ、時折エスアールの名を叫びながら惜しみない声援を送っている。中にはまるで自らがステージで戦っているかのように、身振り手振りで『ここだっ』とか『隙ありっ』などと叫ぶ人物までいる状態だ。*
 
@@ -117,13 +117,13 @@
 
 &nbsp;
 
-#### "With all due respect, Prime Minister. That one is already... beyond the limits of humanity. SR and we are not even comparable."
+#### "With all due respect, Prime Minister. That one is already... beyond the limits of humanity. Esuar and we are not even comparable."
 
 *「恐れながら、宰相殿。アレはもはや……人の限界の先に居ます。エスアールと我々など、比較対象にもならない」*
 
 &nbsp;
 
-#### "Oh? So you believe that it is true that SR cleared the S-rank dungeon alone?"
+#### "Oh? So you believe that it is true that Esuar cleared the S-rank dungeon alone?"
 
 *「ほう、ではネスカもエスアール殿がＳランクダンジョンを一人で踏破したというのは事実だと思いますか？」*
 
@@ -151,7 +151,7 @@
 
 *本当は他のパーティメンバーのように試合に集中していたかったが、真面目な性格のネスカは宰相の言葉を無視するという選択肢は浮かばなかった。*
 
-#### While keeping her eyes glued to SR's every move, she caught sight of the prime minister slightly tilting his head and moved her mouth again.
+#### While keeping her eyes glued to Esuar's every move, she caught sight of the prime minister slightly tilting his head and moved her mouth again.
 
 *彼女はエスアールの一挙一動に目を釘付けにしながらも、横で僅かに首を傾げる宰相を視界に入れ、再び口を動かす。*
 
@@ -163,7 +163,7 @@
 
 &nbsp;
 
-#### "…Hmm. So, from your perspective, SR's strength cannot be contained within the S-rank level, even as someone who has cleared a B-rank dungeon? That there is such a significant difference in strength between us?"
+#### "…Hmm. So, from your perspective, Esuar's strength cannot be contained within the S-rank level, even as someone who has cleared a B-rank dungeon? That there is such a significant difference in strength between us?"
 
 *「……ふむ。つまりエスアール殿の実力は、Ｂランクダンジョンを踏破した貴方から見ても、Ｓランク程度では収まらない強さである――ということですかな？　それほどまでに我々とは実力差がある――と」*
 
@@ -179,7 +179,7 @@
 
 &nbsp;
 
-#### "If that were the case, there would still be hope for the Palmour Kingdom to be number one... What I meant when I said I surpassed S-rank, when I said I exceeded human limits, refers to those black beings. Each of those black humanoid entities possesses strength beyond S-rank. As for SR, I no longer know what to say... I cannot accurately judge with my level."
+#### "If that were the case, there would still be hope for the Palmour Kingdom to be number one... What I meant when I said I surpassed S-rank, when I said I exceeded human limits, refers to those black beings. Each of those black humanoid entities possesses strength beyond S-rank. As for Esuar, I no longer know what to say... I cannot accurately judge with my level."
 
 *「その程度ならば、まだパルムール王国が一番になる望みはあったのですがね……私がＳランクを超えていると言ったのは、人の限界を超えていると言ったのは、黒いアレの方。あの黒い人型のナニカ一人一人が、Ｓランク以上の強さなのです。エスアール殿の方はもはや何と言っていいのか……私程度では正確に判断できませんよ」*
 
@@ -205,7 +205,7 @@
 
 *だが、まだ彼女の心は折れてはいなかった。*
 
-#### She still had plenty of room for growth. There were many things she had yet to try, starting with the third job—she could not give up until she understood just how high SR had risen.
+#### She still had plenty of room for growth. There were many things she had yet to try, starting with the third job—she could not give up until she understood just how high Esuar had risen.
 
 *自分には、まだまだ成長の余地がある。三次職をはじめとして、まだ試していないこともたくさんある――せめてエスアールがどれほどの高みにいるのか理解するまでは、到底諦めきれない。*
 

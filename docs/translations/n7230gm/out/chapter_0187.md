@@ -271,7 +271,7 @@
 
 &nbsp;
 
-#### "Uh, SR! If it's about bottoms, my well-trained one is――"
+#### "Uh, Esuar! If it's about bottoms, my well-trained one is――"
 
 *「え、エスアール！　お尻ならば私の鍛え上げられたモノが――」*
 

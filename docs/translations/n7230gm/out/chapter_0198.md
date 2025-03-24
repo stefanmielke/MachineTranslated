@@ -25,7 +25,7 @@
 
 &nbsp;
 
-#### "So, is the 'Overlord' class currently a unique job only for you, SR?"
+#### "So, is the 'Overlord' class currently a unique job only for you, Esuar?"
 
 *「じゃあ『覇王』の職業は現在ＳＲさんだけのユニークジョブって感じッスか」*
 
@@ -83,7 +83,7 @@
 
 &nbsp;
 
-#### "I don't think I can compete with you, SR."
+#### "I don't think I can compete with you, Esuar."
 
 *「自分がＳＲさんと張り合えるとは思ってないッスけど」*
 
@@ -125,7 +125,7 @@
 
 &nbsp;
 
-#### "That's not entirely wrong, but even though it's a world I'm familiar with, I still feel anxious. The only acquaintance I have is you, SR, and in a fantasy world—well, I might get stripped and attacked by ruffians..."
+#### "That's not entirely wrong, but even though it's a world I'm familiar with, I still feel anxious. The only acquaintance I have is you, Esuar, and in a fantasy world—well, I might get stripped and attacked by ruffians..."
 
 *「それも無くはないッスけど、勝手知ったる世界とはいえやっぱり不安ッスよ。知り合いという知り合いはＳＲさんぐらいしかいないッスし、ファンタジーな世界だったら――ほら、身ぐるみを剥がれて荒くれ者に襲われるかもしれないッスから……」*
 
@@ -161,7 +161,7 @@
 
 &nbsp;
 
-#### "No escape!? Are you actually a bully, SR!?"
+#### "No escape!? Are you actually a bully, Esuar!?"
 
 *「逃げ場がない！？　ＳＲさん実はいじめっ子ッスか！」*
 
@@ -241,7 +241,7 @@
 
 &nbsp;
 
-#### "Then, if I challenge you, SR, everything will be resolved! Please beat me up like in the old ranking battles!"
+#### "Then, if I challenge you, Esuar, everything will be resolved! Please beat me up like in the old ranking battles!"
 
 *「じゃあ、ＳＲさんと勝負すれば、全部解決ッスね！　昔のランキング戦のように、ボコボコにしてくださいッス！」*
 

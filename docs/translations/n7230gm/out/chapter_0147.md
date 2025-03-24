@@ -153,7 +153,7 @@
 
 &nbsp;
 
-#### "It's understandable that you find it hard to believe. However, you should be able to see it from the SR's level, right?"
+#### "It's understandable that you find it hard to believe. However, you should be able to see it from the Esuar's level, right?"
 
 *「信じられないのも無理はないと思うぞ。だが、お前ならエスアールのレベルを見ればわかるだろ？」*
 
@@ -193,7 +193,7 @@
 
 &nbsp;
 
-#### "…That’s true. The knight order is currently leveling up their first jobs. We still don’t know exactly which stats will increase, like with you, SR-dono, but..."
+#### "…That’s true. The knight order is currently leveling up their first jobs. We still don’t know exactly which stats will increase, like with you, Esuar-dono, but..."
 
 *「……そうだな。騎士団でも一次職のレベル上げをしているところだ。エスアール殿のように、正確にどのステータスが上がるなどはまだわかっていないが……」*
 
@@ -251,13 +251,13 @@
 
 &nbsp;
 
-#### "Shouldn't you aim for SR instead?"
+#### "Shouldn't you aim for Esuar instead?"
 
 *「そこはエスアールを目標にするべきではないですか？」*
 
 &nbsp;
 
-#### "No, that's a bit... SR-dono is in a different league..."
+#### "No, that's a bit... Esuar-dono is in a different league..."
 
 *「いやそれはちょっと……エスアール殿は別枠だから……」*
 

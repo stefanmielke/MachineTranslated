@@ -277,7 +277,7 @@
 
 &nbsp;
 
-#### “I object! I don’t want to be compared to SR!”
+#### “I object! I don’t want to be compared to Esuar!”
 
 *「異議あり！　ＳＲさんと一緒にされたくないッス！」*
 

@@ -27,7 +27,7 @@
 
 &nbsp;
 
-#### My reflection in the window glass looked as if my familiar SR avatar had been summoned into the real world.
+#### My reflection in the window glass looked as if my familiar Esuar avatar had been summoned into the real world.
 
 *窓ガラスに反射した俺の姿は、見慣れたＳＲのアバターを、現実世界に呼び出したような感じだった。*
 
@@ -169,7 +169,7 @@
 
 &nbsp;
 
-#### "Your name is SR, right? Yes, that's fine."
+#### "Your name is Esuar, right? Yes, that's fine."
 
 *「お名前は、エスアールさんですね。はい、大丈夫ですよ」*
 

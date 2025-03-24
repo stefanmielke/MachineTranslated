@@ -91,7 +91,7 @@
 
 &nbsp;
 
-#### “Leaving Sera aside, doesn’t Lord SR buy casual clothes?”
+#### “Leaving Sera aside, doesn’t Lord Esuar buy casual clothes?”
 
 *「セラはともかく、エスアール様は普段着を買わないのですか？」*
 
@@ -145,7 +145,7 @@
 
 &nbsp;
 
-#### “Do you think there’s anyone in this town with the courage to attack Sera or Lord SR? Do you think anyone could win?”
+#### “Do you think there’s anyone in this town with the courage to attack Sera or Lord Esuar? Do you think anyone could win?”
 
 *「この街にセラやエスアール様を襲う勇気のある人がいると思う？　勝てる人がいると思う？」*
 
@@ -181,7 +181,7 @@
 
 &nbsp;
 
-#### “If a man and a woman are holding hands and walking around town, that’s already a date, Lord SR.”
+#### “If a man and a woman are holding hands and walking around town, that’s already a date, Lord Esuar.”
 
 *「男女が手を繋いで街を歩けば、それはもうデートですよエスアール様」*
 
@@ -329,7 +329,7 @@
 
 &nbsp;
 
-#### I’ve thought for a while now, but perhaps Phenon is executing a “let’s marry Lord SR together with my good friend Sera” plan? Please ignore the naming.
+#### I’ve thought for a while now, but perhaps Phenon is executing a “let’s marry Lord Esuar together with my good friend Sera” plan? Please ignore the naming.
 
 *前々から思っていたが、フェノンさんはもしかすると『仲良しのセラと一緒に俺へ嫁ごう計画』でも実行しているのだろうか？　ネーミングについては無視してほしい。*
 

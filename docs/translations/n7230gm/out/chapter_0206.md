@@ -147,7 +147,7 @@
 
 &nbsp;
 
-#### “Crescent aside, SR has been working hard. It wouldn’t be a problem to bring a few back—however, we must impose some kind of restriction—hmm, let’s do this.”
+#### “Crescent aside, Esuar has been working hard. It wouldn’t be a problem to bring a few back—however, we must impose some kind of restriction—hmm, let’s do this.”
 
 *「クレセントはともかく、ＳＲは頑張っておったしの。別に数人ぐらい良いんじゃが――何かしらで制限を掛けておかねば――ふむ、ではこうしようか」*
 
@@ -171,7 +171,7 @@
 
 &nbsp;
 
-#### “Huh? —SR-san?”
+#### “Huh? —Esuar-san?”
 
 *「はぇ？　――ＳＲさん？」*
 

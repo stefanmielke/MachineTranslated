@@ -67,7 +67,7 @@
 
 &nbsp;
 
-#### "If Lord SR wishes, you are welcome to come anytime. We will welcome you."
+#### "If Lord Esuar wishes, you are welcome to come anytime. We will welcome you."
 
 *「エスアール殿が望むのであれば、いつでも来てくれて構わない。歓迎しよう」*
 
@@ -89,7 +89,7 @@
 
 &nbsp;
 
-#### "Thanks to you, Lord SR. I vow to never forget this debt for my lifetime."
+#### "Thanks to you, Lord Esuar. I vow to never forget this debt for my lifetime."
 
 *「エスアール殿のおかげだよ。この恩は生涯忘れないと誓おう」*
 
@@ -315,7 +315,7 @@
 
 &nbsp;
 
-#### "Well, you still can't compare to Lord SR."
+#### "Well, you still can't compare to Lord Esuar."
 
 *「まぁ、エスアール様の足元にも及ばないけど」*
 

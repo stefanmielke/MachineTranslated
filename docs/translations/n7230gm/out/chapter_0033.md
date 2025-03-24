@@ -101,7 +101,7 @@
 
 &nbsp;
 
-#### "They both went home. They said to say hello to SR."
+#### "They both went home. They said to say hello to Esuar."
 
 *「２人は帰ったぞ。エスアールによろしく伝えてくれと言っていた」*
 
@@ -243,7 +243,7 @@
 
 &nbsp;
 
-#### "That just means he relies on SR a lot. Being relied on by the Guild Master of the royal capital is something most would be happy about."
+#### "That just means he relies on Esuar a lot. Being relied on by the Guild Master of the royal capital is something most would be happy about."
 
 *「それだけエスアールを頼りにしているということだろう。王都のギルドマスターから頼りにされるなんて、普通なら喜ぶところだぞ」*
 

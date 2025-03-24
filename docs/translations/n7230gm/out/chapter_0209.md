@@ -103,7 +103,7 @@
 
 &nbsp;
 
-#### "I'm currently living with SR, but what about you, Hime-chan? You could also live together with me, you know?"
+#### "I'm currently living with Esuar, but what about you, Hime-chan? You could also live together with me, you know?"
 
 *「自分はいまＳＲさんのところに居候？してる形ッスけど、姫ちゃんはどうするッスか？　自分と二人暮らしをするって手もあるッスよ？」*
 
@@ -119,7 +119,7 @@
 
 &nbsp;
 
-#### "I don't want to be a bother to SR... hmm."
+#### "I don't want to be a bother to Esuar... hmm."
 
 *「ＳＲさんの邪魔にはなりたくないからね……うーん」*
 

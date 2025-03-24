@@ -229,7 +229,7 @@
 
 &nbsp;
 
-#### "…SR, is your mouth some kind of surprise box? I wish you would speak with a bit more of a serious atmosphere when discussing major secrets."
+#### "…Esuar, is your mouth some kind of surprise box? I wish you would speak with a bit more of a serious atmosphere when discussing major secrets."
 
 *「……エスアール、貴方の口はビックリ箱か何かなのか？　もう少し重大な秘密を話す雰囲気を持って喋ってほしいんだが」*
 
@@ -259,7 +259,7 @@
 
 &nbsp;
 
-#### "Of course. If you, SR-sama, say so, we will prioritize it above all else. Even if it results in execution, we don't mind!"
+#### "Of course. If you, Esuar-sama, say so, we will prioritize it above all else. Even if it results in execution, we don't mind!"
 
 *「もちろんです。エスアール様がそうしろというのなら、全てにおいて優先させましょう。その結果処刑されようとも構いません！」*
 
@@ -351,7 +351,7 @@
 
 &nbsp;
 
-#### "That's them! I recognize the daughter of the count! The guy next to her is that SR or whatever!"
+#### "That's them! I recognize the daughter of the count! The guy next to her is that Esuar or whatever!"
 
 *「こいつらだっ！　伯爵家の娘に見覚えがあるっ！　隣の男がエスアールとかいうやつだろ！」*
 
@@ -373,7 +373,7 @@
 
 &nbsp;
 
-#### "Are you SR?"
+#### "Are you Esuar?"
 
 *「お前が、エスアールか？」*
 

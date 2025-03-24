@@ -35,7 +35,7 @@
 
 &nbsp;
 
-#### "I understand—wait, isn't that impossible!? Although Lord SR looks full of openings, he can counterattack from anywhere!?"
+#### "I understand—wait, isn't that impossible!? Although Lord Esuar looks full of openings, he can counterattack from anywhere!?"
 
 *「わかっ――それ無理じゃないか！？　エスアール様は隙だらけに見えるが、どこからでも反撃してくるぞ！？」*
 
@@ -47,7 +47,7 @@
 
 &nbsp;
 
-#### "Can Kal even create an opening for Lord SR in the first place!?"
+#### "Can Kal even create an opening for Lord Esuar in the first place!?"
 
 *「そもそもカルがエスアール様に隙を作れるのか！？」*
 
@@ -95,7 +95,7 @@
 
 &nbsp;
 
-#### "Wow, but Lord SR, are you really human?"
+#### "Wow, but Lord Esuar, are you really human?"
 
 *「いやー、しかしエスアールさんよ。あんた本当に人間か？」*
 
@@ -199,7 +199,7 @@
 
 &nbsp;
 
-#### "Then, could you please attack us, Lord SR? We're prepared for some minor injuries, so feel free to use your skills. We'll focus on defense."
+#### "Then, could you please attack us, Lord Esuar? We're prepared for some minor injuries, so feel free to use your skills. We'll focus on defense."
 
 *「では、最後にエスアール様の方から攻めていただけませんでしょうか？　多少の怪我は覚悟しますので、スキルを使っても構いません。私たちは防御に専念します」*
 
@@ -221,7 +221,7 @@
 
 &nbsp;
 
-#### "Just go all out, Lord SR! Even if you use skills I don't know, I won't complain!"
+#### "Just go all out, Lord Esuar! Even if you use skills I don't know, I won't complain!"
 
 *「そこは全力でやってくれよ、エスアールの旦那！　知らねぇスキルを使われても、文句は言わねぇぜ！」*
 

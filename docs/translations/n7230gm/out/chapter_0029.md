@@ -1,7 +1,7 @@
 ###### [Next Chapter](./chapter_0030.md)
 ###### [Previous Chapter](./chapter_0028.md)&nbsp;/&nbsp;
 
-# 28 SR's Strategy
+# 28 Esuar's Strategy
 
 ## ２８　ＳＲの策略
 
@@ -99,7 +99,7 @@
 
 &nbsp;
 
-#### "First of all, SR."
+#### "First of all, Esuar."
 
 *「まず最初に、エスアール」*
 
@@ -157,7 +157,7 @@
 
 &nbsp;
 
-#### "That's strange. SR knows too much about this world. There's no way he could be a resident of another world."
+#### "That's strange. Esuar knows too much about this world. There's no way he could be a resident of another world."
 
 *「それはおかしいです。エスアールはこの世界のことを知りすぎてるです。それなのに、別の世界の住人なわけないです」*
 
@@ -191,7 +191,7 @@
 
 &nbsp;
 
-#### "I understand about SR. If there's anything you don't understand about this world, feel free to rely on us. The knowledge you provided has broken down the walls we had in front of us. I promise we will be of help."
+#### "I understand about Esuar. If there's anything you don't understand about this world, feel free to rely on us. The knowledge you provided has broken down the walls we had in front of us. I promise we will be of help."
 
 *「エスアールのことはわかった。もしこの世界のことでわからないことがあれば、俺たちを頼ってくれ。お前さんがくれた知識は、俺たちの前にあった壁をぶち抜いてくれたんだ。必ず力になると約束しよう」*
 
@@ -209,7 +209,7 @@
 
 &nbsp;
 
-#### "Yeah. Now, about the title—why does SR not seem happy? You received the title of 'Hero,' you know? We're all so surprised and happy that we could go crazy."
+#### "Yeah. Now, about the title—why does Esuar not seem happy? You received the title of 'Hero,' you know? We're all so surprised and happy that we could go crazy."
 
 *「おう。で、次は称号に関してだが――なぜエスアールは嬉しそうじゃないんだ？　お前さん、『勇者』の称号を貰ったんだぞ？　俺たちは全員驚きと嬉しさで、頭がおかしくなっちまいそうだっていうのに」*
 
@@ -369,7 +369,7 @@
 
 &nbsp;
 
-#### "Then, can't we just say that SR was just too strong? If the Chancellor knows about SR's dungeon-clearing achievements, he would probably be convinced."
+#### "Then, can't we just say that Esuar was just too strong? If the Chancellor knows about Esuar's dungeon-clearing achievements, he would probably be convinced."
 
 *「では、エスアールがただ強すぎたってことにすればいいのではないです？　宰相様もエスアールのダンジョン踏破の実績を知れば、納得しそうです」*
 
@@ -463,7 +463,7 @@
 
 &nbsp;
 
-#### "SR is strong—that's a fact recognized by everyone here. If that means we can clear A-rank dungeons, that's a wish come true, but... what do you want in return?"
+#### "Esuar is strong—that's a fact recognized by everyone here. If that means we can clear A-rank dungeons, that's a wish come true, but... what do you want in return?"
 
 *「エスアールは強い――それはここにいる全員が認めている事実だ。俺たちにとっちゃ、それでＡランクダンジョンを踏破できるなら願ってもない話だが……何が望みだ？」*
 

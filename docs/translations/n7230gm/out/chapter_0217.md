@@ -215,7 +215,7 @@
 
 &nbsp;
 
-#### "Oh, that's good—though, isn't SR not particularly good with swords?"
+#### "Oh, that's good—though, isn't Esuar not particularly good with swords?"
 
 *「へぇ、そりゃいい――といっても、エスアールは剣が得意じゃないのか？」*
 
@@ -231,7 +231,7 @@
 
 *俺の得意分野と言ったら、アレしかないだろう。*
 
-#### After all, I am the man known as ASR—Avoidance's SR.
+#### After all, I am the man known as ASR—Avoidance's Esuar.
 
 *なにしろ俺はASR――AvoidanceのSRと呼ばれた男なのだから。*
 

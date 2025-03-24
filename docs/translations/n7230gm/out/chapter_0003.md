@@ -143,7 +143,7 @@
 
 &nbsp;
 
-#### "…Is it Sir SR?"
+#### "…Is it Sir Esuar?"
 
 *「……エスアール殿、でよいか？」*
 
@@ -311,7 +311,7 @@
 
 &nbsp;
 
-#### "Sir SR, I ask that you keep this matter confidential. It would cause confusion among the citizens. We thought it was dishonest not to tell you the reason for your summoning."
+#### "Sir Esuar, I ask that you keep this matter confidential. It would cause confusion among the citizens. We thought it was dishonest not to tell you the reason for your summoning."
 
 *「エスアール殿、この事は他言無用に願います。国民を混乱させてしまいますから。貴方にお話をしているのは、召喚の理由も教えないのは、不誠実だと考えたからです」*
 
@@ -539,7 +539,7 @@
 
 &nbsp;
 
-#### "…Yes. I am SR. I am the hero who came from another world to save you."
+#### "…Yes. I am Esuar. I am the hero who came from another world to save you."
 
 *「……はい。ＳＲと申します。あなたを救うために異世界からきた勇者です」*
 

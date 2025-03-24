@@ -11,13 +11,13 @@
 
 &nbsp;
 
-#### After parting ways with SR in front of the guild, I immediately headed to the B-rank dungeon located in the northern part of the royal capital. According to the guild master, the Thunderbolt Trail has been diving into this B-rank dungeon every day lately.
+#### After parting ways with Esuar in front of the guild, I immediately headed to the B-rank dungeon located in the northern part of the royal capital. According to the guild master, the Thunderbolt Trail has been diving into this B-rank dungeon every day lately.
 
 *エスアールとギルドの前で別れ、私はさっそく王都北にあるＢランクダンジョンへと向かった。ギルドマスターによると、迅雷の軌跡たちはここのところ毎日このＢランクダンジョンへと潜っているらしい。*
 
 &nbsp;
 
-#### It seems they haven't been diving since morning like SR, but perhaps they still can't give up. I was glad to know that.
+#### It seems they haven't been diving since morning like Esuar, but perhaps they still can't give up. I was glad to know that.
 
 *エスアールのように朝から潜ってはいないようだが、彼らもまだ、諦めきれないのかもしれない。その事実を、私は嬉しく思った。*
 
@@ -33,7 +33,7 @@
 
 &nbsp;
 
-#### For Fenon, and to gain SR's trust, I will do whatever it takes to call them to the guild!
+#### For Fenon, and to gain Esuar's trust, I will do whatever it takes to call them to the guild!
 
 *フェノンのために、そしてエスアールの信頼を得るためにも、なんとしてでも彼らをギルドへ呼び出してみせるっ！*
 
@@ -233,7 +233,7 @@
 
 *今、私が下手なことを言ってしまえば、かえって彼らをギルドに連れてくるのが難しくなるかもしれない。*
 
-#### What I was asked by SR was not to persuade them but to bring them along.
+#### What I was asked by Esuar was not to persuade them but to bring them along.
 
 *エスアールに頼まれたのは、説得することではない。連れていくことだ。*
 
@@ -431,7 +431,7 @@
 
 &nbsp;
 
-#### SR. I have fulfilled my role.
+#### Esuar. I have fulfilled my role.
 
 *エスアール。私は役目を果たしたぞ。*
 
@@ -551,7 +551,7 @@
 
 &nbsp;
 
-#### It was a word of concern for SR.
+#### It was a word of concern for Esuar.
 
 *エスアールを心配する言葉だった。*
 
@@ -563,7 +563,7 @@
 
 &nbsp;
 
-#### With a puzzled expression, SR checked her own clothing.
+#### With a puzzled expression, Esuar checked her own clothing.
 
 *キョトンとした表情で、自分の服装を確認するエスアール。*
 
@@ -573,7 +573,7 @@
 
 &nbsp;
 
-#### "SR. You've got dark circles under your eyes. Plus, your face is overall pale."
+#### "Esuar. You've got dark circles under your eyes. Plus, your face is overall pale."
 
 *「エスアール。お前、目の下が真っ黒だぞ。それに、顔が全体的に青白い」*
 
@@ -583,7 +583,7 @@
 
 *ギルドマスターが呆れたような声音で言った。*
 
-#### SR clapped her hands as if she understood.
+#### Esuar clapped her hands as if she understood.
 
 *エスアールは納得したように手を打つ。*
 
@@ -617,13 +617,13 @@
 
 &nbsp;
 
-#### With that, SR sat down in the seat next to me.
+#### With that, Esuar sat down in the seat next to me.
 
 *そう言うと、エスアールは私の隣の席に腰を下ろした。*
 
 &nbsp;
 
-#### "First, I want to apologize again. I'm sorry for being late after calling you here. My name is SR."
+#### "First, I want to apologize again. I'm sorry for being late after calling you here. My name is Esuar."
 
 *「まず、改めて謝罪を。こちらから呼び出しておきながら遅れて申し訳ありません。名前はＳＲと言います」*
 
@@ -647,7 +647,7 @@
 
 &nbsp;
 
-#### The one who raised the question was Suzu, directing an observant gaze at SR.
+#### The one who raised the question was Suzu, directing an observant gaze at Esuar.
 
 *疑問の声を上げたのはスズ。観察するような視線をエスアールに向けている。*
 
@@ -665,7 +665,7 @@
 
 &nbsp;
 
-#### Shin shot a mocking glance at SR. Suzu and Raika also looked displeased, as if they thought they had been fooled.
+#### Shin shot a mocking glance at Esuar. Suzu and Raika also looked displeased, as if they thought they had been fooled.
 
 *シンはエスアールへバカにしたような視線を向ける。スズやライカも、騙されたと思っているのか、不満げな表情だ。*
 
@@ -687,7 +687,7 @@
 
 &nbsp;
 
-#### Perhaps lacking the energy for unnecessary exchanges, SR answered dismissively.
+#### Perhaps lacking the energy for unnecessary exchanges, Esuar answered dismissively.
 
 *余計なやり取りをする気力がないのか、投げやりにエスアールは答えた。*
 
@@ -703,7 +703,7 @@
 
 &nbsp;
 
-#### Seeing that the atmosphere had quieted down, SR nodded slightly and opened her mouth.
+#### Seeing that the atmosphere had quieted down, Esuar nodded slightly and opened her mouth.
 
 *静かになった面々を確認したエスアールは、小さく頷き、口を開く。*
 
@@ -715,7 +715,7 @@
 
 &nbsp;
 
-#### The status window that SR brought up displayed the unfamiliar title of "Martial Swordmaster."
+#### The status window that Esuar brought up displayed the unfamiliar title of "Martial Swordmaster."
 
 *エスアールが出現させたステータスウィンドウ。そこの職業欄には、見たことの無い『武闘剣士』の文字があった。*
 

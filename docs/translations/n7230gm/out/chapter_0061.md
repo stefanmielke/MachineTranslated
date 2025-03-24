@@ -299,7 +299,7 @@
 
 &nbsp;
 
-#### "Stop! Stop! SR stop! That’s too much information!"
+#### "Stop! Stop! Esuar stop! That’s too much information!"
 
 *「ストップです！　エスアールストップです！　情報量が多すぎるです！」*
 
@@ -363,7 +363,7 @@
 
 &nbsp;
 
-#### "Trust me, SR. No matter how unreasonable or absurd the content may be, I will take it in stride. After all, I am the woman known as the second Sword Saint. I won’t be shaken by something like this."
+#### "Trust me, Esuar. No matter how unreasonable or absurd the content may be, I will take it in stride. After all, I am the woman known as the second Sword Saint. I won’t be shaken by something like this."
 
 *「私を信用しろエスアール。どんなに非常識で、荒唐無稽な内容であろうと、受け止めてみせよう。なんといっても、私は第二の剣聖と言われている女だからな。これしきのことで動揺などしない」*
 

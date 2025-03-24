@@ -143,7 +143,7 @@
 
 &nbsp;
 
-#### "If SR is fine with it, then I am too. Leave the protection to me."
+#### "If Esuar is fine with it, then I am too. Leave the protection to me."
 
 *「エスアールが良いなら私はいいぞ。護衛は任せてくれ」*
 

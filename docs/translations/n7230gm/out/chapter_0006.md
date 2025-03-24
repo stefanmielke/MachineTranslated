@@ -163,7 +163,7 @@
 
 &nbsp;
 
-#### Name: SR
+#### Name: Esuar
 
 *名前︰ＳＲ*
 
@@ -215,7 +215,7 @@
 
 &nbsp;
 
-#### Name: SR
+#### Name: Esuar
 
 *名前︰ＳＲ*
 
@@ -299,7 +299,7 @@
 
 *ＶＲＭＭＯテンペストにおいて、俺の専売特許は回避だった。*
 
-#### Other top players who played Tempest also vouched that "only SR can do that," and surely it would become my weapon in this world as well.
+#### Other top players who played Tempest also vouched that "only Esuar can do that," and surely it would become my weapon in this world as well.
 
 *テンペストをプレイしていた他のトッププレイヤーたちも『あれはＳＲにしか無理』と太鼓判を押してくれていたし、この世界でもきっと俺の武器になってくれるだろう。*
 

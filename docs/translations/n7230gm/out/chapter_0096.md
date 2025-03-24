@@ -177,7 +177,7 @@
 
 &nbsp;
 
-#### "…I see, then I'm glad. In the next world, I want to hear your feelings, SR."
+#### "…I see, then I'm glad. In the next world, I want to hear your feelings, Esuar."
 
 *「……そうか、それならば良かった。次の世界では、エスアールの気持ちも聞かせてほしい、かな」*
 
@@ -317,7 +317,7 @@
 
 &nbsp;
 
-#### "This battle is one of the memories I want to create with SR. I might forget it, but please tell the me in the next world. We defeated the boss of the S-rank dungeon together—no matter who delivers the final blow, let's agree to have no hard feelings."
+#### "This battle is one of the memories I want to create with Esuar. I might forget it, but please tell the me in the next world. We defeated the boss of the S-rank dungeon together—no matter who delivers the final blow, let's agree to have no hard feelings."
 
 *「この戦闘はエスアールとの想い出づくりの一つだ。私は忘れることになるんだろうが、次の世界の私に聞かせてやってくれ。二人でＳランクダンジョンのボスを討伐したんだぞ――とな。どちらがトドメを刺すことになっても、恨みっこ無しということにしようじゃないか」*
 

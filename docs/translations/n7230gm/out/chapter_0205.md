@@ -167,7 +167,7 @@
 
 &nbsp;
 
-#### "Hmm... Unlike SR, I didn't have any specific mission, so maybe it was just Lady Idea's whim? Also, I had some connection with SR and was a top player in individual battles, I guess?"
+#### "Hmm... Unlike Esuar, I didn't have any specific mission, so maybe it was just Lady Idea's whim? Also, I had some connection with Esuar and was a top player in individual battles, I guess?"
 
 *「んー……自分はＳＲさんと違って使命という使命は無かったですし、イデア様の気まぐれじゃないッスかね？　あとは、自分とＳＲさんは関わりがあったということと、個人戦でトップだったってことぐらいッスか？」*
 

@@ -173,7 +173,7 @@
 
 &nbsp;
 
-#### "Hmm, so that's why SR has been off since yesterday."
+#### "Hmm, so that's why Esuar has been off since yesterday."
 
 *「ふむ、つまりそれでエスアールは昨日から調子がおかしかったわけだな」*
 
@@ -191,7 +191,7 @@
 
 &nbsp;
 
-#### "That's a great idea, Shiri! SR-san, let's travel around the countries and conquer the S-rank dungeons! Ah, but the expansion of Lindell should be completed soon, so I'd like to relax there for a while too."
+#### "That's a great idea, Shiri! Esuar-san, let's travel around the countries and conquer the S-rank dungeons! Ah, but the expansion of Lindell should be completed soon, so I'd like to relax there for a while too."
 
 *「それは良い案ねシリーっ！　エスアールさん、旅行がてら各国を回ってＳランクダンジョンを制覇しましょうよ！　あぁ、でもそろそろリンデールの増築も完了するでしょうし、そちらでもしばらくゆっくりしたいですね」*
 
@@ -231,19 +231,19 @@
 
 &nbsp;
 
-#### "Hehe, SR says funny things. After all, for explorers, every day is a matter of life and death, you know? Well, if SR feels it's dangerous, I might forcibly stop you... but you won't lose that easily, right?"
+#### "Hehe, Esuar says funny things. After all, for explorers, every day is a matter of life and death, you know? Well, if Esuar feels it's dangerous, I might forcibly stop you... but you won't lose that easily, right?"
 
 *「ふふっ、エスアールはおかしなことを言う。そもそも探索者は毎日が命がけだぞ？　まぁエスアールでも危険だと感じたら、力づくで止めるかもしれないが……エスアールはそう簡単に負けないだろう？」*
 
 &nbsp;
 
-#### "Of course, if it means living safely in the royal capital for the rest of my life, I'd be fine with that, but I really like seeing SR fighting in the dungeons, full of life, you know?"
+#### "Of course, if it means living safely in the royal capital for the rest of my life, I'd be fine with that, but I really like seeing Esuar fighting in the dungeons, full of life, you know?"
 
 *「もちろん安全な王都の中で一生を終えるというのならばそれはそれでお付き合いしますが、私はダンジョンで戦っているエスアールさんの生き生きとした姿、好きですよ？」*
 
 &nbsp;
 
-#### "Besides, if it's prepared by that Idea-sama, I don't think there would be dungeons that SR couldn't win against. I just have a feeling that you would be fine."
+#### "Besides, if it's prepared by that Idea-sama, I don't think there would be dungeons that Esuar couldn't win against. I just have a feeling that you would be fine."
 
 *「そもそもあのイデア様が用意するのであれば、エスアールさんでも勝てないようなダンジョンは用意しないと思いますし。エスアールさんならたぶん大丈夫なんじゃないかなぁと、私は勝手に予想しています」*
 

@@ -29,7 +29,7 @@
 
 &nbsp;
 
-#### So, after reuniting with Sera and the others outside the dungeon, we headed back to the royal capital. We were guided to the guest room of the royal castle at Niz-kun's suggestion, saying, "While we're at it, I'd like to treat you to some tea while we hear about SR-kun."
+#### So, after reuniting with Sera and the others outside the dungeon, we headed back to the royal capital. We were guided to the guest room of the royal castle at Niz-kun's suggestion, saying, "While we're at it, I'd like to treat you to some tea while we hear about Esuar-kun."
 
 *で、ダンジョンの外でセラたちと合流した俺たちは王都へと帰宅。「エスアール君の話を聞くついでにお茶ぐらいごちそうさせて欲しい」というニーズ君の提案により王城の客間へと案内されていた。*
 
@@ -71,7 +71,7 @@
 
 &nbsp;
 
-#### "So, SR-kun. It seems you have a secret to share, but should we ask the others to leave?"
+#### "So, Esuar-kun. It seems you have a secret to share, but should we ask the others to leave?"
 
 *「それで、エスアール君。秘密の話をしてくれるようだけれど、他の人は下がらせた方がいいかい？」*
 
@@ -101,7 +101,7 @@
 
 &nbsp;
 
-#### "Right. Well, if you're feeling uneasy, I'll have them step back. I trust you, SR-kun, and whether the guards are here or not, if you were to start a rebellion, it would be our loss anyway."
+#### "Right. Well, if you're feeling uneasy, I'll have them step back. I trust you, Esuar-kun, and whether the guards are here or not, if you were to start a rebellion, it would be our loss anyway."
 
 *「そう。まぁ不安があるようなら下がらせるよ。エスアール君のことは信用しているし、警備がいようといなかろうと、君が反乱を起こした時点で僕らの負けだろうからね」*
 
@@ -225,7 +225,7 @@
 
 &nbsp;
 
-#### "Actually, I have a secret to discuss with SR-san..."
+#### "Actually, I have a secret to discuss with Esuar-san..."
 
 *「実はエスアールさんに内緒の話がありまして……」*
 

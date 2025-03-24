@@ -329,7 +329,7 @@
 
 &nbsp;
 
-#### "Thank you for your courtesy... I am the explorer SR."
+#### "Thank you for your courtesy... I am the explorer Esuar."
 
 *「ご丁寧にどうも……探索者のＳＲです」*
 

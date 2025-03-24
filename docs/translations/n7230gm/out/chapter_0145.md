@@ -69,7 +69,7 @@
 
 &nbsp;
 
-#### "Do we not need to look anymore? I thought SR was looking forward to the new home."
+#### "Do we not need to look anymore? I thought Esuar was looking forward to the new home."
 
 *「もう見なくていいですか？　エスアールは新居を楽しみにしていたと思ったですが」*
 
@@ -233,7 +233,7 @@
 
 &nbsp;
 
-#### "Why do you look so serious? SR should prefer to stay low-key, right?"
+#### "Why do you look so serious? Esuar should prefer to stay low-key, right?"
 
 *「何を難しい顔をしているですか？　エスアールは目立たない方がいいですよね？」*
 
@@ -269,7 +269,7 @@
 
 &nbsp;
 
-#### "Now we can fully lift SR up! I mean, it's been frustrating to be called 'the strongest in the world' when there are people above us!"
+#### "Now we can fully lift Esuar up! I mean, it's been frustrating to be called 'the strongest in the world' when there are people above us!"
 
 *「これで俺たちも思う存分エスアールを持ちあげることができるってことだな！　いやぁ、自分たちより上がいるのに『世界最強』なんて言われてさ、ずっとムズムズしてたんだよ」*
 

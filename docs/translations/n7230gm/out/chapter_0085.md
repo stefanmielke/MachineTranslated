@@ -51,7 +51,7 @@
 
 &nbsp;
 
-#### "Sir S.R.! It's dangerous! We haven't even confirmed the rank yet, so it would be better not to step in carelessly."
+#### "Sir Esuar! It's dangerous! We haven't even confirmed the rank yet, so it would be better not to step in carelessly."
 
 *「エスアール様！　危険です！　こちらはまだランクも確認できていないので、不用意に足を踏み入れないほうがよろしいかと」*
 
@@ -199,7 +199,7 @@
 
 &nbsp;
 
-#### "S.R.! What is going on!?"
+#### "Esuar! What is going on!?"
 
 *「エスアール！　これはどういうことだっ！？」*
 
@@ -321,7 +321,7 @@
 
 &nbsp;
 
-#### "Um, excuse me. Fenon? And Shiri, are they friends of S.R.? It's the first time I've heard those names."
+#### "Um, excuse me. Fenon? And Shiri, are they friends of Esuar? It's the first time I've heard those names."
 
 *「えっと、すまない。フェノン？　とシリーとやらは、エスアールの友人か？　初めて聞く名だが」*
 

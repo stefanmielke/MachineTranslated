@@ -41,13 +41,13 @@
 
 &nbsp;
 
-#### "That way of addressing me is a bit embarrassing, so I'd prefer if you just called me 'SR.'"
+#### "That way of addressing me is a bit embarrassing, so I'd prefer if you just called me 'Esuar.'"
 
 *「その呼び方はちょっと恥ずかしいので、普通に『ＳＲ』と名前で呼んでもらえると」*
 
 &nbsp;
 
-#### "SR, huh? Now that you mention it, that was your name."
+#### "Esuar, huh? Now that you mention it, that was your name."
 
 *「エスアールか、そういえばそんな名前だったな」*
 
@@ -159,7 +159,7 @@
 
 &nbsp;
 
-#### "If you say that, I’ll retort, 'Don’t underestimate SR.'"
+#### "If you say that, I’ll retort, 'Don’t underestimate Esuar.'"
 
 *「もしそう言われたら、こちらこそ『エスアールを舐めるな』と言い返してやろう」*
 
@@ -201,7 +201,7 @@
 
 &nbsp;
 
-#### "There’s a possibility that SR could get beaten up and give up, you know?"
+#### "There’s a possibility that Esuar could get beaten up and give up, you know?"
 
 *「エスアールがぼこぼこにされてギブアップする――って可能性もあるんだぜ？」*
 
@@ -303,7 +303,7 @@
 
 &nbsp;
 
-#### "—Hah, hah... SR, after this result, asking that question is just plain mean."
+#### "—Hah, hah... Esuar, after this result, asking that question is just plain mean."
 
 *「――はぁ、はぁ……エスアール、この結果のあとに、その質問は、性格が悪いぞ」*
 

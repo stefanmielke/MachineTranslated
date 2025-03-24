@@ -69,7 +69,7 @@
 
 &nbsp;
 
-#### "No, no, no! Don't confuse reality with the game! SR-san was probably scared at first too, right!?"
+#### "No, no, no! Don't confuse reality with the game! Esuar-san was probably scared at first too, right!?"
 
 *「いやいやいや！　リアルとゲームを混同しないでくださいッス！　ＳＲさんだって最初はどうせビクビクしてたッスよね！？」*
 
@@ -143,7 +143,7 @@
 
 &nbsp;
 
-#### "Ugh... Watching SR-san's blood is making me scared, so can I use a wooden sword?"
+#### "Ugh... Watching Esuar-san's blood is making me scared, so can I use a wooden sword?"
 
 *「う……なんかＳＲさんの血を見てたら怖くなってきたんで、自分、木剣使ってもいいッスか？」*
 
@@ -155,7 +155,7 @@
 
 &nbsp;
 
-#### "Yes, Crescent-chan just got a spark! You'd be mistaken if you thought I haven't grown at all since SR-san disappeared! I'll make sure you can't survive without an elixir!"
+#### "Yes, Crescent-chan just got a spark! You'd be mistaken if you thought I haven't grown at all since Esuar-san disappeared! I'll make sure you can't survive without an elixir!"
 
 *「はいクレセントちゃんはいまピキーンときたッス。ＳＲさんがいなくなってからなにも成長していないと思ったら大間違いッスよ！　絶対エリクサー無しでは生きられない状態にしてやるッス！」*
 
@@ -173,7 +173,7 @@
 
 *距離をとって、目で合図をして――試合開始。*
 
-#### By the way, neither of us is using wooden swords. The blunt conclusion that "the weapons might not withstand SR and the others' STR" was brought up by Mr. Regulus.
+#### By the way, neither of us is using wooden swords. The blunt conclusion that "the weapons might not withstand Esuar and the others' STR" was brought up by Mr. Regulus.
 
 *ちなみに、両者とも木剣は使っていない。「よくよく考えるとエスアールたちのＳＴＲに武器が耐えられないのではないか」という身もふたもない結論がレグルスさんからもたらされたからだ。*
 

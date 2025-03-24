@@ -13,7 +13,7 @@
 
 &nbsp;
 
-#### "In other words, that girl over there was in the world where SR was—there's no mistake about it, right? Lady Idea also said something like 'child of my world.'"
+#### "In other words, that girl over there was in the world where Esuar was—there's no mistake about it, right? Lady Idea also said something like 'child of my world.'"
 
 *「つまり、あそこにいる女はエスアールのいた世界にいた――ってことで間違いないんだよな？　イデア様も『我が世界の子』とかなんとか言っていたし」*
 
@@ -35,7 +35,7 @@
 
 *実際、イデア様が傷を負わないようにしてくれるようだし、今回に限って言えばシンたちが死ぬ危険は皆無だ。本当にゲーム感覚で臨める試合である。*
 
-#### I tried to lighten the mood for the four who were about to start the match, but Laika interjected, "Then why was SR nervous when talking to that girl?"
+#### I tried to lighten the mood for the four who were about to start the match, but Laika interjected, "Then why was Esuar nervous when talking to that girl?"
 
 *これから試合を始める四人の緊張をほぐそうと軽い口調で言ってみたのだが、ライカに「じゃあなんでエスアールはあの子と話す時緊張していたの？」と突っ込まれてしまった。*
 
@@ -155,7 +155,7 @@
 
 &nbsp;
 
-#### "Ahaha, I told you before, but since you're SR, you can be more confident, you know?"
+#### "Ahaha, I told you before, but since you're Esuar, you can be more confident, you know?"
 
 *「あははっ、前にも言ったッスけど、ＳＲさんはトップなんスからもっと堂々としていいんスよ？」*
 

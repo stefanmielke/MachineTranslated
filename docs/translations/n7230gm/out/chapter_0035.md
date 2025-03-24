@@ -21,7 +21,7 @@
 
 &nbsp;
 
-#### "Lord SR! You're still here today!"
+#### "Lord Esuar! You're still here today!"
 
 *「エスアール様っ！　本日はまだいらっしゃったのですねっ！」*
 
@@ -71,7 +71,7 @@
 
 &nbsp;
 
-#### "Hey, hey, don't trouble SR too much. He seems to have a promise with Thunder's Trail today—besides, Phenon, you should get a bit more accustomed to dungeons. If you don't build up your stamina, you'll just be a burden to him."
+#### "Hey, hey, don't trouble Esuar too much. He seems to have a promise with Thunder's Trail today—besides, Phenon, you should get a bit more accustomed to dungeons. If you don't build up your stamina, you'll just be a burden to him."
 
 *「こらこら、あまりエスアールを困らせるなよ。彼は今日迅雷の軌跡との約束があるらしい――それに、フェノンはもう少しダンジョンに慣れておけ。体力を付けておかないと、彼の足手まといになるだけだぞ」*
 
@@ -233,7 +233,7 @@
 
 &nbsp;
 
-#### "Yeah. I've leveled the classes SR told me to up to 30."
+#### "Yeah. I've leveled the classes Esuar told me to up to 30."
 
 *「あぁ。エスアールに言われた通りの職業をレベル３０まで上げてきた」*
 
@@ -273,7 +273,7 @@
 
 &nbsp;
 
-#### "I believe you also said, 'I'll remember this, SR.'"
+#### "I believe you also said, 'I'll remember this, Esuar.'"
 
 *「確か『エスアールのやつ覚えてろよ』とも言ってたです」*
 
@@ -285,7 +285,7 @@
 
 &nbsp;
 
-#### "That's why I said—no, no, this is different, SR! I mean, I will never forget this debt!"
+#### "That's why I said—no, no, this is different, Esuar! I mean, I will never forget this debt!"
 
 *「だからそういうことをっ――い、いや、これは違うんだエスアール！　あ、あれだ！　この恩は絶対忘れない――って意味だからな！」*
 
@@ -575,7 +575,7 @@
 
 &nbsp;
 
-#### "I've been thinking for a while, but SR is a little... insane, isn't he?"
+#### "I've been thinking for a while, but Esuar is a little... insane, isn't he?"
 
 *「前から思ってたけど、エスアールって少ぉーし、イカれてるわよね」*
 

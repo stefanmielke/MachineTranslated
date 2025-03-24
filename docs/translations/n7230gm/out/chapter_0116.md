@@ -315,7 +315,7 @@
 
 &nbsp;
 
-#### By the way, this embarrassingly named party comes from my nickname during my gaming days, derived from Avoidance's SR.
+#### By the way, this embarrassingly named party comes from my nickname during my gaming days, derived from Avoidance's Esuar.
 
 *ちなみにこの恥ずかしくて仕方がないパーティの名前は、俺のゲーム時代の愛称であり、ＡvoidanceのＳＲからきている。*
 
@@ -363,7 +363,7 @@
 
 &nbsp;
 
-#### "Y-yes, Lady Noah. I believe the SR just misspoke..."
+#### "Y-yes, Lady Noah. I believe the Esuar just misspoke..."
 
 *「え、えぇノア様。おそらくエスアールは言いそびれただけかと……」*
 

@@ -1,7 +1,7 @@
 ###### [Next Chapter](./chapter_0205.md)
 ###### [Previous Chapter](./chapter_0203.md)&nbsp;/&nbsp;
 
-# A-87 The Past of the Moon and SR
+# A-87 The Past of the Moon and Esuar
 
 ## Ａ－８７　月とＳＲの過去
 
@@ -49,7 +49,7 @@
 
 &nbsp;
 
-#### "Ah! SR-san is trying to leave again! Please watch the ranking battle until the end for once!"
+#### "Ah! Esuar-san is trying to leave again! Please watch the ranking battle until the end for once!"
 
 *「あーっ！　またＳＲさんが帰ろうとしてるッス！　たまにはランキング戦、最後まで見てくださいッスよ！」*
 
@@ -61,7 +61,7 @@
 
 &nbsp;
 
-#### "Well, well. It seems SR-san doesn't really like socializing, so forcing it isn't good, Mika."
+#### "Well, well. It seems Esuar-san doesn't really like socializing, so forcing it isn't good, Mika."
 
 *「まぁまぁ。ＳＲさんってあまり人付き合い好きじゃないみたいだし、無理やりは良くないよミカ」*
 
@@ -95,7 +95,7 @@
 
 &nbsp;
 
-#### "That's definitely not it, Mika. And if you say something rude to SR-san, I'll get angry, okay? If you say something weird next time, you'll have to treat me to pancakes as punishment, got it?"
+#### "That's definitely not it, Mika. And if you say something rude to Esuar-san, I'll get angry, okay? If you say something weird next time, you'll have to treat me to pancakes as punishment, got it?"
 
 *「どうかんがえても違うよねミカ。それにＳＲさんに失礼なこと言ったらボクが怒るよ？　次変なこと言ったら罰としてパンケーキ奢ってもらうからね？」*
 
@@ -129,7 +129,7 @@
 
 &nbsp;
 
-#### "SR-san, your words are harsh! Your STR is high!"
+#### "Esuar-san, your words are harsh! Your STR is high!"
 
 *「ＳＲさん言葉が辛辣ッス！　ＳＴＲ高めッスよ！」*
 
@@ -147,13 +147,13 @@
 
 &nbsp;
 
-#### "SR-san can overcome things on her own without doing that. Since you're the one being chased, Mika should feel more of a sense of crisis."
+#### "Esuar-san can overcome things on her own without doing that. Since you're the one being chased, Mika should feel more of a sense of crisis."
 
 *「ＳＲさんはそんなことをしなくても自力で乗り越えてくるよ。追われる立場なんだから、ミカはもっと危機感持って」*
 
 &nbsp;
 
-#### "Ugh... But even in the match streaming comments, they say things like 'Interact more with SR' or 'Please share information about SR'..."
+#### "Ugh... But even in the match streaming comments, they say things like 'Interact more with Esuar' or 'Please share information about Esuar'..."
 
 *「うぅ……でも、試合配信のコメントでも『もっとＳＲと絡んで』とか『ＳＲの情報よろ』って言われるんスよ……」*
 
@@ -171,7 +171,7 @@
 
 &nbsp;
 
-#### "Because it's rude to SR-san. Oh, I'm here regardless of what the viewers say, so don't get the wrong idea, okay? Also, if possible, please teach me how to use Byakuren next time."
+#### "Because it's rude to Esuar-san. Oh, I'm here regardless of what the viewers say, so don't get the wrong idea, okay? Also, if possible, please teach me how to use Byakuren next time."
 
 *「ＳＲさんに失礼だから。あ、ボクは視聴者さんの言葉とか関係なしに来ているので、勘違いしないでくださいね？　あと、もし良かったら今度白蓮の使い方ご指南ください」*
 

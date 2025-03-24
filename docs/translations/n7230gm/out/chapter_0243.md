@@ -75,7 +75,7 @@
 
 &nbsp;
 
-#### "Oh? Are you bragging? The SR who challenged party battles solo."
+#### "Oh? Are you bragging? The Esuar who challenged party battles solo."
 
 *「お？　自慢っスか？　パーティ戦に単独で挑んでいたＳＲさん」*
 

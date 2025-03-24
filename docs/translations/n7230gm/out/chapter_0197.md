@@ -59,7 +59,7 @@
 
 &nbsp;
 
-#### "This person just started talking about settings... My impression of SR is heading in a bad direction."
+#### "This person just started talking about settings... My impression of Esuar is heading in a bad direction."
 
 *「ついに設定とか言い始めたッスこの人……ＳＲさんの印象がどんどんいけない方向に向かってるッス」*
 
@@ -167,7 +167,7 @@
 
 &nbsp;
 
-#### "Crescent-san, you've known SR-san for a while, right?"
+#### "Crescent-san, you've known Esuar-san for a while, right?"
 
 *「クレセントさんは、以前からエスアールさんとお知り合いなのよね？」*
 
@@ -201,7 +201,7 @@
 
 &nbsp;
 
-#### "Whenever!? You don't mean you plan to take a bath together, do you!? That's sexual harassment! I knew it! SR-san is a harem guy! I know it! Bringing me home and saying, 'Go take a shower,' is a signal for that!"
+#### "Whenever!? You don't mean you plan to take a bath together, do you!? That's sexual harassment! I knew it! Esuar-san is a harem guy! I know it! Bringing me home and saying, 'Go take a shower,' is a signal for that!"
 
 *「その都度！？　まさか一緒にお風呂に入るつもりッスか！？　セクハラッス！　やっぱりＳＲさんはハーレム野郎だったッス！　私知ってるッス！　家に連れ込んで『シャワー浴びて来いよ』って言うのは、そういう合図ッス！」*
 

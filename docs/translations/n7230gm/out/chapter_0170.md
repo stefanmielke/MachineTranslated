@@ -131,7 +131,7 @@
 
 &nbsp;
 
-#### "I was too focused on SR-kun, but... isn't the Lindale Kingdom too special? The princess and the maid... aren't they too strong?"
+#### "I was too focused on Esuar-kun, but... isn't the Lindale Kingdom too special? The princess and the maid... aren't they too strong?"
 
 *「エスアール君ばかりに気を取られていたけど……リンデール王国は特殊すぎやしないかい？　王女様といいメイドといい……強すぎじゃないか」*
 
@@ -167,7 +167,7 @@
 
 &nbsp;
 
-#### "Well done, SR-san!"
+#### "Well done, Esuar-san!"
 
 *「お見事ですエスアールさん！」*
 

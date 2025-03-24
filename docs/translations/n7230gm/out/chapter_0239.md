@@ -11,7 +11,7 @@
 
 &nbsp;
 
-#### "Hey, hey, aren't you being a bit too cowardly? I can't believe you're the same person as the SR-kun from Tempest that I was watching."
+#### "Hey, hey, aren't you being a bit too cowardly? I can't believe you're the same person as the Esuar-kun from Tempest that I was watching."
 
 *「ほらほら、ちょっと臆病になりすぎなんじゃない？　僕が見ていたテンペストのＳＲくんとは同一人物とは思えないね」*
 
@@ -169,7 +169,7 @@
 
 &nbsp;
 
-#### "I saw SR-san running on the roof while talking to Hime-chan."
+#### "I saw Esuar-san running on the roof while talking to Hime-chan."
 
 *「屋根の上に登って姫ちゃんと話してたら、ＳＲさんが屋根の上を走ってるのが見えたっス」*
 
@@ -293,13 +293,13 @@
 
 &nbsp;
 
-#### "Because the reason SR-san hasn't won yet is that he's overthinking, right?"
+#### "Because the reason Esuar-san hasn't won yet is that he's overthinking, right?"
 
 *「だってＳＲさんがまだ勝てていないのって、いろいろ考えちゃってるからっスよね？」*
 
 &nbsp;
 
-#### "Leave it to us, Noah-san. We'll awaken Tempest's SR-san."
+#### "Leave it to us, Noah-san. We'll awaken Tempest's Esuar-san."
 
 *「ボクらに任せてくださいノアさん。テンペストのＳＲさんを、呼び起こして見せます」*
 

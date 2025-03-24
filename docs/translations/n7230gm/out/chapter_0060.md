@@ -65,7 +65,7 @@
 
 &nbsp;
 
-#### "I admit it's troublesome, but surprisingly, it was enjoyable, wasn't it? Besides, it was a good opportunity to showcase the abilities of SR and Sera."
+#### "I admit it's troublesome, but surprisingly, it was enjoyable, wasn't it? Besides, it was a good opportunity to showcase the abilities of Esuar and Sera."
 
 *「面倒なのは認めるが、案外楽しめたんじゃないか？　それに、エスアールやセラの実力を示すいい機会だった」*
 
@@ -77,13 +77,13 @@
 
 &nbsp;
 
-#### "Still, SR is underestimating us too much. I never imagined we would have a match with a priest."
+#### "Still, Esuar is underestimating us too much. I never imagined we would have a match with a priest."
 
 *「それにしてもエスアールは私たちを舐めすぎです。僧侶で試合をするなんて想像もしてなかったですよ」*
 
 &nbsp;
 
-#### "Even so, we couldn't win. I want to take a peek into what's going on in SR's head."
+#### "Even so, we couldn't win. I want to take a peek into what's going on in Esuar's head."
 
 *「それでも敵わなかったけどね。エスアールの頭の中がどうなってるのか一度覗いてみたいわ」*
 
@@ -241,7 +241,7 @@
 
 &nbsp;
 
-#### "SR, Sera-san, what should we do with these guys?"
+#### "Esuar, Sera-san, what should we do with these guys?"
 
 *「エスアール、セラさん、こいつらどうするですか？」*
 
@@ -351,7 +351,7 @@
 
 &nbsp;
 
-#### "I told SR properly. We would 'take care of them.' I made sure to reform them perfectly."
+#### "I told Esuar properly. We would 'take care of them.' I made sure to reform them perfectly."
 
 *「エスアールにもきちんと言ったですよ。私たちが『シメておく』と。バッチリ更生させてやったです」*
 
@@ -369,7 +369,7 @@
 
 &nbsp;
 
-#### "There is no mercy for explorers with a disrespectful attitude, SR. I did a good job, if I do say so myself."
+#### "There is no mercy for explorers with a disrespectful attitude, Esuar. I did a good job, if I do say so myself."
 
 *「舐めた態度の探索者に慈悲はないですよエスアール。我ながらいい仕事をしたです」*
 

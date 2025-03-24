@@ -219,13 +219,13 @@
 
 &nbsp;
 
-#### "When SR helps Phenon, the fundamental reason was also 'I don’t want to lose,' right?"
+#### "When Esuar helps Phenon, the fundamental reason was also 'I don’t want to lose,' right?"
 
 *「エスアールはフェノンを助ける時も、根本の理由は『負けたくない』とか言っていたからな」*
 
 &nbsp;
 
-#### "Hehe, that’s very SR-like, isn’t it?"
+#### "Hehe, that’s very Esuar-like, isn’t it?"
 
 *「ふふっ、エスアールさんらしくていいじゃないですか」*
 
@@ -237,7 +237,7 @@
 
 &nbsp;
 
-#### "Yeah... SR-san, it would be better to say something like 'I want to save the princess with all my heart'..."
+#### "Yeah... Esuar-san, it would be better to say something like 'I want to save the princess with all my heart'..."
 
 *「えぇ……ＳＲさん、そこは『王女様を救いたい一心で』とか言っておいたほうが良いッスよ……」*
 

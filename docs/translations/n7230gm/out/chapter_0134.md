@@ -1,7 +1,7 @@
 ###### [Next Chapter](./chapter_0135.md)
 ###### [Previous Chapter](./chapter_0133.md)&nbsp;/&nbsp;
 
-# A-20 SR's Seriousness
+# A-20 Esuar's Seriousness
 
 ## Ａ－２０　ＳＲの本気
 
@@ -59,7 +59,7 @@
 
 &nbsp;
 
-#### "Please stop, SR... it's embarrassing..."
+#### "Please stop, Esuar... it's embarrassing..."
 
 *「恥ずかしいから止めてくれエスアール……」*
 
@@ -129,7 +129,7 @@
 
 &nbsp;
 
-#### "Hahaha! Since this is a precious opportunity for interaction, let's enjoy our meal more! ... By the way, SR, what are the sisters talking about?"
+#### "Hahaha! Since this is a precious opportunity for interaction, let's enjoy our meal more! ... By the way, Esuar, what are the sisters talking about?"
 
 *「はっはっはぁっ！　せっかくの交流の場なのだし、もっと楽しく食事をしようじゃないかっ！　……ところでエスアール、姉さんたちはいったいなんの話をしているんだ？」*
 
@@ -223,13 +223,13 @@
 
 &nbsp;
 
-#### "That's not true, Jill. The Sword Princess indeed had incredible skill, rivaling Shin. SR's archery and Lady Noah's magic were excellent too... but I don't think they reached the level of Thunderbolt Trail."
+#### "That's not true, Jill. The Sword Princess indeed had incredible skill, rivaling Shin. Esuar's archery and Lady Noah's magic were excellent too... but I don't think they reached the level of Thunderbolt Trail."
 
 *「それは違うよジル姉さん。剣姫は確かに、シンに劣らない凄まじい技量を持っていた。エスアールの弓術やノア様の魔法も優れてはいたけど……迅雷の軌跡に勝るレベルではなかったと思うよ」*
 
 &nbsp;
 
-#### "Archery?? You mean SR can use a bow?"
+#### "Archery?? You mean Esuar can use a bow?"
 
 *「弓術ぅ？？　あんた――エスアールは弓もできるわけ？」*
 
@@ -387,7 +387,7 @@
 
 &nbsp;
 
-#### "SR, are you... stronger than the Sword Princess?"
+#### "Esuar, are you... stronger than the Sword Princess?"
 
 *「エスアールは、その……剣姫よりも強いのか？」*
 
@@ -443,7 +443,7 @@
 
 &nbsp;
 
-#### "Jill Vinzett――was it? You are underestimating SR too much."
+#### "Jill Vinzett――was it? You are underestimating Esuar too much."
 
 *「ジル＝ヴィンゼット――だったか。貴方はエスアールを甘く見過ぎだ」*
 
@@ -461,7 +461,7 @@
 
 &nbsp;
 
-#### "No, SR is amazing. Just how amazing? He’s incredibly amazing. Got it?"
+#### "No, Esuar is amazing. Just how amazing? He’s incredibly amazing. Got it?"
 
 *「いいや。エスアールは凄いんだぞ。どれぐらい凄いかというと、もの凄く凄いんだ。わかったか？」*
 

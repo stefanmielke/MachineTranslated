@@ -51,7 +51,7 @@
 
 &nbsp;
 
-#### "What? You're really backing SR, huh? Could it be that rumor was true? That you lost in a mock battle?"
+#### "What? You're really backing Esuar, huh? Could it be that rumor was true? That you lost in a mock battle?"
 
 *「なんだ？　随分とエスアールに肩入れするじゃねぇか。もしかしてあの噂は本当だったのか？　お前さんが模擬戦で負けたってのは」*
 
@@ -63,7 +63,7 @@
 
 &nbsp;
 
-#### "Yeah, it's true. I lost to SR without being able to put up a fight."
+#### "Yeah, it's true. I lost to Esuar without being able to put up a fight."
 
 *「あぁ、本当だ。私はエスアールに手も足も出ず負けている」*
 
@@ -79,7 +79,7 @@
 
 &nbsp;
 
-#### "…You seem to have some skill, but considering the status bonus I just heard about, isn't there not much difference between your abilities and SR's? If that's the case, and you looked down on us—then this guy needs to experience a bit of pain."
+#### "…You seem to have some skill, but considering the status bonus I just heard about, isn't there not much difference between your abilities and Esuar's? If that's the case, and you looked down on us—then this guy needs to experience a bit of pain."
 
 *「……少しはやるみたいだが、さっき聞いたステータスボーナスとやらのことを考えれば、お前さんとエスアールの能力は大差ないんじゃないか？　それだけで、俺たちを見下した発言をしたのなら――こいつには少し痛い目を見てもらわないといけないが」*
 
@@ -101,7 +101,7 @@
 
 &nbsp;
 
-#### "Shin. I lost about ten days ago. SR now is different."
+#### "Shin. I lost about ten days ago. Esuar now is different."
 
 *「シン。私が負けたのは１０日ほど前のことだ。今のエスアールとは違う」*
 
@@ -119,7 +119,7 @@
 
 &nbsp;
 
-#### "You might not believe it, but… he, SR, was in an unselected job state until the day before our mock battle. The mock battle happened when he was simply at level 5 of a low-tier job."
+#### "You might not believe it, but… he, Esuar, was in an unselected job state until the day before our mock battle. The mock battle happened when he was simply at level 5 of a low-tier job."
 
 *「信じられないと思うがな……彼、エスアールは、私と模擬戦をする前日まで、職業未選択の状態だったんだぞ。私と模擬戦をしたのは、単純に下級職レベル５の時だった」*
 
@@ -273,7 +273,7 @@
 
 &nbsp;
 
-#### "Let's assume everything SR said is true. You're stronger than any of us, and you can defeat the boss alone. But—there's no clear goal. You suddenly appeared, giving us valuable information, and you want to save the princess? That's not it, is it? There must be a more straightforward, self-serving reason."
+#### "Let's assume everything Esuar said is true. You're stronger than any of us, and you can defeat the boss alone. But—there's no clear goal. You suddenly appeared, giving us valuable information, and you want to save the princess? That's not it, is it? There must be a more straightforward, self-serving reason."
 
 *「エスアールの言うことが、全て真実だったとしよう。お前さんは俺たちの誰よりも強く、ボスも１人で倒せるとしよう。だがな――全然目的が見えねぇ。俺たちに貴重な情報まで与えて、いきなりふらっと現れたお前さんが王女様を救いたい？　そうじゃねぇだろ。もっとわかりやすい、自分本位の理由があるはずだ」*
 

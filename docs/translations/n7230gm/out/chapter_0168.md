@@ -73,7 +73,7 @@
 
 &nbsp;
 
-#### "Of course! I stayed awake with my eyelids pried open to watch that heavenly match, and it even appeared in my dreams, so I won't mistake the face of Lord SR!"
+#### "Of course! I stayed awake with my eyelids pried open to watch that heavenly match, and it even appeared in my dreams, so I won't mistake the face of Lord Esuar!"
 
 *「それは勿論です！　あの天上の試合は限界まで瞼をこじ開けて眺めておりましたし、夢にもでてきますのでエスアール様のご尊顔は見間違うことはありません！」*
 
@@ -91,7 +91,7 @@
 
 &nbsp;
 
-#### "...Are you SR? The ASR? Then those girls behind you are—"
+#### "...Are you Esuar? The ASR? Then those girls behind you are—"
 
 *「……兄ちゃんがエスアールなのか？　あのＡＳＲの？　ってことは後ろの嬢ちゃんたちは――」*
 
@@ -139,7 +139,7 @@
 
 &nbsp;
 
-#### "No, we are currently visiting the Palmour Kingdom as explorers, and while there are many people around, here we are the only ones. Besides, we are in disguise, so there’s no problem. Also, I believe SR doesn’t particularly like this kind of thing, right?"
+#### "No, we are currently visiting the Palmour Kingdom as explorers, and while there are many people around, here we are the only ones. Besides, we are in disguise, so there’s no problem. Also, I believe Esuar doesn’t particularly like this kind of thing, right?"
 
 *「いえ、現在は探索者としてパルムール王国を訪れておりますし、周辺に大勢の人がいる状態ならまだしも、ここは私たちしかいないですから。そもそも変装中ですので問題はありません。それに、エスアールさんはこういうのあまりお好きじゃないでしょう？」*
 

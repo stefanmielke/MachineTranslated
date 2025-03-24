@@ -81,7 +81,7 @@
 
 *シリーが矢で牽制して、私が剣で攻撃。相手が怯んだところで、フェノンの射出魔法が襲いかかる。エスアールが休日にＡランクダンジョンへ行っている日は、私たちはコレの練習に明け暮れている。*
 
-#### Shiri would hold the enemy at bay with arrows while I attacked with my sword. When the enemy flinched, Fenon's magic would strike. On the days S.R. went to A-rank dungeons on his days off, we spent our time practicing this.
+#### Shiri would hold the enemy at bay with arrows while I attacked with my sword. When the enemy flinched, Fenon's magic would strike. On the days Esuar went to A-rank dungeons on his days off, we spent our time practicing this.
 
 *その成果は、実戦で十分に発揮できていると思っていた。*
 
@@ -223,7 +223,7 @@
 
 *フェノンはエスアールの背に目を向けたまま、そんな言葉を口にする。*
 
-#### Fenon said this while keeping her eyes on S.R.'s back.
+#### Fenon said this while keeping her eyes on Esuar's back.
 
 *彼女の言う通りだな。私もエスアールを信用して、彼の動きを覚えることに専念しようか。*
 
@@ -263,7 +263,7 @@
 
 *エスアールの手に青白く光る弓と矢が出現し、その矢はサンドヘッジホッグへと放たれた。魔弓術士のスキル――魔道矢だ。*
 
-#### A blue-white glowing bow and arrow appeared in S.R.'s hand, and the arrow was shot at the Sand Hedgehog. It was the magic archer's skill—Magic Arrow.
+#### A blue-white glowing bow and arrow appeared in Esuar's hand, and the arrow was shot at the Sand Hedgehog. It was the magic archer's skill—Magic Arrow.
 
 *その矢が手から離れた瞬間、エスアールの左手が赤く輝き始める。*
 
@@ -343,7 +343,7 @@
 
 &nbsp;
 
-#### S.R., showing no signs of fatigue, turned to us and innocently asked, "Did you get it?"
+#### Esuar, showing no signs of fatigue, turned to us and innocently asked, "Did you get it?"
 
 *全く疲れた様子のないエスアールは、こちらに向かって「わかったか？」なんて無邪気に聞いてくる。*
 
@@ -375,7 +375,7 @@
 
 &nbsp;
 
-#### S.R. was right.
+#### Esuar was right.
 
 *エスアールの言う通りだ。*
 
@@ -391,7 +391,7 @@
 
 &nbsp;
 
-#### As I waved back at S.R., who was waving at me, I muttered softly.
+#### As I waved back at Esuar, who was waving at me, I muttered softly.
 
 *こちらに向かって手を振っているエスアールに、手を挙げて応えながら、私は小さく呟いた。*
 

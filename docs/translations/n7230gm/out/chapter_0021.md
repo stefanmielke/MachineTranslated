@@ -19,7 +19,7 @@
 
 &nbsp;
 
-#### Myself and the trajectory of Thunderbolt arrived at the D-rank dungeon, where we operated the status window in a place out of sight and changed jobs to the one that SR mentioned.
+#### Myself and the trajectory of Thunderbolt arrived at the D-rank dungeon, where we operated the status window in a place out of sight and changed jobs to the one that Esuar mentioned.
 
 *Ｄランクダンジョン前へとやってきた私と迅雷の軌跡は、人目につかない所でステータスウィンドウを操作し、エスアールの言った職業へと転職した。*
 
@@ -61,7 +61,7 @@
 
 &nbsp;
 
-#### However, it’s unlikely that anyone would change to another lower class after gaining the status bonuses that SR mentioned.
+#### However, it’s unlikely that anyone would change to another lower class after gaining the status bonuses that Esuar mentioned.
 
 *しかしながら、エスアールの言うステータスボーナスを獲得して、別の下級職に転職する者は、おそらくいないだろう。*
 
@@ -93,13 +93,13 @@
 
 &nbsp;
 
-#### “Well then, let’s go. As I said earlier, if it looks tough, don’t hesitate to use the emergency return. If what SR said is true, we probably won’t need to do that.”
+#### “Well then, let’s go. As I said earlier, if it looks tough, don’t hesitate to use the emergency return. If what Esuar said is true, we probably won’t need to do that.”
 
 *「じゃあ、行くぞ。さっき言った通り、厳しそうなら迷わず緊急帰還だ。エスアールの言っていたことが事実なら、そんな必要はないだろうがな」*
 
 &nbsp;
 
-#### Shin still seems to have doubts about SR. Suzu and Laika also don’t voice it, but they probably haven’t fully trusted him yet. The proof is that upon hearing Shin’s words, their expressions stiffened.
+#### Shin still seems to have doubts about Esuar. Suzu and Laika also don’t voice it, but they probably haven’t fully trusted him yet. The proof is that upon hearing Shin’s words, their expressions stiffened.
 
 *シンはまだエスアールに疑いを持っているようだ。スズやライカも口には出さないが、まだ信じきれていないのだろう。その証拠に、シンの言葉を聞いた彼女たちは表情を強ばらせていた。*
 
@@ -137,7 +137,7 @@
 
 &nbsp;
 
-#### “This is serious; SR’s story is true.”
+#### “This is serious; Esuar’s story is true.”
 
 *「こりゃ、エスアールの話はマジだな」*
 
@@ -185,13 +185,13 @@
 
 &nbsp;
 
-#### “I think so too. We should be grateful to SR for sharing this with us.”
+#### “I think so too. We should be grateful to Esuar for sharing this with us.”
 
 *「私もそう思うわ。教えてくれたエスアールには、感謝しないとね」*
 
 &nbsp;
 
-#### How unreasonable the information brought by SR is.
+#### How unreasonable the information brought by Esuar is.
 
 *エスアールのもたらした情報がいかに非常識なモノなのか。*
 
@@ -221,7 +221,7 @@
 
 &nbsp;
 
-#### “SR entrusted us with conquering from the first layer to the fifth layer. If we’re going to be grateful, let’s level up properly and make it in time by the deadline.”
+#### “Esuar entrusted us with conquering from the first layer to the fifth layer. If we’re going to be grateful, let’s level up properly and make it in time by the deadline.”
 
 *「エスアールは私たちに１層から５層の踏破を任せたのだ。感謝をするのならば、しっかりとレベルを上げて、期日までに間に合わせようじゃないか」*
 
@@ -305,7 +305,7 @@
 
 &nbsp;
 
-#### “More importantly, what about SR? Who exactly is he?”
+#### “More importantly, what about Esuar? Who exactly is he?”
 
 *「それよりも、エスアールです。彼、本当に何者です？」*
 
@@ -343,7 +343,7 @@
 
 &nbsp;
 
-#### “Sera-san has fought against SR in a mock battle, right?”
+#### “Sera-san has fought against Esuar in a mock battle, right?”
 
 *「セラさんはエスアールと模擬戦をしたことがあるですよね？」*
 
@@ -463,7 +463,7 @@
 
 &nbsp;
 
-#### “By the way, how was your mock battle with SR? I heard you couldn’t even lay a hand on him, but how did that go?”
+#### “By the way, how was your mock battle with Esuar? I heard you couldn’t even lay a hand on him, but how did that go?”
 
 *「そういえばお前さんとエスアールの模擬戦は、どんな感じだったんだよ。手も足も出なかったとは聞いたが、どんな風にやられたんだ？」*
 

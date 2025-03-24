@@ -163,7 +163,7 @@
 
 &nbsp;
 
-#### "SR went that way~. Good luck!"
+#### "Esuar went that way~. Good luck!"
 
 *「ＳＲさんそっち行ったっスよ～。よろしくっスー！」*
 

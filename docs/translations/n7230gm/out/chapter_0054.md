@@ -313,7 +313,7 @@
 
 &nbsp;
 
-#### "Is that person SR-dono?"
+#### "Is that person Esuar-dono?"
 
 *「あの方がエスアール殿か？」*
 
@@ -459,7 +459,7 @@
 
 &nbsp;
 
-#### I am the disciple of the hero—SR.
+#### I am the disciple of the hero—Esuar.
 
 *私は勇者の――エスアールの弟子なのだから。*
 

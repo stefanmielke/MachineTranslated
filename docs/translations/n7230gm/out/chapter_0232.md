@@ -179,7 +179,7 @@
 
 &nbsp;
 
-#### "Does SR not feel any tension? It's your first time in a dungeon, right?"
+#### "Does Esuar not feel any tension? It's your first time in a dungeon, right?"
 
 *「エスアールは緊張とかないのか？　初めて行くダンジョンなのだろう？」*
 
@@ -203,7 +203,7 @@
 
 &nbsp;
 
-#### "I think it's good that you're being yourself, SR. Right, Shiri?"
+#### "I think it's good that you're being yourself, Esuar. Right, Shiri?"
 
 *「エスアールさんらしくて良いと思います。ねっ、シリー」*
 

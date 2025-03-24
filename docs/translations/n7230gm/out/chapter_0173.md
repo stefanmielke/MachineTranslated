@@ -181,7 +181,7 @@
 
 &nbsp;
 
-#### "That's surprising, right... But it seems to be true. I only learned about it yesterday when SR showed me the list of professions."
+#### "That's surprising, right... But it seems to be true. I only learned about it yesterday when Esuar showed me the list of professions."
 
 *「驚くよね……だけど、実際そうみたいだよ。僕も昨日エスアール君に職業一覧を見せてもらって初めて知ったぐらいだ」*
 
@@ -259,7 +259,7 @@
 
 &nbsp;
 
-#### "What's wrong, SR? You look troubled."
+#### "What's wrong, Esuar? You look troubled."
 
 *「どうしたんだエスアール、苦い顔して」*
 

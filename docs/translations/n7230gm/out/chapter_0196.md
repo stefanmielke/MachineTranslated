@@ -117,7 +117,7 @@
 
 &nbsp;
 
-#### "? Why is that princess mentioning SR's relationships? The one who's married is Sera, right?"
+#### "? Why is that princess mentioning Esuar's relationships? The one who's married is Sera, right?"
 
 *「？　なんでその王女様がＳＲさんの女性関係に言及をするッスか？　結婚してるのはセラッスよね？」*
 
@@ -135,7 +135,7 @@
 
 &nbsp;
 
-#### "--Huh? W-what!? Married to a princess!? Are you two-timing!? SR, are you a harem guy!?"
+#### "--Huh? W-what!? Married to a princess!? Are you two-timing!? Esuar, are you a harem guy!?"
 
 *「――え？　え、えぇえええええ！？　王女様と結婚！？　二股ッスか！？　ＳＲさんはハーレム野郎だったッスか！？」*
 
@@ -153,7 +153,7 @@
 
 &nbsp;
 
-#### "SR is not the lowest!"
+#### "Esuar is not the lowest!"
 
 *「エスアールは最低なんかじゃないぞ！」*
 
@@ -165,7 +165,7 @@
 
 &nbsp;
 
-#### "Huh? Isn't it normal? For a man like SR, it's not strange to have more than ten women. After all, he's the strongest in the world, right?"
+#### "Huh? Isn't it normal? For a man like Esuar, it's not strange to have more than ten women. After all, he's the strongest in the world, right?"
 
 *「え？　別に普通じゃない？　エスアールほどの男の人なら十人以上いても不思議じゃないわよ。なにせ世界最強よ？」*
 
@@ -213,7 +213,7 @@
 
 &nbsp;
 
-#### "Hahaha... In this world, I'm the odd one out, so I guess I have to get used to it. But, Sera, weren't you a noble? If a princess and a noble are wives, does that mean the 'two' Suzu mentioned earlier are also high-status people? I'm starting to feel scared about going to SR's house..."
+#### "Hahaha... In this world, I'm the odd one out, so I guess I have to get used to it. But, Sera, weren't you a noble? If a princess and a noble are wives, does that mean the 'two' Suzu mentioned earlier are also high-status people? I'm starting to feel scared about going to Esuar's house..."
 
 *「ははは……この世界じゃ異物は私の方ッスから、慣れなきゃいけないッスか。でも、たしかセラもお貴族様だったッスよね？　王女様と貴族様がお嫁さんってことは、さっきスズが言っていた『二人』ってのも、地位が高い人なんスか？　なんだかＳＲさんの家に行くの怖くなってきたッス……」*
 

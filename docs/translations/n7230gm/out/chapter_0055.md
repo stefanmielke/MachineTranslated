@@ -55,7 +55,7 @@
 
 &nbsp;
 
-#### "SR, you were the center of attention――heh."
+#### "Esuar, you were the center of attention――heh."
 
 *「エスアール、注目されてたです――ふふ」*
 
@@ -253,13 +253,13 @@
 
 &nbsp;
 
-#### "I don't know――but that movement seems to connect to SR."
+#### "I don't know――but that movement seems to connect to Esuar."
 
 *「わからない――が、あの動きはエスアールに通じるものがあるな」*
 
 &nbsp;
 
-#### "I thought the same... By the way, do you understand the meaning behind her actions, SR?"
+#### "I thought the same... By the way, do you understand the meaning behind her actions, Esuar?"
 
 *「それ、私も思ったわ……ところで彼女の行動の意味、エスアールはわかる？」*
 
@@ -375,7 +375,7 @@
 
 &nbsp;
 
-#### "What is it? Did you figure it out, SR?"
+#### "What is it? Did you figure it out, Esuar?"
 
 *「なんだ？　エスアールはわかったのか？」*
 

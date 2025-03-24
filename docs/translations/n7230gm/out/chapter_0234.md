@@ -59,7 +59,7 @@
 
 &nbsp;
 
-#### “I cannot comprehend that feeling of ‘not dying.’ Does SR know about this type of dungeon?”
+#### “I cannot comprehend that feeling of ‘not dying.’ Does Esuar know about this type of dungeon?”
 
 *「私にはその『死なない』という感覚がわからないのだ。エスアールはこのタイプのダンジョンを知っているのか？」*
 
@@ -265,7 +265,7 @@
 
 &nbsp;
 
-#### “...Aren’t you the same, SR?”
+#### “...Aren’t you the same, Esuar?”
 
 *「……エスアールさんもそうじゃないっスか」*
 
@@ -289,7 +289,7 @@
 
 &nbsp;
 
-#### “...Our current objective is investigation, SR.”
+#### “...Our current objective is investigation, Esuar.”
 
 *「……今の目的は調査だぞエスアール」*
 

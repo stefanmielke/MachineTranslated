@@ -179,7 +179,7 @@
 
 &nbsp;
 
-#### "She feels like a doll, doesn't she, Phanon? The fact that SR is marrying someone like her is just amazing. Plus, Sera is also beautiful and from a count's family, so they're really high-status people. They’re so friendly that you might forget that."
+#### "She feels like a doll, doesn't she, Phanon? The fact that Esuar is marrying someone like her is just amazing. Plus, Sera is also beautiful and from a count's family, so they're really high-status people. They’re so friendly that you might forget that."
 
 *「お人形さんって感じだよね、フェノン様。それをお嫁さんにしちゃうＳＲさんはやっぱりすごいってことだよ。しかもセラさんも美人で伯爵家の方だし、すごい身分の人たちなんだよね。気さくに接してくれるから、忘れちゃいそうになるけど」*
 
@@ -211,7 +211,7 @@
 
 &nbsp;
 
-#### "Well, it's a game, after all. But we were really hooked on Tempest, so SR is definitely someone we admire. You might be the only one I thought I couldn't see a winning path against."
+#### "Well, it's a game, after all. But we were really hooked on Tempest, so Esuar is definitely someone we admire. You might be the only one I thought I couldn't see a winning path against."
 
 *「まあゲームっすからね。でも、いちおう私たちもテンペストにドはまりしてたっすから、ＳＲさんはやっぱり憧れっすよ。私が唯一、勝ち筋が見えないって思えた相手かもしれないっすね」*
 
@@ -223,7 +223,7 @@
 
 &nbsp;
 
-#### "SR's use of Byakuren—or rather, the way SR fights with the Demon King matches so perfectly with Byakuren that it was just overwhelming. Challenging five rankers alone is definitely insane. —Ah, I'm sorry, I'm sorry! Of course, I'm complimenting you! I'm praising you to the highest degree!"
+#### "Esuar's use of Byakuren—or rather, the way Esuar fights with the Demon King matches so perfectly with Byakuren that it was just overwhelming. Challenging five rankers alone is definitely insane. —Ah, I'm sorry, I'm sorry! Of course, I'm complimenting you! I'm praising you to the highest degree!"
 
 *「ＳＲさんは白蓮の使い方――というか、ＳＲさんの魔王での戦い方に白蓮がマッチしすぎて、もう手に負えなかったもんね。ランカー五人に対して一人で挑むとか、絶対頭おかしいもん。――あっ、すみませんすみません！　もちろん褒めてます！　最大級に褒めてるんですボクは！」*
 

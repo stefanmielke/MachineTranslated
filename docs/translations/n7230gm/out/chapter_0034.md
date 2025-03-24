@@ -303,7 +303,7 @@
 
 &nbsp;
 
-#### "Yeah. She's been nagging me to go to the dungeon with SR quickly."
+#### "Yeah. She's been nagging me to go to the dungeon with Esuar quickly."
 
 *「あぁ。早くエスアールとダンジョンに潜りたいとうるさいからな」*
 
@@ -315,7 +315,7 @@
 
 &nbsp;
 
-#### "Well, if you hang out with Fenon, SR will soon start saying the same thing."
+#### "Well, if you hang out with Fenon, Esuar will soon start saying the same thing."
 
 *「なに、フェノンと接していたらエスアールもすぐに言うようになるさ」*
 
@@ -337,7 +337,7 @@
 
 &nbsp;
 
-#### "What about SR? It seems the meeting with the guild master is over, so are you going to the dungeon?"
+#### "What about Esuar? It seems the meeting with the guild master is over, so are you going to the dungeon?"
 
 *「エスアールはどうするんだ？　ギルドマスターとの打ち合わせは終わったみたいだし、ダンジョンにでも行くのか？」*
 

@@ -237,7 +237,7 @@
 
 &nbsp;
 
-#### "It's reassuring that it's okay to die. If I'm with SR-san, maybe it won't be a problem."
+#### "It's reassuring that it's okay to die. If I'm with Esuar-san, maybe it won't be a problem."
 
 *「死んでも大丈夫というのは安心よね。エスアールさんと一緒にいれば、そんなこともないのかもしれないけど」*
 
@@ -301,7 +301,7 @@
 
 &nbsp;
 
-#### "I just received a communication—it's probably good news for SR… It seems a strange building has appeared along the road west of the royal capital. Thanks to that, I might be buried in work."
+#### "I just received a communication—it's probably good news for Esuar… It seems a strange building has appeared along the road west of the royal capital. Thanks to that, I might be buried in work."
 
 *「たったいま通信が入った――エスアールにとっては喜ばしいことなんだろうな……王都から西に出た道沿いに、見慣れない建造物ができてるらしいぞ。おかげで俺は仕事漬けになりそうだ」*
 

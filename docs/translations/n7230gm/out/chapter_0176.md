@@ -1,7 +1,7 @@
 ###### [Next Chapter](./chapter_0177.md)
 ###### [Previous Chapter](./chapter_0175.md)&nbsp;/&nbsp;
 
-# A-60 Fighting SR
+# A-60 Fighting Esuar
 
 ## Ａ－６０　格闘エスアール
 
@@ -113,7 +113,7 @@
 
 &nbsp;
 
-#### "Indeed, SR is terrifyingly strong even without weapons. I'm sure anyone seeing it for the first time would believe that's your main strength."
+#### "Indeed, Esuar is terrifyingly strong even without weapons. I'm sure anyone seeing it for the first time would believe that's your main strength."
 
 *「やはりエスアールは素手でも恐ろしいほどに強いな。きっと初めてみる人はそちらがメインだと言われても信じてしまうぞ」*
 
@@ -159,7 +159,7 @@
 
 &nbsp;
 
-#### "What are you going to do if you get any stronger, SR...?"
+#### "What are you going to do if you get any stronger, Esuar...?"
 
 *「これ以上強くなってどうするんだエスアールは……」*
 
@@ -269,7 +269,7 @@
 
 &nbsp;
 
-#### "What are you trying to do by recommending that I sleep...? Also, I fully understand that SR is relaxed, but shouldn't you have a bit more tension? If something happens, both I and Phenon will be sad—do you really want to see us sad, SR? Huh? What do you think?"
+#### "What are you trying to do by recommending that I sleep...? Also, I fully understand that Esuar is relaxed, but shouldn't you have a bit more tension? If something happens, both I and Phenon will be sad—do you really want to see us sad, Esuar? Huh? What do you think?"
 
 *「あなたが寝ることを勧めてどうする……。それと、エスアールが余裕なのは重々承知だが、少しは緊張感を持った方がいいんじゃないか？　もし何かあったら私やフェノンが悲しむぞ――私たちが悲しむところがそんなに見たいのかエスアールは、ん？　どうなんだ？」*
 
