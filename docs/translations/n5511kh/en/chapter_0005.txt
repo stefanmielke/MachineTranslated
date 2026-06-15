@@ -1,4 +1,4 @@
-# 5話
+# Chapter 5
 
 <b>
 
@@ -6,159 +6,159 @@
 
 <b>
 
-あれからどれほど日が過ぎただろうか。呪いの人形の姿から、ようやく私は人として見られる姿へと変化した。
+How many days had passed since then? At last I had changed from a cursed-doll form into an appearance that could be seen as human.
 
-ただし頭に生えたマンドラゴラの花はどうしても外すことはできなかったので、他にも花や植物を生やし、花で彩られた帽子を被っているように見せかけている。マンドラゴラの花だけでは訝しまれるかと思い、別種の植物も生やせるように願ったところ「多様化」というスキルを手に入れた。「取り込んだことのある植物」であれば、自分の魔力を消費することでいくらでも生やせるというものだ。
-
-<b>
-
-（スキルを覚えると進化ポイントを10も消費するから、びっくりしたけど……ポイント足りてよかった）
+However, I still couldn't remove the mandrake flower growing on my head, so I grew other flowers and plants as well and made it look like I was wearing a hat adorned with blooms. I figured that having only a mandrake flower would raise suspicions, so I wished to be able to grow other species of plants and gained the skill "Diversification." If it's a plant I've "taken in" before, I can grow as much of it as I want by consuming my own magic power.
 
 <b>
 
-進化ポイントはレベルアップをするたびに1ポイント増えるもので、魔物はこのポイントで自分を強化しているようだ。……人間の見た目になるために何十というポイントを消費しているのは私くらいのものだろう。
-
-あれから何度か戦闘にもなって、気が付けば私のレベルは99まで上がっていた。
+(Huh… learning a skill cost 10 evolution points, so I was surprised… but I'm glad I had enough points.)
 
 <b>
 
-【種族】マンドラゴラ(特異)
+Evolution points increase by one each time you level up, and monsters seem to use these points to strengthen themselves. …I'm probably one of the few who spent dozens of points just to look human.
 
-【レベル】99
-
-【体力】A
-
-【魔力】計測不能
-
-【スキル】拡散声　薬物生成　ステータス表示　多様化
-
-【進化ポイント】32
-
-【説明】
-
-竜血で育ち、ふんだんに魔力を含んだ最高級のマンドラゴラ。材料とすればどのような薬でも作成可能だが、数多の魔物を栄養分とし強大な力を得ており、捕獲は不可能。
-
-その声を聞けば呪いによる死が待っているため対策必須。人間に擬態した姿で油断させて近づいてくる上に、声を拡散させる能力で目視できない距離からも攻撃してくる。
-
-様々な植物を再現、その成分を抽出することで数多の薬物を作り出し、状態異常攻撃を仕掛けてくる。呪い、状態異常共に万全の対策がなければ対峙するべきではない。
-
-人類の脅威、災いの魔物。あなたが勇者でない限り、命を守るために今すぐ逃げ出すべきだろう。
+Since then I've fought a few battles, and before I knew it my level had risen to 99.
 
 <b>
 
-<b>
+【Species】Mandrake (Unique)
 
-（うーん……すごい……悪役みたいな説明になっちゃったな。っていうか誰に語り掛けてるんだろう、この説明文……それに見た目は結構綺麗な人間になれたと思うんだけど、怖いかなぁ）
+【Level】99
 
-<b>
+【Stamina】A
 
-蓮の花の池を覗き込む。モネの池にも似た美しい池なのだけれど、この蓮はとんでもない毒性を持つ花で、水の中に生き物はいない。そのせいか非常に澄んで美しい水なので、自分の姿もよく見えるのだ。とはいえ本物の鏡のようにはいかないけれど。
+【Magic Power】Unmeasurable
 
-<b>
+【Skills】Dispersal Voice · Drug Synthesis · Status Display · Diversification
 
-前は呪いの人形のざんばら髪にしか見えなかったのに、今やゆるやかなウェーブを描く艶やかな髪(のように見える蔦）へと変わっている。緑から桃色へとグラデーションが掛かっているのは、蔦本来の色なので仕方がない。不思議な雰囲気を醸し出しているが、これくらいなら許容範囲だろう。髪を染めていると言えばいいのだから。
+【Evolution Points】32
 
-<b>
+【Description】
 
-背の高さも見かけた人間を思い出しながら調整した。1ポイントで大きくなれる高さには限界があったので、10ポイントを消費してようやく見かけた人間より頭1.5個分ほど小さい身長になれた。これ以上はさすがにポイントがもったいないので諦めたところだ。もしこれでも人間の女性として不自然なほど身長が低ければ、ヒールの高い靴などで誤魔化せばいいだろう。もうレベルが上がるとも思えないし、ポイントはできるだけ残しておきたい。
+A top-quality mandrake grown on dragon's blood and containing abundant magic power. As a material it can be used to make any kind of medicine, but it has consumed countless monsters for nourishment and gained tremendous power, making capture impossible.
 
-<b>
+Hearing its voice brings death by curse, so countermeasures are essential. It lures victims by disguising itself as human and approaches while people are off guard, and with the ability to disperse its voice it can attack from distances beyond visual range.
 
-（まあ……人の高さになった時は、呪いの人形から呪いのマネキンみたいになってそれも怖かったけどさ……）
+It can replicate various plants and extract their components to create countless drugs, launching status-effect attacks. Do not face it unless you have perfect measures against both curses and status ailments.
 
-<b>
-
-怪物を倒すゲームの廃れた商業施設などで襲い掛かってきそうな怪異とでも言い表せばいいだろうか。進化の途中はとてもじゃないが人には見せられない姿だった。
-
-そこから肌の色を調整、水かきを取り、手足や顔のパーツを調整してようやく人間らしい姿になったのだ。これだけで10ポイント以上は消費しただろう。多少不自然な部分は服を着たり、花を咲かせることで誤魔化せそうな範囲に収まった。
-
-<b>
-
-（服も……うん。水鏡で見る限りは、悪くないね）
-
-<b>
-
-はっきりと女性らしい凹凸のある体で人らしい姿になれた時、服をどうするべきか悩んだ。そして「ないなら作ればいい」という考えに至ったのである。何せ、植物なら私は自由自在に生み出して操れるのだ。服にも植物性のものはあるし、それを再現すればいい。
-
-<b>
-
-まずは森の中を歩き回りあらゆる植物を摂取し、服を作るのに最適なものを見つけ出す。それを頭の上に生やせば自在に変化させられるので、植物の繊維を編んで服を作り上げたのだが。……まあ、その、人間の髪の毛と違って蔦には痛覚があり、一つや二つ、せいぜい十の繊維ならともかく、何百何千とおりかさなった細かな蔦をちぎるのはかなり痛かったので、分離するのは断念した。
-
-結局着ている服はうなじのあたりの髪と繋がっている状態である。髪の量も増やして腰のあたりまでの長さがあり、絶対に見えないので問題ないだろう。
-
-<b>
-
-（素肌の露出は極力避けないとね。……触ると吸っちゃうし）
-
-<b>
-
-体のラインに沿って作ったワンピースはシンプルで淡い緑だ。飾り気が足りないので、適当に花を生やして飾ってみた。……うん、やたらと花をつけているが人の範囲に収まっている。余程花好きなのだと思われるくらいで済むだろう。
-
-そして何より重要なのが手袋だ。ワンピース部分と繋がる形で指先まで覆い、根の部分を露出しないようにする。どうやってこの服を着たんだと不思議に思われそうだが、肌を出すのは怖い。
-
-蔦越しにすることで触っても相手からエネルギーを吸わないようにできるというのは、魔物の死体で証明済みだ。かなり独特のファッションの人になったが、重要なのは人間と上手く暮らしていけるかどうかである。変わり者だと思われるくらいなら問題ない。……誤って人を殺すよりずっといい。
-
-<b>
-
-（叫び声の対策もしたし……これで、人間に交ざっても大丈夫なはず）
-
-<b>
-
-マンドラゴラという種族故か、私は非常に小心者でビビリなのだ。本当にちょっとしたことで叫んでしまう。そのため、不用意に叫ばないように声を出す器官に蓋を作っておいた。これは私が意図して声を出そうとしない限り閉まっていて、勝手に叫ばないようにするためのものだ。……まあおかげで、魔物に襲われてびっくりした途端に声の反撃、ということはできなくなったのだが。人を殺してしまうよりマシである。
-
-その上、叫んでいる時この蓋は強く閉まるようにできており、顔のあたりを引っ張られるようで笑顔に固定されてしまう。私が叫びたい心境の時は内心とは裏腹に、にっこりと笑ってしまうという仕様だ。……まあたぶん、そこまで悪影響はない、と思いたい。
-
-<b>
-
-（これでよし、人の国を目指して出発！）
-
-<b>
-
-そもそも人間の国が何処にあるか分かっていないので、行く宛はあってないようなもの。とりあえずここは高地にあるようなので、川沿いに歩いて下っていくことにした。人間は水がないと生きていけないし、川の近くに集落を作ることが多い。……この世界の人間が元の世界と大きく変わらなければ、集落くらいにはたどり着けるだろう。
-
-<b>
-
-（人間にあったらまずは…………挨拶？）
-
-<b>
-
-いけない、人との接し方をすっかり忘れている。そもそも叫ぶばかりでまともに話していなかった。少しくらいは話す練習が必要かもしれない。
-
-小川に沿って歩いていた私は、茂みからこちらの様子を窺う兎がいることに気が付いた。兎とはいっても魔物の一種で、茂みから独特の形をした角が隠し切れず覗いているため「そこに居る」ということが分かったのだ。練習がてら、私はその兎に向かってできるだけ優しい声で話しかけてみる。
+A threat to humanity, a calamitous monster. Unless you are a hero, you should run away now to save your life.
 
 <b>
 
 <b>
 
-「あら、どうしてこんなところに？」
+(Hmm… wow… that description turned out sounding like a villain. Also, who is this description talking to…? And I think I managed to become a fairly pretty human-looking person, but am I scary?)
+
+<b>
+
+I peered into a pond full of lotus flowers. It was a beautiful pool reminiscent of Monet’s pond, but these lotuses were incredibly poisonous — nothing lived in the water. Maybe because of that, the water was very clear and beautiful, so I could see my reflection well. Though it wasn't a perfect mirror.
+
+<b>
+
+Before, my hair only looked like the tattered hair of a cursed doll, but now it had become glossy, forming gentle waves (vines that looked like hair). The green-to-pink gradient can't be helped — it's the vines' natural color. It gives off a strange atmosphere, but this is within acceptable range. I can just say I dyed my hair.
+
+<b>
+
+I adjusted my height based on remembered humans. There’s a limit to how much height you gain per point, so I spent 10 points and finally became about one and a half heads shorter than the humans I'd seen. I gave up spending more points — that would be wasteful. If I'm still unnaturally short for a human woman, I can hide it with high heels. I don't expect to level up again, so I want to keep as many points as possible.
+
+<b>
+
+(Well… when I first reached human height I turned from a cursed doll into a cursed mannequin and that was scary too…)
+
+<b>
+
+It might be best described as the kind of nightmare you'd expect to attack an abandoned shopping mall in a monster-slaying game. The intermediate stages of evolution were something no human should see.
+
+From there I adjusted skin color, removed webbing, reshaped my hands, feet, and face parts, and finally attained a humanlike appearance. That alone probably cost more than ten points. Any remaining oddities could be disguised with clothes and flowers.
+
+<b>
+
+(Clothes too… yeah. From the water reflection, they don't look bad.)
+
+<b>
+
+When my body finally had distinctly feminine curves and a human form, I worried about what to wear. Then I realized, "If I don't have clothes, I can make them." After all, I can freely create and control plants. Plant-based clothing exists, so I could reproduce that.
+
+<b>
+
+First I walked through the forest and took in many plants to find the best fibers for clothes. If I grew them on my head I could change them at will, so I wove plant fibers into garments. …Well, unlike human hair, vines feel pain — tearing off a single fiber or two is one thing, but pulling apart hundreds or thousands of tiny intertwined vines hurt a lot, so I gave up separating them.
+
+In the end, the clothes I wear remain connected to the hair around my nape. I increased the hair volume so it reaches about my waist, so it's never visible anyway.
+
+<b>
+
+(I should avoid exposing bare skin as much as possible. …If someone touches me I might absorb them.)
+
+<b>
+
+The simple, pale-green dress I made follows my body's lines. It needed ornamentation, so I grew flowers on it. …Yeah, it's covered in flowers, but still within human norms. People will probably just think I'm extremely fond of flowers.
+
+Most importantly are the gloves. They connect to the dress and cover my fingertips to hide the root parts. People might wonder how I put the outfit on, but I'm scared to show skin.
+
+It's proven by monster corpses that touching through vines prevents you from absorbing energy from the other person. I ended up with a rather eccentric fashion sense, but the important thing is whether I can live peacefully among humans. Being considered weird is better than accidentally killing someone.
+
+<b>
+
+(I've also taken care of my scream… with this, I should be able to blend in with humans.)
+
+<b>
+
+Maybe because I'm a mandrake, I'm extremely cowardly and a big scaredy-cat. I scream at the slightest thing. So I made a lid over my vocal organs to keep them closed unless I intend to speak. It stays shut unless I deliberately open it, preventing me from screaming on impulse. …Well, thanks to that I can no longer respond to a monster attack with a voice counterattack. Better than killing someone, though.
+
+Also, when I do scream the lid clamps down tightly and it feels like my face is being pulled, locking it into a smile. So whenever I feel like screaming, I end up smiling brightly against my will. …I hope that won't cause too many problems.
+
+<b>
+
+(Alright, off to the human country!)
+
+<b>
+
+I didn't even know where the human nations were, so I wasn't going anywhere in particular. This place seemed to be on high ground, so I decided to walk down along the river. Humans can't live without water, and settlements often form near rivers. …If the humans in this world aren't drastically different from those of my original world, I should be able to reach at least a village.
+
+<b>
+
+(If I meet a human, first I should… greet them?)
+
+<b>
+
+Oh no, I'd completely forgotten how to interact with people. I hadn't really spoken properly apart from screaming. I might need a little practice.
+
+As I walked along the stream, I noticed a rabbit peering at me from the bushes. It was a type of monster, but I could tell it was there because a uniquely shaped horn peeked out from the leaves. As practice, I tried to speak to the rabbit in as gentle a voice as possible.
 
 <b>
 
 <b>
 
-いや、違うな。まずは「こんにちは」などの挨拶が適当なはず。やり直そうと口を開くより先に、角がぱたりと横に倒れていくのが見えた。
-
-<b>
-
-（え。……叫ぶんじゃなくて、喋るのもだめ？）
-
-<b>
-
-マンドラゴラの叫び声には気絶か即死の効果がある。てっきり、叫ばなければいいのだと思っていたがそうではなさそうだ。
-
-あの兎が死んだふりをしている可能性はなくもない。この声で死んだ者は胸元が黒く染まるので、一応その確認をしてみようと茂みに近づいた。……これで兎が死んでいたら、私は人前で喋れないことになってしまう。
+"Oh? What are you doing in a place like this?"
 
 <b>
 
 <b>
 
-「放って、おいて……くれ……」
+No, that's wrong. I should've said "Hello" or something. Before I could reopen my mouth to try again, I saw the horn flop sideways.
+
+<b>
+
+(Huh… so it's not just screaming — talking is bad too?)
+
+<b>
+
+A mandrake's scream causes either unconsciousness or instant death. I assumed that as long as I didn't scream I'd be fine, but that didn't seem to be the case.
+
+There's a chance the rabbit was feigning death. Those killed by this voice have their chests stained black, so I approached the bushes to check. …If the rabbit was already dead, it would mean I couldn't speak in front of people.
 
 <b>
 
 <b>
 
-すると茂みの向こう側に、血まみれの人間が倒れ込んでいた。……あれ、この人私の声を聞いたんじゃ？　まずくない？
+"Leave… me… alone…"
+
+<b>
+
+<b>
+
+Beyond the bushes, a blood-soaked human had collapsed. …Huh, didn't this person just hear my voice? Isn't this bad?
 
 <b>
 
@@ -168,10 +168,10 @@
 
 ----------------
 
-どう考えても最終ダンジョンのボス個体です
+No matter how you look at it, that's the final-dungeon boss specimen.
 
 <b>
 
-ご感想やブクマ、評価などありがとうございます！リアクションも嬉しいです…！
+Thanks for your impressions, bookmarks, ratings, etc.! Reactions make me happy…!
 
-ここから人型編、スタートです。よろしくお願いします。
+From here begins the humanoid arc. Please enjoy.
