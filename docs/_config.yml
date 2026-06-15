@@ -17,3 +17,6 @@ exclude:
 - docs/translations/n3793gb/data.json
 - docs/translations/n3793gb/en
 - docs/translations/n3793gb/jp
+- docs/translations/n5511kh/data.json
+- docs/translations/n5511kh/en
+- docs/translations/n5511kh/jp
