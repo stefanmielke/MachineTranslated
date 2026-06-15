@@ -1,4 +1,5 @@
 import json
+import os
 import queue
 import subprocess
 import sys
@@ -24,10 +25,10 @@ MODEL_OPTIONS = (
 )
 
 
-class BatchUi(tk.Tk):
-    def __init__(self):
-        super().__init__()
-        self.title("MachineTranslated OpenAI Batch")
+class WorkingTranslationsWindow(tk.Toplevel):
+    def __init__(self, parent):
+        super().__init__(parent)
+        self.title("Working Translations")
         self.geometry("1120x720")
         self.minsize(900, 600)
 
@@ -410,8 +411,243 @@ class BatchUi(tk.Tk):
         self.output.see("end")
 
 
+class TranslationsUi(tk.Tk):
+    def __init__(self):
+        super().__init__()
+        self.title("MachineTranslated Translations")
+        self.geometry("1040x680")
+        self.minsize(820, 520)
+
+        self.selected_series = None
+        self.current_data = {}
+        self.data_vars = {
+            "name": tk.StringVar(),
+            "novel-updates-link": tk.StringVar(),
+            "source-link": tk.StringVar(),
+            "ml-used": tk.StringVar(),
+        }
+
+        self.create_widgets()
+        self.load_series()
+
+    def create_widgets(self):
+        self.columnconfigure(1, weight=1)
+        self.rowconfigure(0, weight=1)
+
+        left = ttk.Frame(self)
+        left.grid(row=0, column=0, sticky="ns", padx=10, pady=10)
+        left.rowconfigure(1, weight=1)
+
+        ttk.Label(left, text="Translations").grid(row=0, column=0, sticky="w", pady=(0, 6))
+        self.series_list = tk.Listbox(left, width=28, exportselection=False)
+        self.series_list.grid(row=1, column=0, sticky="ns")
+        self.series_list.bind("<<ListboxSelect>>", self.on_series_selected)
+        ttk.Button(left, text="Reload", command=self.load_series).grid(row=2, column=0, sticky="ew", pady=(6, 0))
+        ttk.Button(left, text="Working Translations", command=self.open_working_translations).grid(row=3, column=0, sticky="ew", pady=(6, 0))
+
+        right = ttk.Frame(self)
+        right.grid(row=0, column=1, sticky="nsew", padx=(0, 10), pady=10)
+        right.columnconfigure(0, weight=1)
+        right.rowconfigure(1, weight=0)
+        right.rowconfigure(4, weight=3)
+
+        self.series_label_var = tk.StringVar(value="Select a translation")
+        ttk.Label(right, textvariable=self.series_label_var).grid(row=0, column=0, sticky="w", pady=(0, 6))
+
+        data_frame = ttk.LabelFrame(right, text="data.json")
+        data_frame.grid(row=1, column=0, sticky="nsew")
+        data_frame.columnconfigure(1, weight=1)
+        data_frame.rowconfigure(4, weight=1)
+
+        labels = {
+            "name": "Name",
+            "novel-updates-link": "Novel Updates",
+            "source-link": "Source",
+            "ml-used": "ML used",
+        }
+        for row, key in enumerate(self.data_vars):
+            ttk.Label(data_frame, text=labels[key]).grid(row=row, column=0, sticky="w", padx=8, pady=6)
+            ttk.Entry(data_frame, textvariable=self.data_vars[key]).grid(row=row, column=1, sticky="ew", padx=8, pady=6)
+
+        ttk.Label(data_frame, text="Translation context").grid(row=4, column=0, sticky="nw", padx=8, pady=6)
+        self.translation_context_text = scrolledtext.ScrolledText(data_frame, wrap="word", height=6)
+        self.translation_context_text.grid(row=4, column=1, sticky="nsew", padx=8, pady=6)
+
+        data_buttons = ttk.Frame(right)
+        data_buttons.grid(row=2, column=0, sticky="ew", pady=6)
+        ttk.Button(data_buttons, text="Save data.json", command=self.save_data_json).grid(row=0, column=0, padx=(0, 6))
+        ttk.Button(data_buttons, text="Reload data.json", command=self.load_selected_series).grid(row=0, column=1)
+
+        chapter_header = ttk.Frame(right)
+        chapter_header.grid(row=3, column=0, sticky="ew", pady=(8, 6))
+        chapter_header.columnconfigure(0, weight=1)
+        ttk.Label(chapter_header, text="Chapters").grid(row=0, column=0, sticky="w")
+        ttk.Button(chapter_header, text="Open JP", command=self.open_selected_chapter).grid(row=0, column=1, padx=(6, 0))
+        ttk.Button(chapter_header, text="Open EN", command=self.open_selected_en).grid(row=0, column=2, padx=(6, 0))
+        ttk.Button(chapter_header, text="Open Output", command=self.open_selected_output).grid(row=0, column=3, padx=(6, 0))
+        ttk.Button(chapter_header, text="Open Folder", command=self.open_selected_folder).grid(row=0, column=4, padx=(6, 0))
+
+        columns = ("chapter", "translated", "output")
+        self.chapter_tree = ttk.Treeview(right, columns=columns, show="headings", selectmode="browse")
+        self.chapter_tree.heading("chapter", text="JP Chapter")
+        self.chapter_tree.heading("translated", text="Translated")
+        self.chapter_tree.heading("output", text="Output")
+        self.chapter_tree.column("chapter", width=280)
+        self.chapter_tree.column("translated", width=110, stretch=False)
+        self.chapter_tree.column("output", width=280)
+        self.chapter_tree.grid(row=4, column=0, sticky="nsew")
+
+        scrollbar = ttk.Scrollbar(right, orient="vertical", command=self.chapter_tree.yview)
+        self.chapter_tree.configure(yscrollcommand=scrollbar.set)
+        scrollbar.grid(row=4, column=0, sticky="nse")
+
+    def load_series(self):
+        self.series_list.delete(0, "end")
+        translations_dir = ROOT_DIR / "docs" / "translations"
+        series = []
+        if translations_dir.exists():
+            series = sorted(path.name for path in translations_dir.iterdir() if path.is_dir())
+        for name in series:
+            self.series_list.insert("end", name)
+
+    def on_series_selected(self, _event=None):
+        selection = self.series_list.curselection()
+        if not selection:
+            return
+        self.selected_series = self.series_list.get(selection[0])
+        self.load_selected_series()
+
+    def selected_series_dir(self):
+        if not self.selected_series:
+            return None
+        return ROOT_DIR / "docs" / "translations" / self.selected_series
+
+    def load_selected_series(self):
+        series_dir = self.selected_series_dir()
+        if not series_dir:
+            return
+
+        self.series_label_var.set(str(series_dir))
+        data_path = series_dir / "data.json"
+        data = {}
+        if data_path.exists():
+            try:
+                data = json.loads(data_path.read_text(encoding="utf-8"))
+            except json.JSONDecodeError as exc:
+                messagebox.showerror("Invalid data.json", f"{data_path}\n\n{exc}")
+
+        self.current_data = data
+        for key, var in self.data_vars.items():
+            var.set(data.get(key, ""))
+        self.translation_context_text.delete("1.0", "end")
+        self.translation_context_text.insert("1.0", data.get("translation-context", ""))
+
+        self.load_chapters(series_dir)
+
+    def load_chapters(self, series_dir):
+        self.chapter_tree.delete(*self.chapter_tree.get_children())
+        jp_dir = series_dir / "jp"
+        out_dir = series_dir / "out"
+        if not jp_dir.exists():
+            return
+
+        for path in sorted(jp_dir.glob("chapter_*.txt")):
+            output_name = path.with_suffix(".md").name
+            output_path = out_dir / output_name
+            translated = "Yes" if output_path.exists() else "No"
+            self.chapter_tree.insert(
+                "",
+                "end",
+                values=(path.name, translated, output_name if output_path.exists() else ""),
+            )
+
+    def selected_chapter_path(self):
+        series_dir = self.selected_series_dir()
+        selection = self.chapter_tree.selection()
+        if not series_dir or not selection:
+            return None
+        filename, _translated, _output = self.chapter_tree.item(selection[0], "values")
+        return series_dir / "jp" / filename
+
+    def selected_en_path(self):
+        series_dir = self.selected_series_dir()
+        selection = self.chapter_tree.selection()
+        if not series_dir or not selection:
+            return None
+        filename, _translated, _output = self.chapter_tree.item(selection[0], "values")
+        path = series_dir / "en" / filename
+        return path if path.exists() else None
+
+    def selected_output_path(self):
+        series_dir = self.selected_series_dir()
+        selection = self.chapter_tree.selection()
+        if not series_dir or not selection:
+            return None
+        _filename, translated, output = self.chapter_tree.item(selection[0], "values")
+        if translated != "Yes" or not output:
+            return None
+        return series_dir / "out" / output
+
+    def save_data_json(self):
+        series_dir = self.selected_series_dir()
+        if not series_dir:
+            messagebox.showwarning("No translation selected", "Select a translation first.")
+            return
+
+        data_path = series_dir / "data.json"
+        parsed = self.current_data.copy()
+        parsed.update({key: var.get().strip() for key, var in self.data_vars.items()})
+        parsed["translation-context"] = self.translation_context_text.get("1.0", "end").strip()
+
+        data_path.write_text(json.dumps(parsed, ensure_ascii=False, indent=4) + "\n", encoding="utf-8")
+        self.current_data = parsed
+        messagebox.showinfo("Saved", f"Saved {data_path}")
+
+    def open_selected_chapter(self):
+        path = self.selected_chapter_path()
+        if not path:
+            messagebox.showwarning("No chapter selected", "Select a chapter first.")
+            return
+        self.open_external(path)
+
+    def open_selected_en(self):
+        path = self.selected_en_path()
+        if not path:
+            messagebox.showwarning("No EN chapter", "This chapter does not have a matching file in en.")
+            return
+        self.open_external(path)
+
+    def open_selected_output(self):
+        path = self.selected_output_path()
+        if not path:
+            messagebox.showwarning("No translated output", "This chapter does not have a matching file in out.")
+            return
+        self.open_external(path)
+
+    def open_selected_folder(self):
+        series_dir = self.selected_series_dir()
+        if not series_dir:
+            messagebox.showwarning("No translation selected", "Select a translation first.")
+            return
+        self.open_external(series_dir)
+
+    def open_external(self, path):
+        try:
+            if sys.platform.startswith("win"):
+                os.startfile(str(path))
+            elif sys.platform == "darwin":
+                subprocess.Popen(["open", str(path)])
+            else:
+                subprocess.Popen(["xdg-open", str(path)])
+        except Exception as exc:
+            messagebox.showerror("Open failed", str(exc))
+
+    def open_working_translations(self):
+        WorkingTranslationsWindow(self)
+
+
 def main():
-    app = BatchUi()
+    app = TranslationsUi()
     app.mainloop()
 
 

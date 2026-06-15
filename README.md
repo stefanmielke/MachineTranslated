@@ -63,7 +63,7 @@ You can also use the simple Python UI:
 python src/scripts/openai_batch_ui.py
 ```
 
-The UI can save `OPENAI_API_KEY` and optional `OPENAI_PROJECT` to `.env`, test the API key, select `gpt-5`, `gpt-5-mini`, `gpt-5-nano`, `gpt-4o`, or `gpt-4o-mini` from a model dropdown, run the setup script, show tracked OpenAI batch jobs, reload the local job list, check all waiting jobs against OpenAI, and finalize completed jobs. A green `API key: OK` status means the key is saved and a test request to OpenAI succeeded. Press `Check All Waiting` whenever you want to pull the latest OpenAI status for every waiting job.
+The UI opens to the translations manager, where you can browse all translation folders, edit each `data.json` field with text boxes, add `translation-context` notes for character names/settings/terminology, list JP chapters once, see whether each chapter has translated output, and open JP/EN/output chapter files in your default external editor. Press `Working Translations` to open the batch/job controls. That window can save `OPENAI_API_KEY` and optional `OPENAI_PROJECT` to `.env`, test the API key, select `gpt-5`, `gpt-5-mini`, `gpt-5-nano`, `gpt-4o`, or `gpt-4o-mini` from a model dropdown, run the setup script, show tracked OpenAI batch jobs, reload the local job list, check all waiting jobs against OpenAI, and finalize completed jobs. A green `API key: OK` status means the key is saved and a test request to OpenAI succeeded. Press `Check All Waiting` whenever you want to pull the latest OpenAI status for every waiting job.
 
 You can keep the API key in a local `.env` file at the repository root. The real `.env` file is ignored by git; use `.env.example` as the template:
 
@@ -103,6 +103,7 @@ If you want a new series translated, please open an issue with the series name a
                 - `novel-updates-link`: series URL from Novel Updates.
                 - `source-link`: link to the original source of the series.
                 - `ml-used`: machine translation tool used.
+                - `translation-context`: optional character, setting, and terminology notes appended to the OpenAI translation system prompt.
 1. Run `get_chapter_links_from_syosetu.py` to download the chapters on the format expected (if from syosetu, if not, you have to download them).
     - pass the URL from syosetsu and the output folder (the `/jp` folder created above)
 1. Copy the `jp` files on the `en` folder, to start with the translation with the original files.

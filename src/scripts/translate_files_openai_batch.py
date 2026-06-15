@@ -3,11 +3,29 @@ import json
 import sys
 
 DEFAULT_MODEL = "gpt-5-mini"
+BASE_SYSTEM_PROMPT = (
+    "You are a literary translator specialist. Translate any message I send you. "
+    "Don't add any other text on it. Focus on accuracy. Leave all blank lines as they are. "
+    "Do not translate lines with '<b>' or '![text](text)', but leave them as is."
+)
 
 
-def prepare_batch_files(input_folder, model=DEFAULT_MODEL):
+def build_system_prompt(extra_system_prompt=""):
+    extra_system_prompt = extra_system_prompt.lstrip("\ufeff").strip()
+    if not extra_system_prompt:
+        return BASE_SYSTEM_PROMPT
+
+    return (
+        f"{BASE_SYSTEM_PROMPT}\n\n"
+        "Use the following series-specific character, terminology, and setting notes while translating:\n"
+        f"{extra_system_prompt}"
+    )
+
+
+def prepare_batch_files(input_folder, model=DEFAULT_MODEL, extra_system_prompt=""):
     # Iterate through all files in the input folder
     output_file_path = os.path.join(input_folder, "batch_requests.jsonl")
+    system_prompt = build_system_prompt(extra_system_prompt)
     with open(output_file_path, 'w', encoding='utf-8') as output_file:
         for filename in os.listdir(input_folder):
             input_file_path = os.path.join(input_folder, filename)
@@ -30,7 +48,7 @@ def prepare_batch_files(input_folder, model=DEFAULT_MODEL):
                         "messages": [
                             {
                                 "role": "system",
-                                "content": "You are a literary translator specialist. Translate any message I send you. Don't add any other text on it. Focus on accuracy. Leave all blank lines as they are. Do not translate lines with '<b>' or '![text](text)', but leave them as is."
+                                "content": system_prompt
                             },
                             {
                                 "role": "user",
@@ -46,11 +64,16 @@ def prepare_batch_files(input_folder, model=DEFAULT_MODEL):
     print(f"Batch requests written to {output_file_path}")
 
 if __name__ == "__main__":
-    if len(sys.argv) < 2 or len(sys.argv) > 3:
-        print("Usage: python script.py <input_folder> [model]")
+    if len(sys.argv) < 2 or len(sys.argv) > 4:
+        print("Usage: python script.py <input_folder> [model] [extra_system_prompt_file]")
         sys.exit(1)
     
     input_folder = sys.argv[1]
     model = sys.argv[2] if len(sys.argv) == 3 else DEFAULT_MODEL
-    prepare_batch_files(input_folder, model=model)
+    extra_system_prompt = ""
+    if len(sys.argv) == 4:
+        model = sys.argv[2]
+        with open(sys.argv[3], "r", encoding="utf-8-sig") as prompt_file:
+            extra_system_prompt = prompt_file.read()
+    prepare_batch_files(input_folder, model=model, extra_system_prompt=extra_system_prompt)
     print("Batch preparation completed!")

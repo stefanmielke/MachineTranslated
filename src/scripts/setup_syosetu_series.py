@@ -101,12 +101,13 @@ def write_metadata(series_dir, args, source_url):
         except json.JSONDecodeError:
             print(f"Warning: replacing invalid JSON in {data_path}")
 
-    data = {
+    data = existing.copy()
+    data.update({
         "name": args.name or existing.get("name") or args.series_id,
         "novel-updates-link": args.novel_updates_link or existing.get("novel-updates-link", ""),
         "source-link": source_url,
         "ml-used": args.ml_used or existing.get("ml-used") or "Not translated yet",
-    }
+    })
 
     data_path.write_text(json.dumps(data, ensure_ascii=False, indent=4) + "\n", encoding="utf-8")
     print(f"Updated: {data_path}")
@@ -167,7 +168,20 @@ def create_openai_batch_request(series_dir, model, overwrite=False):
 
     from translate_files_openai_batch import prepare_batch_files
 
-    prepare_batch_files(str(en_dir), model=model)
+    prepare_batch_files(str(en_dir), model=model, extra_system_prompt=read_translation_context(series_dir))
+
+
+def read_translation_context(series_dir):
+    data_path = series_dir / "data.json"
+    if not data_path.exists():
+        return ""
+
+    try:
+        data = json.loads(data_path.read_text(encoding="utf-8"))
+    except json.JSONDecodeError:
+        return ""
+
+    return data.get("translation-context", "")
 
 
 def openai_headers(api_key, project=None, content_type=None):
