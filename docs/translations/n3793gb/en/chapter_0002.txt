@@ -1,491 +1,491 @@
-# ２話　新しい生活
+# Episode 2: A New Life
 
-街に戻った俺は、その足で冒険者ギルドへ。
+After returning to town, I went straight to the adventurers' guild.
 
-レティシアのパーティーを抜けたことを報告する。
+I reported that I had left Leticia's party.
 
 <b>
 
-ギルドでは、冒険者たちにパーティーを組むことを推奨している。
+The guild recommends that adventurers form parties.
 
-報酬は減ってしまうが、パーティーを組むことで危険度を減らすことができるためだ。
+The reward is reduced, but forming a party also reduces the danger.
 
-より多くの冒険者がパーティーを組むように、ポーションなどのアイテムの支給など、いくつかの特典がある。
+To encourage more adventurers to form parties, there are several benefits, such as the provision of items like potions.
 
 <b>
 
-その制度を悪用されないために、パーティーを抜けたなどはギルドに報告をしなければいけない。
+To prevent that system from being abused, things like leaving a party have to be reported to the guild.
 
 <b>
 
-「えっ！？　トレイターさん、勇者様のパーティーを抜けたんですか！？」
+"Huh!? Mr. Treater, you left the Hero's party!?"
 
 <b>
 
-受付嬢に話をすると、ひどく驚かれた。
+When I told the receptionist, she was terribly surprised.
 
-５年以上、ずっと同じパーティーだったからな。
+I had been in the same party for more than five years, after all.
 
-納得の反応だ。
+Her reaction made sense.
 
 <b>
 
-「抜けたというか、追放されたんだ」
+"Rather than left, I was exiled."
 
-「追放……ですか？」
+"Exiled...?"
 
-「色々とミスをしちゃって……まあ、そんな感じで」
+"I made all kinds of mistakes... Well, something like that."
 
-「そうですか……はい、わかりました。パーティー離脱の報告、確かに受け取りました」
+"I see... Yes, understood. I have received your report of leaving the party."
 
 <b>
 
-深くは聞かないでほしいと、受付嬢は察してくれたのだろう。
+The receptionist must have sensed that I did not want her to ask too deeply.
 
-スムーズに手続きをしてくれた。
+She handled the procedure smoothly.
 
 <b>
 
-これで、俺は完全にレティシアと縁が切れた。
+With this, I had completely severed my ties with Leticia.
 
-今日からただの他人だ。
+From today on, we were nothing but strangers.
 
 <b>
 
-そう思うと、とても晴れ晴れとした気分だった。
+Thinking that made me feel incredibly refreshed.
 
-こんな時は、初心に帰り、冒険でもしたい。
+At a time like this, I wanted to go back to my roots and do some adventuring.
 
 <b>
 
-「それと、依頼を請けたいんだけど、一人でもできるようなもの、なにかないかな？　討伐、採取、護衛……種類はなんでもいいんだけど」
+"Also, I'd like to take a request. Is there anything I can do alone? Subjugation, gathering, escort work... I don't mind what kind."
 
-「そうですね、えっと……すみません。今、ソロ向けの依頼は空いていなくて……パーティーに参加していれば、わりと選び放題なのですが」
+"Let's see, um... I'm sorry. Right now, there aren't any requests open for solo adventurers... If you were participating in a party, you would have quite a lot to choose from."
 
-「そっか。じゃあ、仕方ないか」
+"I see. Then I guess it can't be helped."
 
 <b>
 
-パーティー用の依頼を請けるという手もあるが……
+There was the option of taking a party request, but...
 
-そんなもの、俺の手に負えるわけがない。
+There was no way I could handle something like that.
 
-ちょくちょく、レティシアに使えないと言われていたが、それは事実。
+Leticia had often told me I was useless, and that was true.
 
-俺は大したことのできない、落ちこぼれ魔法使いなのだ。
+I was a dropout mage who could not do anything impressive.
 
 <b>
 
-「なら、あたしと組まない？」
+"Then why don't you team up with me?"
 
-「え？」
+"Huh?"
 
 <b>
 
-振り返ると、赤毛の女の子が。
+When I turned around, there was a red-haired girl.
 
 <b>
 
-歳は俺と同じ１８ぐらい。
+She was about eighteen, the same age as me.
 
-燃えるような赤い髪は長く、腰まで届いている。
+Her fiery red hair was long, reaching all the way to her waist.
 
 <b>
 
-スラリと伸びた手足。
+Long, slender arms and legs.
 
-それでいて、凹凸のハッキリとしたわがままな体。
+And yet, a selfishly voluptuous body with clear curves.
 
-さらに、ついつい見惚れてしまうほどに綺麗な顔。
+On top of that, her face was so beautiful I could not help but stare.
 
-レティシアとタイプは異なるが、完璧な美少女だ。
+She was a different type from Leticia, but she was a perfect beauty.
 
 <b>
 
-「あたしは、アリス・スプライト。気軽にアリス、って呼んで。よろしくね」
+"I'm Alice Sprite. Feel free to call me Alice. Nice to meet you."
 
-「えっと……よろしく。俺は、ハル・トレイターだ」
+"Uh... nice to meet you. I'm Hal Treater."
 
 <b>
 
-ひとまず握手を交わした。
+For the moment, we shook hands.
 
 <b>
 
-それから談話スペースに移動して、詳しい話を聞く。
+After that, we moved to the conversation area and I listened to the details.
 
-ギルドは冒険者が顔を合わせる場でもあるため、こうした談話スペースが用意されているのだ。
+The guild is also a place where adventurers meet face-to-face, so these kinds of conversation spaces are provided.
 
 <b>
 
-「組まない、っていうことは……パーティーっていう認識で正しいのか？」
+"When you say team up... am I right to understand that as forming a party?"
 
-「ええ、そうよ。あたしも今、パーティーは組んでいないの。そのせいで、依頼を請けられなくて困っていて……だから、ハルさえよかったら、あたしと組まない？」
+"Yes, exactly. I don't have a party right now either. Because of that, I'm having trouble taking requests... So, if you're all right with it, Hal, won't you team up with me?"
 
-「それは願ったり叶ったりなんだけど……俺、弱いぞ？」
+"That would be everything I could ask for, but... I'm weak, you know?"
 
-「そうなの？　でも、ちらっと聞こえてきたんだけど、勇者様とパーティーを組んでいたんでしょ？」
+"Are you? But I overheard a little. You were in a party with the Hero, weren't you?"
 
-「あー……それはまあ、そうなんだけどさ。ただ、色々と事情があって……なんていうか、俺は雑用としてお情けでパーティーに参加させていてもらったようなものなんだ」
+"Ah... Well, yes, that's true. But there were various circumstances... How should I put it? I was basically allowed to participate in the party out of pity, as someone who handled odd jobs."
 
 <b>
 
-そう……俺は弱い。
+Yes... I am weak.
 
-レティシアに、ちょくちょく雑魚だの使えないだの言われてきたが、それは的はずれな指摘ではないのだ。
+Leticia had often called me small fry and useless, but those were not entirely off-base remarks.
 
 <b>
 
-その点、レティシアは強い。
+In that respect, Leticia is strong.
 
-たった一人でドラゴンを討伐することも可能だ。
+She can even subjugate a dragon all by herself.
 
 <b>
 
-「だから、戦力としてアテにされると……自分で言うのも情けないが、ちょっと困るな」
+"So if you're counting on me as a fighting force... It is pathetic to say this about myself, but that would be a bit of a problem."
 
-「うーん」
+"Hmm."
 
-「あ、アリス……？」
+"Uh, Alice...?"
 
 <b>
 
-訝しげな表情をしつつ、アリスがぐいっと顔を寄せてきた。
+With a suspicious expression, Alice leaned her face in close.
 
-そのままこちらの顔を覗き込んでくる。
+Then she peered straight into my face.
 
 <b>
 
-「弱いとか、そういう風には見えないのよねえ……むしろ、あたしよりも強い雰囲気というか、オーラを感じるんだけど」
+"You don't look weak to me, though... If anything, I feel an atmosphere, or maybe an aura, that says you're stronger than I am."
 
-「それはないと思うが……アリスのレベルは？」
+"I don't think so... What level are you, Alice?"
 
-「２２だけど」
+"Twenty-two."
 
-「俺は７なんだ。ほら、弱いだろう？」
+"I'm seven. See? I'm weak, right?"
 
 <b>
 
-冒険者カードに記されたレベルを見せた。
+I showed her the level written on my adventurer card.
 
 <b>
 
-レベルというものは、その者の強さを表している。
+A level indicates a person's strength.
 
-数字が大きければ大きいほど、強い力を持ち、たくさんの経験を積んできたという証になる。
+The larger the number, the greater the power they possess, and the more experience they have accumulated.
 
 <b>
 
-「あれ？」
+"Huh?"
 
-「どうかした？」
+"What's wrong?"
 
-「その冒険者カード、古くない？」
+"Isn't that adventurer card old?"
 
 <b>
 
-冒険者カードというものは、ギルドが発行してくれる魔法のカードだ。
+An adventurer card is a magical card issued by the guild.
 
-身分証のようなものであり、持ち主のレベルや職業が表示される。
+It functions like an identification card and displays the owner's level and occupation.
 
 <b>
 
-俺の冒険者カードは、レティシアと一緒に旅を始めた時以来、一度も更新していない。
+I had not updated my adventurer card even once since I first started traveling with Leticia.
 
 <b>
 
-「ぜんぜん更新していなかったからな……」
+"I haven't updated it at all..."
 
-「どれくらい？」
+"For how long?"
 
-「５年以上かな」
+"More than five years, I guess."
 
-「ながっ！？　なんで、そんなに更新してないわけ？　更新するのに多少のお金はかかるけど、でも、冒険者カード更新ってわりと必須よ。自分の力を把握するのに、なによりも適しているんだから」
+"That's long!? Why haven't you updated it for that long? It does cost a little money to update, but updating your adventurer card is pretty much essential. It's the best way to grasp your own strength."
 
-「そうなのか……ただ俺の場合、ちょっとした事情があって更新できなかったんだ」
+"Is that so...? In my case, though, there were some circumstances, and I couldn't update it."
 
 <b>
 
-というのも、レティシアがそれを許してくれなかったのだ。
+The reason was that Leticia would not allow it.
 
 <b>
 
-「はぁあ？　冒険者カードの更新？　そんなもの必要ないでしょ。レベル７の雑魚が成長したところで、なんにもならないわ。雑魚はいつまでも雑魚のまま。だから、ハルの冒険者カードの更新なんて必要ないの。これ以上ないほどの金の無駄遣いになっちゃうわ、あはははははっ！」
+"Haaah? Updating your adventurer card? You don't need something like that. Even if a level-seven small fry grows, it won't amount to anything. Small fry stay small fry forever. So there is no need to update Hal's adventurer card. It would be the greatest waste of money possible, ahahahahaha!"
 
 <b>
 
-そんなことを言われて、更新するための金をくれなかったのだ。
+After saying things like that, she would not give me the money to update it.
 
-財布はレティシアに完全に管理されていたから、どうしようもない。
+Leticia had complete control of the purse, so there was nothing I could do.
 
 <b>
 
-「今度、時間のある時に更新しておくか。今は、アリスとの話を優先するよ。急ぐことでもないからな」
+"I'll update it sometime when I have time. Right now, I'll prioritize talking with you, Alice. It's not urgent."
 
-「そう？　なら、話を進めさせてもらうけど………試しにパーティーを組んでみない？」
+"Is that so? Then I'll continue, but... why don't we try forming a party?"
 
-「やけに俺にこだわるな？」
+"You're awfully fixated on me, aren't you?"
 
-「んー……なんていうか、直感？　ハルとなら、うまくやっていけそうな気がするの。強い弱い関係なくて、相性っていうのかしら。そういうのって、けっこう大事でしょ？」
+"Hmm... How should I put it? Intuition? I feel like if it's with you, Hal, things will go well. It has nothing to do with strong or weak. I guess you'd call it compatibility. That kind of thing is pretty important, right?"
 
-「ああ。ものすごく大事だな」
+"Yes. It is extremely important."
 
 <b>
 
-レティシアとのことで、嫌というほど思い知らされた。
+The matter with Leticia had made me realize that painfully well.
 
 <b>
 
-「とりあえず、一回、依頼を請けてみない？　二人でできる、簡単そうなヤツ。それで、うまくいきそうならそれでよし。ダメっぽいなら、そこまで。どう？」
+"For now, why don't we try taking one request? Something simple that two people can do. If it seems like it will work, then great. If it seems hopeless, then we stop there. How about it?"
 
-「そうだな……よし、やってみるか」
+"Let's see... All right, let's give it a try."
 
 <b>
 
-こうして、俺は、お試しにアリスとパーティーを組むことになった。
+And so, I ended up forming a trial party with Alice.
 
 <b>
 
 <b>
-
-<b>
-
-――――――――――
-
-<b>
-
-<b>
-
-<b>
-
-請けた依頼は、街の外に現れる魔物の討伐だ。
-
-目標は、ハウンドウルフと呼ばれている犬型の魔物。
-
-<b>
-
-討伐推奨レベルは５なので、大した敵ではない。
-
-アリスとの相性を確かめる、いい運動になるだろう。
-
-<b>
-
-「はぁっ！」
-
-<b>
-
-アリスが鋭い剣で、ハウンドウルフを叩き切る。
-
-見た目以上の威力を秘めているその剣戟は、魔物の体を両断する。
-
-<b>
-
-しかし、敵は一匹ではない。
-
-残り二匹。
-
-<b>
-
-そのうちの一匹が、攻撃を繰り出した直後で、動けないアリスに迫る。
-
-牙をむき出しにして、唸りながら飛びかかり……
-
-<b>
-
-「アリスッ！」
-
-<b>
-
-アリスのものより一回り小さい剣を盾にして、ハウンドウルフの突撃を止めた。
-
-<b>
-
-「ナイスよっ、ハル！」
-
-<b>
-
-アリスの体勢を立て直す時間を稼ぐことはできた。
-
-<b>
-
-アリスは気持ちのいい笑みをこちらに向けて……
-
-次いで、敵を睨みつける。
-
-<b>
-
-「ソードダンス！」
-
-<b>
-
-アリスの剣技が発動した。
-
-踊るような動きを見せて、ハウンドウルフの体を切り刻む。
-
-<b>
-
-「グルァッ！」
-
-<b>
-
-追いつめられた最後の一匹が、やぶれかぶれ気味に突撃してきた。
-
-<b>
-
-「こいつを喰らえっ！」
-
-<b>
-
-俺は投げナイフを投擲して、ハウンドウルフの動きを止めた。
-
-<b>
-
-「ダブルスラッシュ！」
-
-<b>
-
-アリスの剣が二回閃いて、最後の一匹を仕留める。
-
-そのまま周囲を警戒して……
-
-これ以上の敵がいないと確認したところで、剣を鞘に収める。
-
-<b>
-
-そして、とても明るい笑みをこちらに見せた。
-
-<b>
-
-「すごいじゃない！」
-
-「え？」
-
-<b>
-
-なんのことだ？
-
-<b>
-
-「俺、大したことはしていないよな？　ただただ、援護に徹していただけだし」
-
-「そんなことないわ。魔法使いなのに剣が使えるっていうだけでも、十分にすごいと思うわよ。なによりも、あたしの欲しいタイミングで攻撃をしてくれるし、やばいと思った時も援護をしてくれるし……なんていうか、援護の達人？　ハルみたいに動ける人、なかなかいないと思う」
-
-「まあ……慣れているからな」
-
-<b>
-
-レティシアのパーティーにいた時……俺はいつも、援護に徹してきた。
-
-レティシアは、俺を前に出すことは決してしなかった。
-
-<b>
-
-最初は、俺のことを心配してくれているのかと思ったのだけど、違った。
-
-レティシアは、どんな小さな手柄であれ、俺に与えたくなかったのだ。
-
-どんな小さな手柄であれ、自分のものにしたかったのだ。
-
-<b>
-
-レティシアの底のない欲望に呆れてしまう。
-
-いつから、あんな風に歪んでしまったのか……
-
-<b>
-
-「ハル？　どうかした？」
-
-「いや……なんでもないさ。それより、怪我をしているのか？」
-
-「ああ、これ？　さっき、軽く……ね。大した怪我じゃないわ」
-
-「化膿したら大変だ。すぐに手当するよ」
-
-「でも、これくらいでポーションを使うなんて……」
-
-「大丈夫、魔法を使うから」
-
-「え？」
-
-<b>
-
-なぜかアリスがキョトンとする中、俺は回復魔法を唱える。
-
-<b>
-
-「ヒール」
-
-<b>
-
-淡い光がアリスの傷口を包み込み、時間を逆再生するかのように傷を癒やしていく。
-
-ほどなくして傷は完全に消えた。
-
-<b>
-
-「これでよし、っと」
-
-「……」
-
-「どうしたんだ、アリス？」
-
-「どうしたもこうしたも……ど、どういうこと！？」
-
-「な、なんだよ？　なんで、そんなに驚いているんだ？」
-
-「驚くに決まっているでしょ！　なんで、魔法使いのハルが回復魔法を使えるの？　回復魔法は、神官とその他、限られた職業にしか使えないはずなのよ！　魔法使いが使えるのは攻撃魔法だけ。そう決まっているの！」
-
-「そうなのか？」
-
-「そうなの！　なんで、そんな常識を知らないわけ？」
-
-「なんで、と言われてもな……」
-
-<b>
-
-間違いなく、レティシアのせいだ。
-
-<b>
-
-冒険者が持つ一般的な知識を持つことを、俺はレティシアに否定された。
-
-あんたみたいな落ちこぼれがそんなことをしても意味はない、時間の無駄だ……と。
-
-学ぶ機会を奪われて、反論することもできず、そのまま。
-
-<b>
-
-なにもかも知らない、というわけではないが……
-
-レティシアのせいで、魔法使いが回復魔法を使えない、なんていう情報は知らなかった。
-
-<b>
-
-「なんか、ハルってよくわからないところがあるわね。勇者パーティーにいたんでしょ？　いったい、どんな風に過ごしていたの？」
-
-「それは……」
-
-<b>
-
-本当のことを言っても、信じてもらえるものか？
-
-返事に迷う、その時だった。
-
-<b>
-
-「グルルルゥ……！！！」
-
-<b>
-
-怒りに声を震わせながら、さらにもう一匹、巨大なハウンドウルフが現れた。
 
 <b>
 
 ----------------
 
-『よかった』『続きが気になる』と思っていただけたら、
+<b>
 
-ブクマや評価をしていただけると、とても励みになります。
+<b>
 
-よろしくおねがいします！
+<b>
+
+The request we accepted was to subjugate monsters that appeared outside town.
+
+Our target was a dog-type monster called a hound wolf.
+
+<b>
+
+The recommended subjugation level was five, so it was not a serious enemy.
+
+It would be a good exercise to check my compatibility with Alice.
+
+<b>
+
+"Hah!"
+
+<b>
+
+Alice cut down a hound wolf with her sharp sword.
+
+The sword strike, hiding power beyond what her appearance suggested, bisected the monster's body.
+
+<b>
+
+However, there was not only one enemy.
+
+Two remained.
+
+<b>
+
+One of them approached Alice just after she had launched her attack, while she could not move.
+
+It bared its fangs and leaped at her with a growl...
+
+<b>
+
+"Alice!"
+
+<b>
+
+I used a sword one size smaller than Alice's as a shield and stopped the hound wolf's charge.
+
+<b>
+
+"Nice one, Hal!"
+
+<b>
+
+I had managed to buy time for Alice to recover her stance.
+
+<b>
+
+Alice turned a refreshing smile toward me...
+
+Then glared at the enemy.
+
+<b>
+
+"Sword Dance!"
+
+<b>
+
+Alice's sword technique activated.
+
+With movements like a dance, she sliced the hound wolf's body to pieces.
+
+<b>
+
+"Grrraah!"
+
+<b>
+
+The final hound wolf, driven into a corner, charged in desperation.
+
+<b>
+
+"Take this!"
+
+<b>
+
+I threw a throwing knife and stopped the hound wolf's movement.
+
+<b>
+
+"Double Slash!"
+
+<b>
+
+Alice's sword flashed twice, finishing off the last one.
+
+She stayed alert to our surroundings...
+
+And after confirming there were no more enemies, she sheathed her sword.
+
+<b>
+
+Then she showed me a very bright smile.
+
+<b>
+
+"That was amazing!"
+
+"Huh?"
+
+<b>
+
+What was she talking about?
+
+<b>
+
+"I didn't do anything impressive, did I? I only focused completely on support."
+
+"That's not true. I think it's impressive enough that you're a mage who can use a sword. More than anything, you attack at exactly the timing I want, and you cover me when I think things are getting dangerous... How should I put it? A master of support? I don't think there are many people who can move like you, Hal."
+
+"Well... I'm used to it."
+
+<b>
+
+When I was in Leticia's party... I had always devoted myself to support.
+
+Leticia never allowed me to step forward.
+
+<b>
+
+At first, I thought she was worried about me, but I was wrong.
+
+Leticia had not wanted me to receive any credit, no matter how small.
+
+No matter how small the achievement, she had wanted it all for herself.
+
+<b>
+
+I was disgusted by Leticia's bottomless greed.
+
+When had she become so twisted...?
+
+<b>
+
+"Hal? Is something wrong?"
+
+"No... it's nothing. More importantly, are you hurt?"
+
+"Ah, this? Just a little scrape from earlier... It's not a serious injury."
+
+"If it festers, that would be bad. I'll treat it right away."
+
+"But using a potion for something like this would be..."
+
+"It's fine. I'll use magic."
+
+"Huh?"
+
+<b>
+
+While Alice stared blankly for some reason, I chanted recovery magic.
+
+<b>
+
+"Heal."
+
+<b>
+
+A pale light enveloped Alice's wound, healing it as if time itself were rewinding.
+
+Before long, the wound vanished completely.
+
+<b>
+
+"There, all done."
+
+"..."
+
+"What's wrong, Alice?"
+
+"What's wrong? Everything is wrong... Wh-what is going on!?"
+
+"Wh-what? Why are you so surprised?"
+
+"Of course I'm surprised! Why can you, a mage, use recovery magic? Recovery magic should only be usable by priests and a few other limited occupations! Mages can only use attack magic. That's how it's supposed to be!"
+
+"Is that so?"
+
+"It is! Why don't you know something that basic?"
+
+"Even if you ask me why..."
+
+<b>
+
+Without a doubt, it was Leticia's fault.
+
+<b>
+
+Leticia had denied me the chance to acquire the general knowledge adventurers were supposed to have.
+
+Someone like you is a dropout, so doing that has no meaning and is a waste of time... she would say.
+
+She took away my chance to learn, and unable to argue, I simply stayed that way.
+
+<b>
+
+It was not as though I knew nothing at all, but...
+
+Because of Leticia, I had not known that mages were supposedly unable to use recovery magic.
+
+<b>
+
+"Hal, there are parts of you I really don't understand. You were in the Hero's party, right? What kind of life were you living there?"
+
+"That is..."
+
+<b>
+
+Even if I told her the truth, would she believe me?
+
+I was hesitating over my answer when it happened.
+
+<b>
+
+"Grrrrrr...!!!"
+
+<b>
+
+With its voice trembling in anger, an even larger hound wolf appeared.
+
+<b>
+
+----------------
+
+If you thought, "That was good," or "I want to know what happens next,"
+
+I would be very encouraged if you bookmarked or rated it.
+
+Thank you!

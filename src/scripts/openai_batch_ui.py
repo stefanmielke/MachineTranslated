@@ -118,6 +118,8 @@ class WorkingTranslationsWindow(tk.Toplevel):
         self.refresh_button.grid(row=0, column=2, padx=(6, 0))
         self.finalize_selected_button = ttk.Button(jobs_header, text="Check Selected", command=self.run_finalize_selected)
         self.finalize_selected_button.grid(row=0, column=3, padx=(6, 0))
+        self.delete_job_button = ttk.Button(jobs_header, text="Delete Selected", command=self.delete_selected_job)
+        self.delete_job_button.grid(row=0, column=4, padx=(6, 0))
 
         columns = ("series", "batch", "workflow", "openai", "output")
         self.jobs_tree = ttk.Treeview(body, columns=columns, show="headings", selectmode="browse")
@@ -296,6 +298,35 @@ class WorkingTranslationsWindow(tk.Toplevel):
         values = self.jobs_tree.item(selection[0], "values")
         return values[0] if values else None
 
+    def delete_selected_job(self):
+        batch_id = self.selected_batch_id()
+        if not batch_id:
+            messagebox.showwarning("No job selected", "Select a tracked job first.")
+            return
+        if not JOBS_PATH.exists():
+            messagebox.showwarning("No job file", f"{JOBS_PATH} does not exist.")
+            return
+
+        if not messagebox.askyesno(
+            "Delete tracked job",
+            "Remove this job from the local tracked jobs list?\n\n"
+            f"{batch_id}\n\n"
+            "This does not cancel the OpenAI batch or delete translation files.",
+        ):
+            return
+
+        try:
+            registry = json.loads(JOBS_PATH.read_text(encoding="utf-8"))
+            jobs = registry.get("jobs", [])
+            registry["jobs"] = [job for job in jobs if job.get("batch_id") != batch_id]
+            JOBS_PATH.write_text(json.dumps(registry, ensure_ascii=False, indent=4) + "\n", encoding="utf-8")
+        except Exception as exc:
+            messagebox.showerror("Delete failed", str(exc))
+            return
+
+        self.load_jobs()
+        self.log(f"\nRemoved tracked job: {batch_id}\n")
+
     def run_setup_script(self):
         url = self.url_var.get().strip()
         if not url:
@@ -403,6 +434,7 @@ class WorkingTranslationsWindow(tk.Toplevel):
             self.reload_button,
             self.refresh_button,
             self.finalize_selected_button,
+            self.delete_job_button,
         ):
             button.configure(state=state)
 
@@ -477,6 +509,7 @@ class TranslationsUi(tk.Tk):
         data_buttons.grid(row=2, column=0, sticky="ew", pady=6)
         ttk.Button(data_buttons, text="Save data.json", command=self.save_data_json).grid(row=0, column=0, padx=(0, 6))
         ttk.Button(data_buttons, text="Reload data.json", command=self.load_selected_series).grid(row=0, column=1)
+        ttk.Button(data_buttons, text="Quick Fix EN", command=self.quick_fix_selected_series).grid(row=0, column=2, padx=(6, 0))
 
         chapter_header = ttk.Frame(right)
         chapter_header.grid(row=3, column=0, sticky="ew", pady=(8, 6))
@@ -602,6 +635,39 @@ class TranslationsUi(tk.Tk):
         data_path.write_text(json.dumps(parsed, ensure_ascii=False, indent=4) + "\n", encoding="utf-8")
         self.current_data = parsed
         messagebox.showinfo("Saved", f"Saved {data_path}")
+
+    def quick_fix_selected_series(self):
+        series_dir = self.selected_series_dir()
+        if not series_dir:
+            messagebox.showwarning("No translation selected", "Select a translation first.")
+            return
+
+        if not messagebox.askyesno(
+            "Quick Fix EN",
+            "Run quick formatting fixes on every .txt file in this novel's en folder?",
+        ):
+            return
+
+        try:
+            result = subprocess.run(
+                [sys.executable, str(SCRIPT_DIR / "quick_fix_chapters.py"), str(series_dir)],
+                cwd=ROOT_DIR,
+                capture_output=True,
+                text=True,
+                encoding="utf-8",
+                errors="replace",
+                check=False,
+            )
+        except Exception as exc:
+            messagebox.showerror("Quick fix failed", str(exc))
+            return
+
+        output = (result.stdout + result.stderr).strip()
+        if result.returncode != 0:
+            messagebox.showerror("Quick fix failed", output or f"Script exited with code {result.returncode}")
+            return
+
+        messagebox.showinfo("Quick fix completed", output or "Quick fix completed.")
 
     def open_selected_chapter(self):
         path = self.selected_chapter_path()

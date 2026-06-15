@@ -32,7 +32,7 @@ For a new Syosetsu series, prepare the local files with:
 python src/scripts/setup_syosetu_series.py https://ncode.syosetu.com/n1234ab/ --name "Series Name" --skip-existing
 ```
 
-The setup script creates the folder structure, downloads `jp` chapters, seeds `en` from `jp`, and creates `en/batch_requests.jsonl` for OpenAI batch upload. Use `--model` to choose the OpenAI model for the generated batch requests, for example `--model gpt-5`, `--model gpt-5-mini`, or `--model gpt-5-nano`.
+The setup script creates the folder structure, downloads `jp` chapters, seeds `en` from `jp`, and creates `en/batch_requests.jsonl` for OpenAI batch upload. Use `--model` to choose the OpenAI model for the generated batch requests, for example `--model gpt-5`, `--model gpt-5-mini`, or `--model gpt-5-nano`. GPT-5 batch requests use `max_completion_tokens` and a `developer` instruction message; 4o requests keep `temperature`, `max_tokens`, and a `system` message.
 
 To also upload the JSONL file and create an OpenAI Batch API job, set `OPENAI_API_KEY` and add `--submit-openai-batch`:
 
@@ -63,7 +63,7 @@ You can also use the simple Python UI:
 python src/scripts/openai_batch_ui.py
 ```
 
-The UI opens to the translations manager, where you can browse all translation folders, edit each `data.json` field with text boxes, add `translation-context` notes for character names/settings/terminology, list JP chapters once, see whether each chapter has translated output, and open JP/EN/output chapter files in your default external editor. Press `Working Translations` to open the batch/job controls. That window can save `OPENAI_API_KEY` and optional `OPENAI_PROJECT` to `.env`, test the API key, select `gpt-5`, `gpt-5-mini`, `gpt-5-nano`, `gpt-4o`, or `gpt-4o-mini` from a model dropdown, run the setup script, show tracked OpenAI batch jobs, reload the local job list, check all waiting jobs against OpenAI, and finalize completed jobs. A green `API key: OK` status means the key is saved and a test request to OpenAI succeeded. Press `Check All Waiting` whenever you want to pull the latest OpenAI status for every waiting job.
+The UI opens to the translations manager, where you can browse all translation folders, edit each `data.json` field with text boxes, add `translation-context` notes for character names/settings/terminology, list JP chapters once, see whether each chapter has translated output, and open JP/EN/output chapter files in your default external editor. Press `Working Translations` to open the batch/job controls. That window can save `OPENAI_API_KEY` and optional `OPENAI_PROJECT` to `.env`, test the API key, select `gpt-5`, `gpt-5-mini`, `gpt-5-nano`, `gpt-4o`, or `gpt-4o-mini` from a model dropdown, run the setup script, show tracked OpenAI batch jobs, reload the local job list, delete a selected local tracked job, check all waiting jobs against OpenAI, and finalize completed jobs. A green `API key: OK` status means the key is saved and a test request to OpenAI succeeded. Press `Check All Waiting` whenever you want to pull the latest OpenAI status for every waiting job.
 
 You can keep the API key in a local `.env` file at the repository root. The real `.env` file is ignored by git; use `.env.example` as the template:
 

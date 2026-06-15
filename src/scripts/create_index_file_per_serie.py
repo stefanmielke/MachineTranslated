@@ -2,6 +2,17 @@ import os
 import sys
 import json
 
+def chapter_title_from_file(file_path):
+    with open(file_path, 'r', encoding='utf-8') as current_file:
+        for line in current_file:
+            chapter_name = line.strip()
+            if chapter_name.startswith("# "):
+                return chapter_name[2:]
+
+    fallback_title = os.path.splitext(os.path.basename(file_path))[0]
+    print(f"Warning: no markdown title found in {file_path}; using {fallback_title}")
+    return fallback_title
+
 def create_index(main_folder):
     # Iterate through each subfolder inside the main folder
     for root, dirs, files in os.walk(main_folder):
@@ -14,7 +25,7 @@ def create_index(main_folder):
                 # Read the series name from data.json
                 series_name = ""
                 if os.path.exists(data_file_path):
-                    with open(data_file_path, 'r', encoding='utf-8') as data_file:
+                    with open(data_file_path, 'r', encoding='utf-8-sig') as data_file:
                         data = json.load(data_file)
                         series_name = data.get("name", "")
                         novel_updates_link = data.get("novel-updates-link", "")
@@ -37,12 +48,8 @@ def create_index(main_folder):
                         file_path = os.path.join(out_folder, file_name)
                         
                         if os.path.isfile(file_path):
-                            with open(file_path, 'r', encoding='utf-8') as current_file:
-                                chapter_name = current_file.readline().strip()
-                                while not chapter_name.startswith("# "):
-                                    chapter_name = current_file.readline().strip()
-
-                                index_file.write(f"1. [{chapter_name[2:]}](out/{file_name})\n")
+                            chapter_name = chapter_title_from_file(file_path)
+                            index_file.write(f"1. [{chapter_name}](out/{file_name})\n")
 
                 print(f"Created index.md in {root}")
             except Exception as e:

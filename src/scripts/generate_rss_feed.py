@@ -29,6 +29,17 @@ def _serialize_xml(write, elem, qnames, namespaces, short_empty_elements, **kwar
 
 ET._serialize_xml = ET._serialize['xml'] = _serialize_xml
 
+def chapter_title_from_file(file_path):
+    with open(file_path, 'r', encoding='utf-8') as current_file:
+        for line in current_file:
+            chapter_name = line.strip()
+            if chapter_name.startswith("# "):
+                return chapter_name[2:]
+
+    fallback_title = os.path.splitext(os.path.basename(file_path))[0]
+    print(f"Warning: no markdown title found in {file_path}; using {fallback_title}")
+    return fallback_title
+
 # Function to create a unique identifier for each file
 def generate_guid(file_path):
     # Generate a unique GUID for each file using its path and modification time
@@ -67,7 +78,7 @@ def add_new_items_to_rss(starting_path):
             # Load the JSON metadata file for each series
             json_file_path = os.path.join(series_path, JSON_FILE)
             if os.path.exists(json_file_path):
-                with open(json_file_path, 'r', encoding='utf-8') as json_file:
+                with open(json_file_path, 'r', encoding='utf-8-sig') as json_file:
                     metadata = json.load(json_file)
             else:
                 metadata = {"name": "No Title Name Found"}
@@ -79,23 +90,20 @@ def add_new_items_to_rss(starting_path):
                     file_path = os.path.join(out_folder, file_name)
                     if os.path.isfile(file_path):
                         # Extract chapter name from the file
-                        with open(file_path, 'r', encoding='utf-8') as current_file:
-                            chapter_name = current_file.readline().strip()
-                            while not chapter_name.startswith("# "):
-                                chapter_name = current_file.readline().strip()
+                        chapter_name = chapter_title_from_file(file_path)
 
                         guid = generate_guid(file_path)
                         if guid not in existing_guids:
                             new_files = True
                             item = ET.SubElement(channel, "item")
                             title_element = ET.SubElement(item, "title")
-                            title_element.append(CDATA(chapter_name[2:]))
+                            title_element.append(CDATA(chapter_name))
                             
                             link_element = ET.SubElement(item, "link")
                             link_element.text = f"https://stefanmielke.github.io/MachineTranslated/translations/{series_folder}/out/{os.path.splitext(file_name)[0]}.html"
                             
                             description_element = ET.SubElement(item, "description")
-                            description_element.append(CDATA(f"Chapter '{chapter_name[2:]}' added."))
+                            description_element.append(CDATA(f"Chapter '{chapter_name}' added."))
                             
                             ET.SubElement(item, "pubDate").text = datetime.now().strftime("%a, %d %b %Y %H:%M:%S %z")
                             ET.SubElement(item, "guid").text = guid

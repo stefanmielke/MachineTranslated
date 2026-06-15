@@ -22,6 +22,37 @@ def build_system_prompt(extra_system_prompt=""):
     )
 
 
+def is_gpt5_model(model):
+    return model.startswith("gpt-5")
+
+
+def build_messages(model, system_prompt, content):
+    instruction_role = "developer" if is_gpt5_model(model) else "system"
+    return [
+        {
+            "role": instruction_role,
+            "content": system_prompt
+        },
+        {
+            "role": "user",
+            "content": content
+        }
+    ]
+
+
+def build_request_body(model, system_prompt, content):
+    body = {
+        "model": model,
+        "messages": build_messages(model, system_prompt, content)
+    }
+    if is_gpt5_model(model):
+        body["max_completion_tokens"] = 16384
+    else:
+        body["temperature"] = 0.3
+        body["max_tokens"] = 16384
+    return body
+
+
 def prepare_batch_files(input_folder, model=DEFAULT_MODEL, extra_system_prompt=""):
     # Iterate through all files in the input folder
     output_file_path = os.path.join(input_folder, "batch_requests.jsonl")
@@ -41,21 +72,7 @@ def prepare_batch_files(input_folder, model=DEFAULT_MODEL, extra_system_prompt="
                     "custom_id": filename,
                     "method": "POST",
                     "url": "/v1/chat/completions",
-                    "body": {
-                        "model": model,
-                        "temperature": 0.3,
-                        "max_tokens": 16384,
-                        "messages": [
-                            {
-                                "role": "system",
-                                "content": system_prompt
-                            },
-                            {
-                                "role": "user",
-                                "content": content
-                            }
-                        ]
-                    }
+                    "body": build_request_body(model, system_prompt, content)
                 }
                 
                 # Write each batch request as a single line in the output file (JSONL format)
