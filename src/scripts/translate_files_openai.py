@@ -1,11 +1,13 @@
 import os
 import argparse
 import time
-from openai import OpenAI
-import openai
+
+DEFAULT_MODEL = "gpt-5-mini"
 
 # Function to translate text using GPT-4 API
-def translate_text_gpt4(api_key, text, model="gpt-4o-mini"):
+def translate_text_gpt4(api_key, text, model=DEFAULT_MODEL):
+    from openai import OpenAI
+
     
     client = OpenAI(
         # This is the default and can be omitted
@@ -34,7 +36,7 @@ def translate_text_gpt4(api_key, text, model="gpt-4o-mini"):
         return None
 
 # Main function that processes all text files in a folder
-def process_files(input_folder, output_folder, api_key, model="gpt-4o-mini"):
+def process_files(input_folder, output_folder, api_key, model=DEFAULT_MODEL):
     # Ensure output directory exists
     os.makedirs(output_folder, exist_ok=True)
     
@@ -66,6 +68,7 @@ if __name__ == "__main__":
     parser.add_argument("input_folder", type=str, help="Path to the folder containing input text files.")
     parser.add_argument("output_folder", type=str, help="Path to the folder to save translated text files.")
     parser.add_argument("api_key", type=str, help="OpenAI API key.")
+    parser.add_argument("--model", default=DEFAULT_MODEL, help="OpenAI model to use for translation.")
     args = parser.parse_args()
 
-    process_files(args.input_folder, args.output_folder, args.api_key)
+    process_files(args.input_folder, args.output_folder, args.api_key, model=args.model)

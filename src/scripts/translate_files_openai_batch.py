@@ -2,7 +2,10 @@ import os
 import json
 import sys
 
-def prepare_batch_files(input_folder):
+DEFAULT_MODEL = "gpt-5-mini"
+
+
+def prepare_batch_files(input_folder, model=DEFAULT_MODEL):
     # Iterate through all files in the input folder
     output_file_path = os.path.join(input_folder, "batch_requests.jsonl")
     with open(output_file_path, 'w', encoding='utf-8') as output_file:
@@ -21,7 +24,7 @@ def prepare_batch_files(input_folder):
                     "method": "POST",
                     "url": "/v1/chat/completions",
                     "body": {
-                        "model": "gpt-4o-mini",
+                        "model": model,
                         "temperature": 0.3,
                         "max_tokens": 16384,
                         "messages": [
@@ -43,10 +46,11 @@ def prepare_batch_files(input_folder):
     print(f"Batch requests written to {output_file_path}")
 
 if __name__ == "__main__":
-    if len(sys.argv) < 2:
-        print("Usage: python script.py <input_folder>")
+    if len(sys.argv) < 2 or len(sys.argv) > 3:
+        print("Usage: python script.py <input_folder> [model]")
         sys.exit(1)
     
     input_folder = sys.argv[1]
-    prepare_batch_files(input_folder)
+    model = sys.argv[2] if len(sys.argv) == 3 else DEFAULT_MODEL
+    prepare_batch_files(input_folder, model=model)
     print("Batch preparation completed!")

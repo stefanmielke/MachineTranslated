@@ -24,6 +24,57 @@ All translations were done using ML. Originally translated with DeepL and GPT4o-
 1. Run `merge_chapters.py` to merge the jp with the en translation and generate the final output of each chapter.
 1. Run `create_index_file_per_serie.py` to generate the `index.md` files for each serie.
 
+#### Syosetsu setup with OpenAI batch:
+
+For a new Syosetsu series, prepare the local files with:
+
+```bash
+python src/scripts/setup_syosetu_series.py https://ncode.syosetu.com/n1234ab/ --name "Series Name" --skip-existing
+```
+
+The setup script creates the folder structure, downloads `jp` chapters, seeds `en` from `jp`, and creates `en/batch_requests.jsonl` for OpenAI batch upload. Use `--model` to choose the OpenAI model for the generated batch requests, for example `--model gpt-5`, `--model gpt-5-mini`, or `--model gpt-5-nano`.
+
+To also upload the JSONL file and create an OpenAI Batch API job, set `OPENAI_API_KEY` and add `--submit-openai-batch`:
+
+```bash
+python src/scripts/setup_syosetu_series.py https://ncode.syosetu.com/n1234ab/ --name "Series Name" --skip-existing --submit-openai-batch
+```
+
+The created batch/file IDs are saved to `docs/translations/{series_id}/openai_batch_submission.json`.
+Submitted jobs are also tracked in `docs/translations/openai_batch_jobs.json` so they can be checked in bulk.
+
+After OpenAI finishes the batch, check and finalize the translated files with:
+
+```bash
+python src/scripts/finalize_openai_batch.py n1234ab
+```
+
+To check every waiting job and finalize whichever ones are complete, run:
+
+```bash
+python src/scripts/finalize_openai_batch.py --all
+```
+
+The finalize script checks the OpenAI Batch API. If the batch is still running, it stops and tells you to run it again later. If the batch is complete, it downloads the batch output, unpacks translated chapter files into `en`, merges `jp` and `en` into `out`, updates series indexes, and updates the RSS feed. Add `--fix-line-counts` if you want it to run `check_translated_files.py` before merging.
+
+You can also use the simple Python UI:
+
+```bash
+python src/scripts/openai_batch_ui.py
+```
+
+The UI can save `OPENAI_API_KEY` and optional `OPENAI_PROJECT` to `.env`, test the API key, select `gpt-5`, `gpt-5-mini`, `gpt-5-nano`, `gpt-4o`, or `gpt-4o-mini` from a model dropdown, run the setup script, show tracked OpenAI batch jobs, reload the local job list, check all waiting jobs against OpenAI, and finalize completed jobs. A green `API key: OK` status means the key is saved and a test request to OpenAI succeeded. Press `Check All Waiting` whenever you want to pull the latest OpenAI status for every waiting job.
+
+You can keep the API key in a local `.env` file at the repository root. The real `.env` file is ignored by git; use `.env.example` as the template:
+
+```env
+OPENAI_API_KEY=sk-your-api-key-here
+# Optional: uncomment when using a specific OpenAI project.
+# OPENAI_PROJECT=proj_your_project_id_here
+```
+
+The script reads OpenAI settings in this order: CLI flags, environment variables, then `.env`.
+
 ---
 
 ### Contributions
