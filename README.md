@@ -2,7 +2,7 @@
 
 ### web novel translations by machines
 
-- Website: [https://stefanmielke.github.io/MachineTranslated/](https://stefanmielke.github.io/MachineTranslated/)
+- Website: [https://machinetranslated.com/](https://machinetranslated.com/)
 
 ---
 

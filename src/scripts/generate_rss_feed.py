@@ -10,6 +10,8 @@ import sys
 RSS_FILE = "feed.xml"
 # JSON file containing metadata
 JSON_FILE = "data.json"
+# Public site root used by the feed and chapter links
+SITE_URL = "https://machinetranslated.com"
 
 # CDATA handling
 ET._original_serialize_xml = ET._serialize_xml
@@ -56,7 +58,7 @@ def add_new_items_to_rss(starting_path):
         rss = ET.Element("rss", version="2.0")
         channel = ET.SubElement(rss, "channel")
         ET.SubElement(channel, "title").text = "Machine Translated Series Feed"
-        ET.SubElement(channel, "link").text = f"https://stefanmielke.github.io/MachineTranslated"
+        ET.SubElement(channel, "link").text = SITE_URL
         ET.SubElement(channel, "description").text = "Feed of newly added chapters in all series."
         tree = ET.ElementTree(rss)
     else:
@@ -100,7 +102,7 @@ def add_new_items_to_rss(starting_path):
                             title_element.append(CDATA(chapter_name))
                             
                             link_element = ET.SubElement(item, "link")
-                            link_element.text = f"https://stefanmielke.github.io/MachineTranslated/translations/{series_folder}/out/{os.path.splitext(file_name)[0]}.html"
+                            link_element.text = f"{SITE_URL}/translations/{series_folder}/out/{os.path.splitext(file_name)[0]}.html"
                             
                             description_element = ET.SubElement(item, "description")
                             description_element.append(CDATA(f"Chapter '{chapter_name}' added."))
