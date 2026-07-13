@@ -1,35 +1,784 @@
 ---
 ---
 
-@import "{{ site.theme }}";
+/* ==========================================================================
+   Machine Translated — editorial bilingual reader
+   True-white editorial system: ink text, cool-gray rules/bands, cobalt accent.
+   Serif for English reading content, sans for UI, Japanese sans for source.
+   ========================================================================== */
 
-em {
-    color:gray;
-    font-style: normal;
-    font-size: 15px;
-    font-family: Noto Sans JP;
+:root {
+  color-scheme: light;
+
+  --color-bg: #ffffff;
+  --color-band: #f4f6f9;
+  --color-rule: #e3e7ec;
+  --color-rule-soft: #edf0f4;
+  --color-ink: #171c21;
+  --color-ink-soft: #3d4650;
+  --color-slate: #5c6773;
+  --color-slate-soft: #97a0aa;
+  --color-accent: #1d4ed8;
+  --color-accent-strong: #16389d;
+  --color-accent-border: #b9c9ef;
+  --color-accent-soft: #f0f4fd;
+
+  --font-serif: "Iowan Old Style", Charter, Georgia, Cambria, "Times New Roman", serif;
+  --font-sans: system-ui, -apple-system, "Segoe UI", Roboto, "Helvetica Neue", Arial, "Noto Sans", sans-serif;
+  --font-jp: "Hiragino Kaku Gothic ProN", "Hiragino Sans", "Noto Sans JP", "Noto Sans CJK JP", "Yu Gothic Medium", "Yu Gothic", Meiryo, sans-serif;
+
+  --radius-control: 10px;
+  --radius-small: 8px;
+  --measure: 760px;
+  --gutter: 24px;
 }
 
-h2 {
-    color:gray;
+/* Base ------------------------------------------------------------------- */
+
+* {
+  box-sizing: border-box;
 }
 
-h6 {
-    float: right;
+[hidden] {
+  display: none !important;
 }
 
-section {
-    margin-top: 0;
+html {
+  -webkit-text-size-adjust: 100%;
+  text-size-adjust: 100%;
 }
 
-ol > li > a:visited {
-    color: gray;
+body {
+  margin: 0;
+  background: var(--color-bg);
+  color: var(--color-ink);
+  font-family: var(--font-sans);
+  font-size: 16px;
+  line-height: 1.6;
+  display: flex;
+  flex-direction: column;
+  min-height: 100vh;
 }
 
-h4 {
-    color: #f0e7d5;
+::selection {
+  background: #d9e4fa;
 }
 
-h4 a {
-    color: darkgoldenrod;
+a {
+  color: var(--color-accent);
+}
+
+a:hover {
+  color: var(--color-accent-strong);
+}
+
+img {
+  max-width: 100%;
+  height: auto;
+}
+
+:focus-visible {
+  outline: 2px solid var(--color-accent);
+  outline-offset: 2px;
+}
+
+.skip-link {
+  position: absolute;
+  left: -9999px;
+  top: 0;
+}
+
+.skip-link:focus {
+  left: 12px;
+  top: 12px;
+  z-index: 100;
+  padding: 10px 16px;
+  background: var(--color-bg);
+  border: 1px solid var(--color-accent);
+  border-radius: var(--radius-small);
+  font-weight: 600;
+  text-decoration: none;
+}
+
+/* Site header -------------------------------------------------------------- */
+
+.site-header {
+  border-bottom: 1px solid var(--color-rule);
+  background: var(--color-bg);
+}
+
+.site-header-inner {
+  max-width: 1140px;
+  margin: 0 auto;
+  padding: 18px var(--gutter);
+  display: flex;
+  align-items: baseline;
+  gap: 20px;
+}
+
+.site-brand {
+  /* rendered as h1 on the homepage, p elsewhere — normalize both */
+  margin: 0;
+  font-size: 16px;
+  font-weight: 400;
+  display: flex;
+  align-items: baseline;
+  gap: 14px;
+  min-width: 0;
+}
+
+.site-brand-link {
+  font-family: var(--font-serif);
+  font-size: 22px;
+  font-weight: 700;
+  letter-spacing: -0.01em;
+  color: var(--color-ink);
+  text-decoration: none;
+  white-space: nowrap;
+}
+
+.site-brand-link:hover {
+  color: var(--color-ink);
+  text-decoration: underline;
+  text-decoration-color: var(--color-slate-soft);
+  text-underline-offset: 4px;
+}
+
+.site-tagline {
+  font-size: 13px;
+  color: var(--color-slate);
+  white-space: nowrap;
+}
+
+.site-nav {
+  margin-left: auto;
+}
+
+.site-nav a {
+  display: inline-flex;
+  align-items: center;
+  min-height: 34px;
+  padding: 0 4px;
+  font-size: 15px;
+  font-weight: 600;
+  text-decoration: none;
+}
+
+.site-nav a:hover {
+  text-decoration: underline;
+  text-underline-offset: 4px;
+}
+
+/* Page shell ---------------------------------------------------------------- */
+
+.site-main {
+  flex: 1 0 auto;
+  width: 100%;
+  max-width: calc(var(--measure) + 2 * var(--gutter));
+  margin: 0 auto;
+  padding: 0 var(--gutter) 72px;
+}
+
+/* Breadcrumb ----------------------------------------------------------------- */
+
+.breadcrumb {
+  margin: 30px 0 6px;
+  font-size: 14px;
+}
+
+.breadcrumb-list {
+  display: flex;
+  align-items: center;
+  list-style: none;
+  margin: 0;
+  padding: 0;
+  gap: 8px;
+  min-width: 0;
+  white-space: nowrap;
+}
+
+.breadcrumb-item {
+  color: var(--color-slate);
+  min-width: 0;
+}
+
+.breadcrumb-item + .breadcrumb-item::before {
+  content: "/";
+  color: var(--color-slate-soft);
+  margin-right: 8px;
+}
+
+.breadcrumb-item a {
+  text-decoration: none;
+  font-weight: 500;
+}
+
+.breadcrumb-item a:hover {
+  text-decoration: underline;
+  text-underline-offset: 3px;
+}
+
+.breadcrumb-series {
+  overflow: hidden;
+  text-overflow: ellipsis;
+}
+
+.breadcrumb-item[aria-current="page"] {
+  overflow: hidden;
+  text-overflow: ellipsis;
+}
+
+/* Content typography ---------------------------------------------------------- */
+
+.page-content h1 {
+  font-family: var(--font-serif);
+  font-size: clamp(30px, 6vw, 42px);
+  font-weight: 700;
+  line-height: 1.15;
+  letter-spacing: -0.015em;
+  margin: 10px 0 12px;
+  overflow-wrap: break-word;
+}
+
+.page-content h3 {
+  font-family: var(--font-sans);
+  font-size: 12px;
+  font-weight: 700;
+  letter-spacing: 0.12em;
+  text-transform: uppercase;
+  color: var(--color-slate);
+  margin: 40px 0 4px;
+}
+
+.page-content hr {
+  border: 0;
+  border-top: 1px solid var(--color-rule);
+  margin: 44px 0;
+}
+
+.page-content img {
+  display: block;
+  margin: 32px auto;
+}
+
+/* Homepage library list -------------------------------------------------------- */
+
+.page-home .page-content ul {
+  list-style: none;
+  margin: 4px 0 48px;
+  padding: 0;
+}
+
+.page-home .page-content ul > li {
+  border-bottom: 1px solid var(--color-rule-soft);
+}
+
+.page-home .page-content ul > li > a {
+  display: flex;
+  align-items: baseline;
+  gap: 14px;
+  padding: 18px 2px;
+  font-family: var(--font-serif);
+  font-size: 19px;
+  font-weight: 600;
+  line-height: 1.4;
+  color: var(--color-ink);
+  text-decoration: none;
+}
+
+.page-home .page-content ul > li > a::after {
+  content: "\2192";
+  margin-left: auto;
+  font-family: var(--font-sans);
+  font-size: 15px;
+  font-weight: 400;
+  color: var(--color-slate-soft);
+  transition: color 0.15s ease, transform 0.15s ease;
+}
+
+.page-home .page-content ul > li > a:hover {
+  color: var(--color-accent);
+}
+
+.page-home .page-content ul > li > a:hover::after {
+  color: var(--color-accent);
+  transform: translateX(3px);
+}
+
+/* Series index ------------------------------------------------------------------ */
+
+.page-series .page-content h6 {
+  margin: 0 0 20px;
+  font-size: 13px;
+  font-weight: 400;
+  color: var(--color-slate);
+}
+
+.page-series .page-content h4 {
+  display: inline-block;
+  margin: 0 22px 6px 0;
+  font-size: 14px;
+  font-weight: 600;
+}
+
+.page-series .page-content h4 a {
+  text-decoration: none;
+}
+
+.page-series .page-content h4 a::after {
+  content: "\2197";
+  margin-left: 5px;
+  font-size: 11px;
+  color: var(--color-slate);
+}
+
+.page-series .page-content h4 a:hover {
+  text-decoration: underline;
+  text-underline-offset: 3px;
+}
+
+.page-series .page-content ol {
+  list-style: none;
+  counter-reset: chapter;
+  margin: 6px 0 48px;
+  padding: 0;
+}
+
+.page-series .page-content ol > li {
+  counter-increment: chapter;
+  border-bottom: 1px solid var(--color-rule-soft);
+}
+
+.page-series .page-content ol > li > a {
+  display: flex;
+  align-items: baseline;
+  gap: 14px;
+  padding: 12px 2px;
+  font-family: var(--font-serif);
+  font-size: 17px;
+  line-height: 1.45;
+  color: var(--color-ink);
+  text-decoration: none;
+}
+
+.page-series .page-content ol > li > a::before {
+  content: counter(chapter);
+  flex: 0 0 2.4em;
+  text-align: right;
+  font-family: var(--font-sans);
+  font-size: 12.5px;
+  font-variant-numeric: tabular-nums;
+  color: var(--color-slate);
+}
+
+.page-series .page-content ol > li > a:visited {
+  color: var(--color-slate);
+}
+
+.page-series .page-content ol > li > a:hover {
+  color: var(--color-accent);
+}
+
+/* Reader toolbar ------------------------------------------------------------------ */
+
+.reader-bar {
+  display: flex;
+  flex-wrap: wrap;
+  align-items: center;
+  justify-content: space-between;
+  gap: 10px 14px;
+  margin: 24px 0 34px;
+  padding: 10px 12px;
+  background: var(--color-bg);
+  border: 1px solid var(--color-rule);
+  border-radius: 12px;
+}
+
+.reader-toggles {
+  display: flex;
+  flex-wrap: wrap;
+  gap: 8px;
+}
+
+.reader-toggle {
+  display: inline-flex;
+  align-items: center;
+  justify-content: center;
+  gap: 8px;
+  min-height: 40px;
+  padding: 0 12px;
+  border: 1px solid var(--color-accent-border);
+  border-radius: var(--radius-control);
+  background: var(--color-accent-soft);
+  color: var(--color-accent);
+  font-family: var(--font-sans);
+  font-size: 14px;
+  font-weight: 600;
+  line-height: 1;
+  cursor: pointer;
+  transition: background-color 0.15s ease, border-color 0.15s ease, color 0.15s ease;
+}
+
+.reader-toggle:hover {
+  border-color: var(--color-accent);
+  color: var(--color-accent-strong);
+}
+
+.reader-toggle .icon-eye-off {
+  display: none;
+}
+
+.reader-toggle.is-off {
+  background: var(--color-bg);
+  border-color: var(--color-rule);
+  color: var(--color-slate);
+}
+
+.reader-toggle.is-off:hover {
+  border-color: var(--color-slate-soft);
+  color: var(--color-ink-soft);
+}
+
+.reader-toggle.is-off .icon-eye {
+  display: none;
+}
+
+.reader-toggle.is-off .icon-eye-off {
+  display: inline-block;
+}
+
+.reader-nav {
+  display: flex;
+  align-items: center;
+  gap: 2px;
+  margin-left: auto;
+}
+
+.reader-nav-link {
+  display: inline-flex;
+  align-items: center;
+  justify-content: center;
+  gap: 7px;
+  min-height: 40px;
+  padding: 0 10px;
+  border-radius: var(--radius-small);
+  color: var(--color-accent);
+  font-size: 14px;
+  font-weight: 600;
+  text-decoration: none;
+  transition: background-color 0.15s ease, color 0.15s ease;
+}
+
+.reader-nav-link:hover {
+  background: var(--color-accent-soft);
+  color: var(--color-accent-strong);
+}
+
+.reader-nav-short {
+  display: none;
+}
+
+.reader-note {
+  flex-basis: 100%;
+  margin: 2px 4px 4px;
+  font-size: 14px;
+  color: var(--color-slate);
+}
+
+.icon {
+  width: 17px;
+  height: 17px;
+  flex: 0 0 auto;
+}
+
+/* End-of-chapter navigation (built from the document's own links) ------------------- */
+
+.reader-endnav {
+  margin: 52px 0 0;
+  padding: 18px 0 0;
+  border-top: 1px solid var(--color-rule);
+  justify-content: space-between;
+}
+
+.reader-endnav .reader-nav-link {
+  border: 1px solid var(--color-rule);
+}
+
+.reader-endnav .reader-nav-link:hover {
+  border-color: var(--color-accent-border);
+}
+
+/* Legacy in-content nav links (visible only without JavaScript) --------------------- */
+
+.page-chapter .page-content h6 {
+  display: inline-block;
+  margin: 0 16px 4px 0;
+  font-size: 13px;
+  font-weight: 600;
+}
+
+.page-chapter .page-content h6.reader-legacy-nav {
+  display: none;
+}
+
+.reader-hidden-rule {
+  display: none;
+}
+
+/* Chapter reader typography ----------------------------------------------------------- */
+
+.page-chapter .page-content h2 {
+  font-family: var(--font-jp);
+  font-size: 16px;
+  font-weight: 500;
+  line-height: 1.6;
+  color: var(--color-slate);
+  margin: 0 0 10px;
+  overflow-wrap: break-word;
+}
+
+.page-chapter .page-content h4 {
+  font-family: var(--font-serif);
+  font-size: 19px;
+  font-weight: 400;
+  line-height: 1.72;
+  color: var(--color-ink);
+  margin: 26px 0 10px;
+  overflow-wrap: break-word;
+}
+
+.page-chapter .page-content p {
+  font-family: var(--font-serif);
+  font-size: 17px;
+  line-height: 1.75;
+  margin: 0 0 26px;
+  overflow-wrap: break-word;
+}
+
+.page-chapter .page-content em {
+  font-family: var(--font-jp);
+  font-style: normal;
+  font-size: 15.5px;
+  line-height: 2;
+  color: var(--color-ink-soft);
+}
+
+/* Source promoted to the primary layer while the translation is hidden */
+.reader-hide-translation .page-chapter .page-content em {
+  color: var(--color-ink);
+}
+
+/* Empty spacer paragraphs become quiet beat separators */
+.page-chapter .page-content .reader-spacer {
+  height: 0;
+  font-size: 0;
+  line-height: 0;
+  border-top: 1px dashed var(--color-rule);
+  margin: 34px 0;
+}
+
+.page-chapter .page-content .reader-spacer + .reader-spacer,
+.page-chapter .page-content .reader-bar + .reader-spacer {
+  display: none;
+}
+
+/* Layer visibility (classes applied by the reader script) ----------------------------- */
+
+.reader-hide-source .layer-source {
+  display: none;
+}
+
+.reader-hide-translation .layer-translation {
+  display: none;
+}
+
+.reader-hide-source.reader-hide-translation .page-chapter .page-content .reader-spacer {
+  display: none;
+}
+
+/* Footer -------------------------------------------------------------------------------- */
+
+.site-footer {
+  flex-shrink: 0;
+  margin-top: 40px;
+  border-top: 1px solid var(--color-rule);
+  background: var(--color-band);
+}
+
+.site-footer-inner {
+  max-width: 1140px;
+  margin: 0 auto;
+  padding: 22px var(--gutter);
+  display: flex;
+  align-items: center;
+  justify-content: space-between;
+  gap: 16px;
+}
+
+.site-footer-copy {
+  margin: 0;
+  font-size: 13.5px;
+  color: var(--color-slate);
+}
+
+.site-footer-feed {
+  display: inline-flex;
+  align-items: center;
+  gap: 7px;
+  min-height: 34px;
+  font-size: 14px;
+  font-weight: 600;
+  text-decoration: none;
+}
+
+.site-footer-feed:hover {
+  text-decoration: underline;
+  text-underline-offset: 3px;
+}
+
+/* Desktop refinements --------------------------------------------------------------------- */
+
+@media (min-width: 720px) {
+  .reader-bar {
+    position: sticky;
+    top: 10px;
+    z-index: 20;
+    box-shadow: 0 6px 18px rgba(23, 28, 33, 0.05);
+  }
+
+  .reader-nav {
+    border-left: 1px solid var(--color-rule);
+    padding-left: 10px;
+  }
+}
+
+/* Compact nav labels until the toolbar has room for the long ones */
+@media (max-width: 999px) {
+  .reader-nav-long {
+    display: none;
+  }
+
+  .reader-nav-short {
+    display: inline;
+  }
+}
+
+/* On wide screens the toolbar breaks out of the reading column, as in the
+   accepted concept (760px column + 110px each side stays under a 1000px
+   viewport, so this can never cause horizontal overflow). */
+@media (min-width: 1000px) {
+  .reader-bar {
+    margin-left: -110px;
+    margin-right: -110px;
+  }
+}
+
+/* Mobile layout ----------------------------------------------------------------------------- */
+
+@media (max-width: 719px) {
+  :root {
+    --gutter: 20px;
+  }
+
+  .site-header-inner {
+    padding: 14px var(--gutter);
+  }
+
+  .site-brand-link {
+    font-size: 19px;
+  }
+
+  .site-tagline {
+    display: none;
+  }
+
+  .breadcrumb-series {
+    display: none;
+  }
+
+  .reader-bar {
+    display: block;
+    padding: 0;
+    border: 0;
+    border-radius: 0;
+    margin: 20px 0 30px;
+  }
+
+  .reader-toggles {
+    display: grid;
+    grid-template-columns: 1fr 1fr;
+    gap: 10px;
+  }
+
+  .reader-toggle {
+    min-height: 46px;
+    padding: 0 10px;
+  }
+
+  .reader-nav {
+    margin: 10px 0 0;
+    gap: 10px;
+  }
+
+  .reader-nav-link {
+    flex: 1 1 0;
+    min-height: 46px;
+    border: 1px solid var(--color-rule);
+    padding: 0 8px;
+  }
+
+  .reader-note {
+    margin: 12px 2px 0;
+  }
+
+  .reader-endnav {
+    display: flex;
+  }
+
+  /* Source paragraphs sit on soft full-bleed bands on small screens */
+  .page-chapter .page-content p.layer-source {
+    background: var(--color-band);
+    margin: 0 calc(-1 * var(--gutter)) 22px;
+    padding: 14px var(--gutter);
+  }
+
+  .page-chapter .page-content p.layer-source + p.layer-source {
+    margin-top: -22px;
+    padding-top: 0;
+  }
+
+  .page-chapter .page-content h4 {
+    margin: 22px 0 10px;
+  }
+
+  .page-chapter .page-content .reader-spacer {
+    margin: 26px 0;
+  }
+
+  .page-home .page-content ul > li > a {
+    padding: 16px 2px;
+    font-size: 18px;
+  }
+
+  .page-series .page-content ol > li > a {
+    padding: 12px 0;
+    font-size: 16px;
+  }
+
+  .site-footer-inner {
+    padding: 18px var(--gutter);
+  }
+}
+
+/* Reduced motion ------------------------------------------------------------------------------ */
+
+@media (prefers-reduced-motion: reduce) {
+  *,
+  *::before,
+  *::after {
+    animation-duration: 0.01ms !important;
+    animation-iteration-count: 1 !important;
+    transition-duration: 0.01ms !important;
+    scroll-behavior: auto !important;
+  }
 }

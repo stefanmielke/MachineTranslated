@@ -1,45 +1,116 @@
+{% assign url_parts = page.url | split: '/' %}
+{% assign page_type = 'home' %}
+{% if page.url contains '/translations/' %}
+  {% if page.url contains '/out/' %}
+    {% assign page_type = 'chapter' %}
+  {% else %}
+    {% assign page_type = 'series' %}
+  {% endif %}
+{% endif %}
+{% if page_type == 'chapter' %}
+  {% capture series_url %}/translations/{{ url_parts[2] }}/{% endcapture %}
+  {% assign series_page = site.pages | where: 'url', series_url | first %}
+  {% assign series_title = series_page.title | default: 'Chapters' %}
+{% endif %}
 <!doctype html>
-<html lang="{{ site.lang | default: "en-US" }}">
+<html lang="{{ site.lang | default: 'en-US' }}">
   <head>
     <meta charset="utf-8">
-    <meta http-equiv="X-UA-Compatible" content="IE=edge">
-
+    <meta name="viewport" content="width=device-width, initial-scale=1">
 {% seo %}
     <link rel="stylesheet" href="{{ '/assets/css/style.css?v=' | append: site.github.build_revision | relative_url }}">
-    <script src="https://code.jquery.com/jquery-1.12.4.min.js" integrity="sha256-ZosEbRLbNQzLpnKIkEdrPv7lOy9C27hHQ+Xp8a4MxAQ=" crossorigin="anonymous"></script>
-    <script src="{{ '/assets/js/respond.js' | relative_url }}"></script>
-    <script src="{{ '/assets/js/main.js' | relative_url }}"></script>
-    <!--[if lt IE 9]>
-      <script src="//html5shiv.googlecode.com/svn/trunk/html5.js"></script>
-    <![endif]-->
-    <!--[if lt IE 8]>
-    <link rel="stylesheet" href="{{ '/assets/css/ie.css' | relative_url }}">
-    <![endif]-->
-    <meta name="viewport" content="width=device-width, initial-scale=1, user-scalable=no">
-    <link rel="icon" type="image/x-icon" href="/favicon.ico">
+    <link rel="alternate" type="application/rss+xml" title="Machine Translated chapter feed" href="{{ '/feed.xml' | relative_url }}">
+    <link rel="icon" type="image/x-icon" href="{{ '/favicon.ico' | relative_url }}">
+    <script>
+      // Apply the saved reader layer state before first paint to avoid a flash.
+      (function () {
+        try {
+          var state = JSON.parse(window.localStorage.getItem('mt-reader') || '{}');
+          var classes = document.documentElement.classList;
+          if (state.source === false) classes.add('reader-hide-source');
+          if (state.translation === false) classes.add('reader-hide-translation');
+        } catch (err) { /* fall back to both layers visible */ }
+      })();
+    </script>
+    <script src="{{ '/assets/js/main.js' | relative_url }}" defer></script>
     {% include head-custom.html %}
   </head>
-  <body>
-    <div class="wrapper">
+  <body class="page-{{ page_type }}">
+    <a class="skip-link" href="#content">Skip to content</a>
 
-      <section>
-        <div id="title">
-          <h1><a href="https://machinetranslated.com/" style="color:white">Machine Translated</a></h1>
-          <p>web novel translations by machines</p>
-          <hr>
-          <span class="credits left"><a href="../">Go Back</a></span>
-          <span class="credits right">
-            <a href="#" id="btn-jp">Hide/Show Source Text</a><br />
-            <a href="#" id="btn-en">Hide/Show Translation</a><br />
-          </span>
+    <header class="site-header">
+      <div class="site-header-inner">
+        {% assign brand_tag = 'p' %}{% if page_type == 'home' %}{% assign brand_tag = 'h1' %}{% endif %}<{{ brand_tag }} class="site-brand">
+          <a class="site-brand-link" href="{{ '/' | relative_url }}">Machine Translated</a>
+          <span class="site-tagline">web novel translations by machines</span>
+        </{{ brand_tag }}>
+        <nav class="site-nav" aria-label="Site">
+          <a href="{{ '/' | relative_url }}"{% if page_type == 'home' %} aria-current="page"{% endif %}>Library</a>
+        </nav>
+      </div>
+    </header>
+
+    <main id="content" class="site-main">
+      {% if page_type == 'chapter' %}
+      <nav class="breadcrumb" aria-label="Breadcrumb">
+        <ol class="breadcrumb-list">
+          <li class="breadcrumb-item"><a href="{{ '/' | relative_url }}">Library</a></li>
+          <li class="breadcrumb-item breadcrumb-series"><a href="{{ series_url | relative_url }}">{{ series_title }}</a></li>
+          <li class="breadcrumb-item" aria-current="page">Chapter</li>
+        </ol>
+      </nav>
+
+      <div class="reader-bar" id="reader-bar" hidden>
+        <div class="reader-toggles" id="reader-toggles" hidden>
+          <button type="button" class="reader-toggle" id="toggle-source" aria-label="Source text" aria-pressed="true">
+            <svg class="icon icon-eye" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" aria-hidden="true" focusable="false"><path d="M1 12s4-7 11-7 11 7 11 7-4 7-11 7-11-7-11-7z"/><circle cx="12" cy="12" r="3"/></svg>
+            <svg class="icon icon-eye-off" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" aria-hidden="true" focusable="false"><path d="M17.94 17.94A10.07 10.07 0 0 1 12 20c-7 0-11-8-11-8a18.45 18.45 0 0 1 5.06-5.94M9.9 4.24A9.12 9.12 0 0 1 12 4c7 0 11 8 11 8a18.5 18.5 0 0 1-2.16 3.19m-6.72-1.07a3 3 0 1 1-4.24-4.24"/><line x1="1" y1="1" x2="23" y2="23"/></svg>
+            <span class="reader-toggle-label" aria-hidden="true">Source visible</span>
+          </button>
+          <button type="button" class="reader-toggle" id="toggle-translation" aria-label="Translation text" aria-pressed="true">
+            <svg class="icon icon-eye" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" aria-hidden="true" focusable="false"><path d="M1 12s4-7 11-7 11 7 11 7-4 7-11 7-11-7-11-7z"/><circle cx="12" cy="12" r="3"/></svg>
+            <svg class="icon icon-eye-off" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" aria-hidden="true" focusable="false"><path d="M17.94 17.94A10.07 10.07 0 0 1 12 20c-7 0-11-8-11-8a18.45 18.45 0 0 1 5.06-5.94M9.9 4.24A9.12 9.12 0 0 1 12 4c7 0 11 8 11 8a18.5 18.5 0 0 1-2.16 3.19m-6.72-1.07a3 3 0 1 1-4.24-4.24"/><line x1="1" y1="1" x2="23" y2="23"/></svg>
+            <span class="reader-toggle-label" aria-hidden="true">Translation visible</span>
+          </button>
         </div>
+        <nav class="reader-nav" aria-label="Chapter navigation">
+          <a class="reader-nav-link" id="nav-prev" hidden>
+            <svg class="icon" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" aria-hidden="true" focusable="false"><polyline points="15 18 9 12 15 6"/></svg>
+            <span>Previous<span class="reader-nav-long"> chapter</span></span>
+          </a>
+          <a class="reader-nav-link" href="{{ series_url | relative_url }}">
+            <svg class="icon" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" aria-hidden="true" focusable="false"><line x1="8" y1="6" x2="21" y2="6"/><line x1="8" y1="12" x2="21" y2="12"/><line x1="8" y1="18" x2="21" y2="18"/><line x1="3" y1="6" x2="3.01" y2="6"/><line x1="3" y1="12" x2="3.01" y2="12"/><line x1="3" y1="18" x2="3.01" y2="18"/></svg>
+            <span>Chapter<span class="reader-nav-long"> list</span><span class="reader-nav-short">s</span></span>
+          </a>
+          <a class="reader-nav-link" id="nav-next" hidden>
+            <span>Next<span class="reader-nav-long"> chapter</span></span>
+            <svg class="icon" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" aria-hidden="true" focusable="false"><polyline points="9 18 15 12 9 6"/></svg>
+          </a>
+        </nav>
+        <p class="reader-note" id="reader-empty-note" hidden>Both text layers are hidden — show the source or the translation to keep reading.</p>
+      </div>
+      {% elsif page_type == 'series' %}
+      <nav class="breadcrumb" aria-label="Breadcrumb">
+        <ol class="breadcrumb-list">
+          <li class="breadcrumb-item"><a href="{{ '/' | relative_url }}">Library</a></li>
+          <li class="breadcrumb-item" aria-current="page">{{ page.title | default: 'Series' }}</li>
+        </ol>
+      </nav>
+      {% endif %}
 
-        {{ content }}
+      <article class="page-content">
+{{ content }}
+      </article>
+    </main>
 
-        <div><span class="rss-feed"><a href="https://machinetranslated.com/feed" target="_blank"><img src="https://machinetranslated.com/assets/images/rss-icon.png" alt="RSS feed" border="0" width="16" height="16"></a></span></div>
-      </section>
-
-    </div>
+    <footer class="site-footer">
+      <div class="site-footer-inner">
+        <p class="site-footer-copy">&copy; {{ site.time | date: '%Y' }} Machine Translated</p>
+        <a class="site-footer-feed" href="{{ '/feed.xml' | relative_url }}">
+          <svg class="icon" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" aria-hidden="true" focusable="false"><path d="M4 11a9 9 0 0 1 9 9"/><path d="M4 4a16 16 0 0 1 16 16"/><circle cx="5" cy="19" r="1"/></svg>
+          <span>RSS</span>
+        </a>
+      </div>
+    </footer>
   </body>
 </html>
-
