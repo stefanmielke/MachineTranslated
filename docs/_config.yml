@@ -1,6 +1,9 @@
 remote_theme: pages-themes/midnight@v0.2.0
+url: https://machinetranslated.com
+baseurl: ""
 plugins:
 - jekyll-remote-theme
+- jekyll-sitemap
 exclude:
 - docs/translations/n0088hz/data.json
 - docs/translations/n0088hz/en
